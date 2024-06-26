@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Enhancing Viewability  Creating Custom YouTube Thumbnails\""
-date: 2024-06-20 15:57:14
-updated: 2024-06-23 12:57:21
+date: 2024-06-25T20:08:48.468Z
+updated: 2024-06-26T20:08:48.468Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/8984f3e954dc5418ee2dd74f85120f2ef763c0382
 
 ## Enhancing Viewability: Creating Custom YouTube Thumbnails
 
-# How To Add Custom Thumbnails to Your YouTube Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -87,7 +85,7 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 * After signing into YouTube with your Google account, click on your profile on the top right corner. Click on **YouTube Studio** from the drop-down menu.
 
-![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
+![YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
@@ -127,7 +125,7 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
-![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
+![YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -141,7 +139,7 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
-![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
+![YouTube Thumbnail:  Don’t Be Mysterious](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -171,7 +169,7 @@ You want to use colors that will help you stand out from the other search result
 
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
-![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
+![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -222,3 +220,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-breaking-down-the-fastest-green-screen-methods/"><u>[Updated] In 2024, Breaking Down the Fastest Green Screen Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-is-youtubes-monetization-routine/"><u>[Updated] Is YouTube’s Monetization Routine?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-your-first-youtubian-venture-building-a-brand-bringing-in-bucks/"><u>In 2024, Your First Youtubian Venture  Building a Brand, Bringing in Bucks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-cool-youtube-previews-in-imovie-easily/"><u>[New] Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-discover-your-favorite-6-premier-youtube-short-downloaders/"><u>[New] In 2024, Discover Your Favorite  6 Premier YouTube Short Downloaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-audience-expansion-strategies-that-honor-youtube-standards/"><u>In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-youtube-video-the-ultimate-guide-for-2024/"><u>[New] How to Make YouTube Video  The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-innovating-your-slides-with-youtube-images/"><u>In 2024, Innovating Your Slides with YouTube Images</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximize-youtube-visibility-with-11-proven-seo-techniques/"><u>[New] Maximize YouTube Visibility with 11 Proven SEO Techniques</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-fcpx-tutorial-image-cropping-made-easy/"><u>New 2024 Approved FCPX Tutorial Image Cropping Made Easy</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-treasure-trove-guide-to-public-domain-images/"><u>2024 Approved  A Treasure Trove Guide to Public Domain Images</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-into-the-future-jaunt-vrs-potential-explored/"><u>In 2024, Into the Future  Jaunt VR's Potential Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-frosty-ambiance-cozy-cinematics-best-bgs-ideas/"><u>2024 Approved  Frosty Ambiance, Cozy Cinematics  Best Bgs Ideas</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/directorvid-evaluation-all-you-need-to-know/"><u>DirectorVid Evaluation – All You Need to Know</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-teaching-through-media-pro-video-editing-hacks/"><u>2024 Approved  Teaching Through Media  Pro Video Editing Hacks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-do-voiceover-on-tiktok-for-2024/"><u>How to Do Voiceover on TikTok for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-smart-sync-strategy-transferring-photos-from-iphone-to-snapchat-correctly/"><u>[Updated] 2024 Approved  Smart Sync Strategy  Transferring Photos From iPhone to Snapchat Correctly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-best-cameras-for-vlogging/"><u>In 2024, Best Cameras for Vlogging</u></a></li>
+</ul></div>

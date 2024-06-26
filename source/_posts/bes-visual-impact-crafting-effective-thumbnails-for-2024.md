@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube's Visual Impact  Crafting Effective Thumbnails for 2024\""
-date: 2024-06-16 18:59:46
-updated: 2024-06-18 12:51:35
+date: 2024-06-25T20:37:58.613Z
+updated: 2024-06-26T20:37:58.613Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/e9d9b71440a916b77a73a65e520d732ec704accfc
 
 ## YouTube's Visual Impact: Crafting Effective Thumbnails
 
-# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
@@ -45,9 +43,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -125,55 +121,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -222,3 +218,23 @@ Follow @Benjamin Arango
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtubes-creative-playground-explained-with-ease/"><u>[Updated] 2024 Approved  YouTube's Creative Playground Explained with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-artful-swap-from-cold-scenes-to-cozy-vlogs-for-2024/"><u>[Updated] The Artful Swap From Cold Scenes to Cozy Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-creative-potential-in-asmr-content-advanced-techniques-for-2024/"><u>[Updated] Unlocking Creative Potential in ASMR Content – Advanced Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quality-audio-awaits-with-these-premium-asmr-mics/"><u>[Updated] Quality Audio Awaits with These Premium ASMR Mics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/2-proven-ways-to-increase-youtube-views-you-should-try-for-2024/"><u>[New] 12 Proven Ways to Increase YouTube Views You Should Try for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ic-descriptor-constructor/"><u>Dynamic Descriptor Constructor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-tseries-income-stream-from-youtube-content-consumption-for-2024/"><u>[Updated] Unveiling TSeries’ Income Stream From Youtube Content Consumption for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-warzone-wonders-your-a-list-of-top-7-fps-adventures/"><u>In 2024, Warzone Wonders - Your A-List of Top 7 FPS Adventures</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-converting-sounds-to-words-the-ultimate-free-guide-with-top-3-strategies/"><u>2024 Approved Converting Sounds to Words The Ultimate Free Guide with Top 3 Strategies</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-10-best-software-to-reverse-audio-online-desktop-and-phone/"><u>Updated In 2024, 10 Best Software to Reverse Audio Online, Desktop, and Phone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-samsung-galaxy-m34-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Samsung Galaxy M34 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-untold-chronicles-adventures-in-antique-literature/"><u>[Updated] The Untold Chronicles  Adventures in Antique Literature</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-pro-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 Pro To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lengthy-tales-balancing-podcast-episodes-rightly/"><u>In 2024, Lengthy Tales? Balancing Podcast Episodes Rightly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-iphone-se-2022-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock iPhone SE (2022) After Forgetting the Passcode?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-itel-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Itel</u></a></li>
+</ul></div>

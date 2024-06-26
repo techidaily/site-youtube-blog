@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make Your Own YouTube Closures Without Spending for 2024"
-date: 2024-06-23 10:29:27
-updated: 2024-06-24 10:55:49
+date: 2024-06-25T21:16:52.908Z
+updated: 2024-06-26T21:16:52.908Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/e04a9e5f3764ad02106bedbd9d5d7455103ba0386
 
 ## How to Make Your Own YouTube Closures Without Spending
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -133,3 +131,26 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-enhance-your-online-presence-with-these-50-complimentary-banners/"><u>In 2024, Enhance Your Online Presence with These 50 Complimentary Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ilm-school-at-home-mastering-video-editing-via-youtube-and-alternatives-for-2024/"><u>[New] Film School at Home  Mastering Video Editing via YouTube & Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/standing-how-youtube-manages-post-upload-content/"><u>Understanding How YouTube Manages Post-Upload Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-list-10-costless-video-caption-extractors/"><u>2024 Approved  Ultimate List  10 Costless Video Caption Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-small-screen-big-impact-effortless-businesspersonal-youtube-channel-setup/"><u>[Updated] The Small Screen, Big Impact  Effortless Business/Personal YouTube Channel Setup</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-charting-success-with-these-top-15-youtube-introduction-techniques-for-2024/"><u>[Updated] Charting Success with These Top 15 YouTube Introduction Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-thriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>[Updated] 2024 Approved  Thriving in Digital Realms  The Power of Well-Planned Backlinks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-precision-editing-mastery-proven-pc-strategies-for-youtube-success/"><u>[Updated] Precision Editing Mastery  Proven PC Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-to-use-video-titles-and-youtube-tags-for-more-views/"><u>[Updated] In 2024, How to Use Video Titles and YouTube Tags for More Views?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-y78t-easily-by-drfone-android/"><u>How To Unlock a Vivo Y78t Easily?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-ultimate-checklist-streamlining-and-maximizing-screencast-quality-with-mobizen/"><u>[New] In 2024, Ultimate Checklist  Streamlining and Maximizing Screencast Quality with Mobizen</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlocking-potential-snapchats-business-toolkit-for-2024/"><u>[Updated] Unlocking Potential  Snapchat's Business Toolkit for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-samsung-galaxy-a34-5g-by-drfone-android/"><u>How to Bypass FRP from Samsung Galaxy A34 5G?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-ideal-starting-point-uncomplicated-gaming-edits-tools-for-2024/"><u>[New] The Ideal Starting Point  Uncomplicated Gaming Edits Tools for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-sony-xperia-5-v-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Sony Xperia 5 V Location Settings | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-zoom-in-on-minecraft/"><u>In 2024, How to Zoom in on Minecraft</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-explore-your-skills-in-dimensional-graphic-editing-and-animation-with-blender-the-software-lands-among-the-best-platforms-for-art-enthusiasts-with-i/"><u>Updated Explore Your Skills in Dimensional Graphic Editing and Animation with Blender. The Software Lands Among the Best Platforms for Art Enthusiasts with Its Stunning Transparent Backgrounds</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-game-on-with-updated-windows-11-gems/"><u>In 2024, Game On with Updated Windows 11 Gems</u></a></li>
+</ul></div>

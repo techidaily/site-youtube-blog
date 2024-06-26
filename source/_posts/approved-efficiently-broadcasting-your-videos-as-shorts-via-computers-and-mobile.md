@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile\""
-date: 2024-06-22 14:51:29
-updated: 2024-06-24 10:55:55
+date: 2024-06-25T21:14:13.089Z
+updated: 2024-06-26T21:14:13.089Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,7 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload
-
-![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -58,7 +56,7 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
-![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+![post YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -70,9 +68,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
@@ -86,15 +82,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload
-
-![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details
-
-![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -110,7 +102,7 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -157,3 +149,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unpacking-online-influence-your-channel-versus-competitors-strategies/"><u>[New] In 2024, Unpacking Online Influence  Your Channel Versus Competitors' Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-bridal-collection-premium-wedding-cinematography-on-youtube-and-vimeo/"><u>[Updated] The Ultimate Bridal Collection  Premium Wedding Cinematography on YouTube & Vimeo</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-tactics-to-triple-your-youtube-subscription-numbers/"><u>[New] 2024 Approved  Tactics to Triple Your YouTube Subscription Numbers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-next-gen-streaming-enable-av1-codec-on-youtube/"><u>[Updated] 2024 Approved  Next-Gen Streaming  Enable AV1 Codec on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-insiders-guide-to-fixing-popular-youtube-short-problems/"><u>[Updated] The Insider's Guide to Fixing Popular YouTube Short Problems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-curating-the-perfect-mix-a-youtube-playlist-manual/"><u>In 2024, Curating the Perfect Mix  A Youtube Playlist Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-naming-rules-and-guidelines-how-to-ensure-originality-in-streaming/"><u>2024 Approved  Naming Rules and Guidelines  How to Ensure Originality in Streaming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-thumbnail-design-for-engagement-a-youtube-resizing-guide/"><u>2024 Approved  Thumbnail Design for Engagement  A YouTube Resizing Guide</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-unleash-your-creativity-best-stop-motion-software-for-mac-and-pc/"><u>Updated 2024 Approved Unleash Your Creativity Best Stop Motion Software for Mac and PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-striking-visuals-that-move-us-top-20-instagram-photos/"><u>[New] Striking Visuals that Move Us  Top 20 Instagram Photos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discovering-the-unique-benefits-of-youtube-tv-for-2024/"><u>Discovering the Unique Benefits of YouTube TV for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-advanced-technology-showcase-reviewing-the-top-5-slow-motion-cameras/"><u>In 2024, Advanced Technology Showcase  Reviewing the Top 5 Slow-Motion Cameras</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/easy-access-to-free-guitar-centric-background-media-and-sounds-for-2024/"><u>Easy Access to FREE Guitar-Centric Background Media and Sounds for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-perfect-purity-extract-background-from-your-photos-at-home/"><u>[New] Perfect Purity  Extract Background From Your Photos at Home</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-purchasing-drones-insider-advice-for-2024/"><u>Mastering the Art of Purchasing Drones  Insider Advice for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+</ul></div>

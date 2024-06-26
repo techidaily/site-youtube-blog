@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shot Securement  Keeping Cameras Still on Arms Only for 2024\""
-date: 2024-06-23 15:14:59
-updated: 2024-06-25 11:52:57
+date: 2024-06-25T20:51:43.144Z
+updated: 2024-06-26T20:51:43.144Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/298f3a51b5ad96cf99ca78528e1cf7576a8f7bf91
 
 ## Shot Securement: Keeping Cameras Still on Arms Only
 
-# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
  Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
 
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -126,3 +122,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/0-leading-free-platforms-for-exceptional-youtube-intros-for-2024/"><u>[New] 30 Leading Free Platforms for Exceptional YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters/"><u>[Updated] In 2024, Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tand-out-on-youtube-with-these-20-top-font-choices/"><u>[New] Stand Out on YouTube with These 20 Top Font Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/otation-ritual-youtube-video-techniques-for-visual-impact-for-2024/"><u>The Rotation Ritual  Youtube Video Techniques for Visual Impact for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>[New] In 2024, Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-8-access-free-eco-friendly-vfx-backdrops-online/"><u>[Updated] Top 8  Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailoring-your-video-content-for-wide-platform-distribution/"><u>[Updated] Tailoring Your Video Content for Wide Platform Distribution</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/converting-spotify-playlist-selections-for-youtube-music-service/"><u>Converting Spotify Playlist Selections for YouTube Music Service</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superstar-sites-for-crafting-unique-handmade-boxes/"><u>2024 Approved  Superstar Sites for Crafting Unique, Handmade Boxes</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-best-of-the-best-ultimate-tiktok-video-savers/"><u>[New] In 2024, Best of the Best  Ultimate TikTok Video Savers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-filmmaking-secrets-enhancing-your-video-recordings/"><u>[New] 2024 Approved  Filmmaking Secrets  Enhancing Your Video Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fb-video-extraction-for-desktops-and-phones/"><u>[Updated] In 2024, FB Video Extraction for Desktops & Phones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-the-mechanics-of-subscriber-tracking/"><u>[Updated] Decoding the Mechanics of Subscriber Tracking</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instasnap-optimize-images-and-videos-on-ig/"><u>2024 Approved  InstaSnap  Optimize Images & Videos on IG</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-aural-artistry-the-magic-of-sound-fading/"><u>2024 Approved  Aural Artistry  The Magic of Sound Fading</u></a></li>
+</ul></div>

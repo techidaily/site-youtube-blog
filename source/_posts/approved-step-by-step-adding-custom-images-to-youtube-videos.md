@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step  Adding Custom Images to YouTube Videos\""
-date: 2024-06-25 21:53:16
-updated: 2024-06-26 12:19:20
+date: 2024-06-25T20:19:16.683Z
+updated: 2024-06-26T20:19:16.683Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 
 ## Step-by-Step: Adding Custom Images to YouTube Videos
 
-# How To Add Custom Thumbnails to Your YouTube Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -87,7 +85,7 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 * After signing into YouTube with your Google account, click on your profile on the top right corner. Click on **YouTube Studio** from the drop-down menu.
 
-![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
+![YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
@@ -127,7 +125,7 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
-![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
+![YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -141,7 +139,7 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
-![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
+![YouTube Thumbnail:  Don’t Be Mysterious](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -171,7 +169,7 @@ You want to use colors that will help you stand out from the other search result
 
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
-![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
+![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -222,3 +220,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/omplete-guide-to-earnings-via-video-ads-on-youtube-for-2024/"><u>The Complete Guide to Earnings via Video Ads on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>[New] Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/30123831-new-2024-approved-exclusive-youtube-snippet-access-high-quality-free-download/"><u>[New] 2024 Approved  Exclusive YouTube Snippet Access - High Quality, Free Download</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-speedy-transformation-from-pixels-to-polished-youtube-thumbnails-for-2024/"><u>[Updated] Speedy Transformation  From Pixels to Polished YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-total-guide-to-video-dimensions-and-proportion-harmony-on-youtube-for-2024/"><u>[Updated] Total Guide to Video Dimensions & Proportion Harmony on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sustainable-practices-greening-urban-landscapes/"><u>[Updated] 2024 Approved  Sustainable Practices  Greening Urban Landscapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-expert-director-of-visuals-and-music-for-2024/"><u>[Updated] Expert Director of Visuals and Music for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-discovering-best-phone-based-asmr-experiences/"><u>[New] 2024 Approved  Discovering Best Phone-Based ASMR Experiences</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-minecraft-ultimate-recording-techniques/"><u>[New] In 2024, Mastering Minecraft  Ultimate Recording Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhance-visibility-with-any-channel-title-through-free-makers-for-2024/"><u>Enhance Visibility With Any Channel Title Through Free Makers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-advanced-techniques-for-sharper-screen-collaboration/"><u>[Updated] 2024 Approved  Advanced Techniques for Sharper Screen Collaboration</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-expert-approved-highlight-video-makers-for-any-device/"><u>New In 2024, Expert-Approved Highlight Video Makers for Any Device</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-maxitouch-all-in-one-4k-screen-plus-desk/"><u>2024 Approved  MaxiTouch All-in-One 4K, Screen Plus Desk</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-tutorial-on-powerpoint-voice-to-text-conversion/"><u>A Comprehensive Tutorial on PowerPoint Voice to Text Conversion</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-mastering-tunes-with-mac-studios/"><u>2024 Approved  Mastering Tunes with Mac Studios</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-everyday-fashion-expert-edits-for-haul-videos/"><u>Elevate Everyday Fashion  Expert Edits for Haul Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-the-power-of-in-stream-ads-on-facebook-a-comprehensive-handbook-for-2024/"><u>[Updated] Unlocking the Power of In-Stream Ads on Facebook  A Comprehensive Handbook for 2024</u></a></li>
+</ul></div>

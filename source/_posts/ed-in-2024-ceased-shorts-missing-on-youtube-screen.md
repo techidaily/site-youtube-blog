@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Ceased  Shorts Missing on YouTube Screen\""
-date: 2024-06-21 14:17:45
-updated: 2024-06-24 11:49:33
+date: 2024-06-25T20:09:30.588Z
+updated: 2024-06-26T20:09:30.588Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,26 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-sounds-through-screen-capture-for-2024/"><u>[Updated] Unlocking YouTube Sounds Through Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-your-comprehensible-guide-to-economical-webinars-on-youtube/"><u>[New] 2024 Approved  Your Comprehensible Guide to Economical Webinars on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-optimizing-content-visibility-premier-tracking-applications-for-youtubers/"><u>In 2024, Optimizing Content Visibility - Premier Tracking Applications for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>[Updated] In 2024, Youtube Earnings Unveiled  Average AdSense Payments Per Thousand Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-in-depth-look-at-voice-altering-software-for-video-makers/"><u>[Updated] In 2024, In-Depth Look at Voice Altering Software for Video Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-fundamentals-of-crafting-youtube-videos-from-scratch/"><u>[Updated] The Fundamentals of Crafting YouTube Videos From Scratch</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-youtube-visuals-for-no-charge-best-free-downloader-guide/"><u>Unlock YouTube Visuals for No Charge  Best Free Downloader Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-excellence-mirrorless-cameras-vs-traditional-dslrs-for-2024/"><u>[Updated] Video Excellence  Mirrorless Cameras vs Traditional DSLRs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/standing-earnings-potential-per-video-consumption-for-2024/"><u>Understanding Earnings Potential per Video Consumption for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-troubleshooting-stop-sequential-frame-skips-in-live-streaming/"><u>[Updated] 2024 Approved  Troubleshooting  Stop Sequential Frame Skips in Live Streaming</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-y77t-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo Y77t</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-gt-5-240w-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-personalize-your-soundtrack-constructing-a-youtube-playlist-from-home-and-on-the-move/"><u>In 2024, Personalize Your Soundtrack  Constructing a YouTube Playlist From Home & On-the-Move</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-rapid-ideas-to-compile-photos-on-a-mac/"><u>[New] Rapid Ideas to Compile Photos on a Mac</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-oppo-a56s-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Oppo A56s 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-minded-channels-ultimate-yt-educational-guide/"><u>In 2024, Top Minded Channels  Ultimate YT Educational Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-social-sensation-unveiling-todays-most-retweeted-tweets/"><u>In 2024, Social Sensation  Unveiling Today's Most Retweeted Tweets</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-perfect-guide-to-excel-in-tiktok-live-shopping/"><u>Updated Perfect Guide To Excel in TikTok Live Shopping</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guided-approach-to-saving-exact-youtube-segments-for-2024/"><u>[Updated] Guided Approach to Saving Exact YouTube Segments for 2024</u></a></li>
+</ul></div>

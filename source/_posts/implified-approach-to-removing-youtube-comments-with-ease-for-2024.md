@@ -1,7 +1,7 @@
 ---
 title: "[New] Simplified Approach to Removing YouTube Comments with Ease for 2024"
-date: 2024-06-22 13:21:51
-updated: 2024-06-24 10:21:46
+date: 2024-06-25T21:00:23.557Z
+updated: 2024-06-26T21:00:23.557Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/71b29e512538a1ca57df111d49f95a750cd58f363
 
 ## Simplified Approach to Removing YouTube Comments with Ease
 
-# Deleting YouTube Comments
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Deleting YouTube Comments ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -40,7 +38,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +61,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -101,7 +99,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -110,15 +108,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -149,3 +147,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-video-ranking-factors-that-will-affect-your-rank-for-2024/"><u>[Updated] YouTube Video Ranking - Factors that Will Affect Your Rank for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unearth-pristine-stock-media-from-selective-4-youtube-hubs/"><u>[Updated] Unearth Pristine Stock Media From Selective 4 YouTube Hubs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlocking-the-power-of-hashtags-in-youtube-gaming-culture/"><u>[Updated] 2024 Approved  Unlocking the Power of Hashtags in YouTube Gaming Culture</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls/"><u>[Updated] 2024 Approved  The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-professional-video-setup-ideal-stabilizers-for-youtubers/"><u>[Updated] Professional Video Setup  Ideal Stabilizers for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-refine-and-revamp-your-youtube-clips-using-wm-maker/"><u>[Updated] 2024 Approved  Refine and Revamp Your YouTube Clips Using WM Maker</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-essential-tactics-for-youtube-advertising-with-banners/"><u>2024 Approved  Essential Tactics for YouTube Advertising with Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-infographic-top-insights-into-fifa-football-videos-on-youtube/"><u>[New] 2024 Approved  Infographic - Top Insights Into FIFA Football Videos On YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-audience-potential-with-curated-video-shorts/"><u>[New] In 2024, Unlock Audience Potential with Curated Video Shorts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/fcpx-essentials-how-to-achieve-silky-smooth-video-playback-for-2024/"><u>FCPX Essentials How to Achieve Silky Smooth Video Playback for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-essential-guide-enabling-a-full-screen-grid-on-zoom/"><u>2024 Approved  Essential Guide  Enabling a Full-Screen Grid on Zoom</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-poco-f5-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Poco F5 Pro 5G Devices</u></a></li>
+<li><a href="https://techidaily.com/ways-to-fix-the-failed-to-parse-the-corrupted-excel-2023-file-error-by-stellar-guide/"><u>Ways to Fix the Failed to Parse the Corrupted Excel 2023 File Error</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-translate-videos-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-zero-to-hero-with-telegram-promotion-techniques/"><u>In 2024, From Zero to Hero with Telegram Promotion Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-the-secrets-to-professional-quality-instagram-videos/"><u>[Updated] In 2024, Unlocking the Secrets to Professional-Quality Instagram Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-wont-play-mkv-movies-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Motorola won’t play MKV movies</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-unbeatable-free-webcam-matchups-for-2024/"><u>[Updated] Unbeatable Free Webcam Matchups for 2024</u></a></li>
+</ul></div>

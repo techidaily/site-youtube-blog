@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Creative Summit  Top Talent Junction\""
-date: 2024-06-22 11:19:48
-updated: 2024-06-25 11:51:38
+date: 2024-06-25T20:10:57.992Z
+updated: 2024-06-26T20:10:57.992Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/234a90d5c27844c283f4441b2b9e5e76ee9e8064b
 
 ## The Creative Summit: Top Talent Junction
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -116,3 +114,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-unveiling-the-top-8-youtube-boosters/"><u>[Updated] In 2024, The Ultimate Guide  Unveiling the Top 8 Youtube Boosters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nhance-your-presence-best-free-tools-for-intriguing-openings-for-2024/"><u>[New] Enhance Your Presence  Best Free Tools for Intriguing Openings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-prominence-mastery-a-comprehensive-youtube-guide-for-2024/"><u>[Updated] Channel Prominence Mastery  A Comprehensive YouTube Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ashing-it-out-best-tags-to-transform-views-and-profit/"><u>[New] Hashing It Out  Best Tags to Transform Views & Profit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-creativity-exclusive-free-youtube-banner-templates/"><u>[New] In 2024, Unleash Creativity - Exclusive Free YouTube Banner Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfect-your-channel-imagery-youtube-thumbnail-dos-and-donts/"><u>[New] In 2024, Perfect Your Channel Imagery  YouTube Thumbnail Do's & Don'ts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-tripod-setup-in-vlogging/"><u>[New] In 2024, Mastering Tripod Setup in Vlogging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unveiling-the-leading-free-stock-video-and-image-archives/"><u>[New] 2024 Approved  Unveiling the Leading Free Stock Video and Image Archives</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-turn-video-soundtracks-into-audible-files-for-2024/"><u>[New] How to Turn Video Soundtracks Into Audible Files for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-an-mp4-on-galaxy-xcover-7-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play an MP4 on Galaxy XCover 7?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/fable-formulators-fellowship-top-7-titans/"><u>Fable Formulators Fellowship – Top 7 Titans</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-xiaomi-14-ultra-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Xiaomi 14 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-breakneck-broadcast-channel-your-youtube-list/"><u>2024 Approved  Breakneck Broadcast  Channel Your YouTube List</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-quick-video-pace-adjustments-on-youtube-for-2024/"><u>Mastering Quick Video Pace Adjustments on YouTube for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-rhythm-and-reel-leveraging-premiere-pro-features-for-time-synchronized-video-editing/"><u>New In 2024, Rhythm and Reel Leveraging Premiere Pro Features for Time-Synchronized Video Editing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/top-tips-streaming-via-obs-directly-to-facebook-for-2024/"><u>Top Tips  Streaming via OBS Directly to Facebook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-micro-business-video-advertising-insights/"><u>[New] 2024 Approved  Micro-Business Video Advertising Insights</u></a></li>
+</ul></div>

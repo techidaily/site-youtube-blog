@@ -1,7 +1,7 @@
 ---
 title: "[New] Pause Unrequested YouTube Video Selections"
-date: 2024-06-20 14:57:45
-updated: 2024-06-21 12:15:33
+date: 2024-06-25T20:49:44.682Z
+updated: 2024-06-26T20:49:44.682Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/a55de6d667ce151e4f6994d9b6a4777fce149eccc
 
 ## Pause Unrequested YouTube Video Selections
 
-# YouTube Recommended Videos - Block the Videos I Don't Like
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Recommended Videos - Block the Videos I Don't Like ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -38,9 +36,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -48,9 +44,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -99,3 +93,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-to-youtube-adsense-optimization/"><u>[Updated] In 2024, The Ultimate Guide to YouTube AdSense Optimization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-navigating-hashtags-for-a-6-figure-view-spike-on-youtube/"><u>In 2024, Navigating Hashtags for a 6-Figure View Spike on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-list-10-costless-video-caption-extractors/"><u>2024 Approved  Ultimate List  10 Costless Video Caption Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastering-hash-tactics-for-thriving-gaming-vids/"><u>In 2024, Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-indulge-with-top-youtube-movies-guides/"><u>[Updated] Indulge with Top YouTube Movies Guides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oost-channels-to-partner-status-in-under-90-days-start-now-for-2024/"><u>[New] Boost Channels to Partner Status in Under 90 Days, Start Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-guide-to-digital-green-magic-comprecipate-free-lessons-from-4-masterful-channels-for-2024/"><u>The Ultimate Guide to Digital Green Magic  Comprecipate Free Lessons From 4 Masterful Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsights-into-youtube-shorts-business-model-for-2024/"><u>[New] Insights Into YouTube Shorts Business Model for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-the-ideal-youtube-playlist-an-easy-step-by-step-method-for-2024/"><u>[New] Crafting the Ideal YouTube Playlist  An Easy, Step-by-Step Method for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-pioneering-techniques-in-documentary-scripting/"><u>[New] In 2024, Pioneering Techniques in Documentary Scripting</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-reimagining-your-tiktok-visage-complete-profile-update-manual/"><u>[New] In 2024, Reimagining Your TikTok Visage  Complete Profile Update Manual</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-gameplay-with-switch-pro-a-compreran-guide-for-steam-gamers-for-2024/"><u>[Updated] Enhancing Gameplay with Switch Pro  A Compreran Guide for Steam Gamers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-stock-photos-their-journey-to-internet-fame/"><u>Top Stock Photos  Their Journey to Internet Fame</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-virtual-memoirs-best-tools-and-practices-for-downloading-twitter-content-for-2024/"><u>[Updated] Virtual Memoirs  Best Tools and Practices for Downloading Twitter Content for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-the-10-most-adorable-aesthetic-cartoon-characters-for-2024/"><u>New The 10 Most Adorable Aesthetic Cartoon Characters for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-8-windows-11-video-snatchers-unveiled-for-2024/"><u>Top 8 Windows 11 Video Snatchers Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-adobes-toolset-perfecting-your-youtube-uploads/"><u>[Updated] 2024 Approved  Adobe's Toolset  Perfecting Your YouTube Uploads</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-oneplus-ace-2v-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My OnePlus Ace 2V Location Is Wrong | Dr.fone</u></a></li>
+</ul></div>

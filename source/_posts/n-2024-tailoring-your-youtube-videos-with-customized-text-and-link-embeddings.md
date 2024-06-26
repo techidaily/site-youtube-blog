@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tailoring Your YouTube Videos with Customized Text & Link Embeddings"
-date: 2024-06-23 13:35:48
-updated: 2024-06-25 10:30:13
+date: 2024-06-25T20:57:22.122Z
+updated: 2024-06-26T20:57:22.122Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-perfection-streamlined-subtitlecc-implementation-on-youtube/"><u>[Updated] Video Perfection  Streamlined Subtitle/CC Implementation on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ding-finesse-imovie-videos-meeting-youtube-standards/"><u>Uploading Finesse  IMovie Videos Meeting YouTube Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/armonizing-horizons-easy-steps-for-sharing-soundtracks/"><u>[New] Harmonizing Horizons  Easy Steps for Sharing Soundtracks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-collaboration-for-effective-content-delivery/"><u>[New] In 2024, YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-investing-in-a-monthly-youtube-premium-worthwhile-for-2024/"><u>[New] Is Investing in a Monthly YouTube Premium Worthwhile for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>[New] How to Block YouTube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-your-clips-to-life-a-compreenased-way-to-post-on-youtube/"><u>[New] Bring Your Clips to Life  A Compreenased Way to Post on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-three-easy-ways-to-harvest-youtubes-default-iconography/"><u>[New] In 2024, Three Easy Ways to Harvest Youtube's Default Iconography</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/studio-to-stage-stream-your-mp3-tunes-on-youtube-for-2024/"><u>From Studio to Stage  Stream Your MP3 Tunes on YouTube for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-discover-the-best-open-worlds-today/"><u>In 2024, Discover the Best Open Worlds Today</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-blurring-backgrounds-a-visual-hideaway-guide/"><u>[Updated] Blurring Backgrounds  A Visual Hideaway Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-future-is-in-your-cloud-price-rankings-and-bargains-2024/"><u>The Future Is in Your Cloud  Price Rankings & Bargains 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-nokia-c22-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-google-pixel-fold-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Google Pixel Fold.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/melodies-with-a-twist-funny-tone-websites-listed/"><u>Melodies with a Twist  Funny Tone Websites Listed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-authentic-follower-acquisition-on-tiktok/"><u>[Updated] Authentic Follower Acquisition on TikTok</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-how-to-define-ai-video-wondershare-virbo-glossary/"><u>Updated In 2024, How to Define AI Video? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-richest-youtubers-for-2024/"><u>Top 10 Richest YouTubers for 2024</u></a></li>
+</ul></div>

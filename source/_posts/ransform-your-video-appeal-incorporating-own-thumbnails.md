@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Transform Your Video Appeal  Incorporating Own Thumbnails\""
-date: 2024-06-24 17:15:49
-updated: 2024-06-25 11:36:53
+date: 2024-06-25T20:18:25.019Z
+updated: 2024-06-26T20:18:25.019Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/ca38034074275621f4e2db5f63e60466f24745c23
 
 ## Transform Your Video Appeal: Incorporating Own Thumbnails
 
-# How To Add Custom Thumbnails to Your YouTube Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -87,7 +85,7 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 * After signing into YouTube with your Google account, click on your profile on the top right corner. Click on **YouTube Studio** from the drop-down menu.
 
-![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
+![YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
@@ -127,7 +125,7 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
-![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
+![YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -141,7 +139,7 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
-![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
+![YouTube Thumbnail:  Don’t Be Mysterious](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -171,7 +169,7 @@ You want to use colors that will help you stand out from the other search result
 
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
-![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
+![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -222,3 +220,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-creating-high-quality-youtube-ads-on-a-dime/"><u>[Updated] The Pathway to Creating High-Quality YouTube Ads on a Dime</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-art-of-multi-platform-broadcasting-in-the-digital-age/"><u>In 2024, The Art of Multi-Platform Broadcasting in the Digital Age</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ecode-youtube-shorts-a-complete-breakdown/"><u>[New] Decode YouTube Shorts  A Complete Breakdown</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omponents-that-lift-you-in-youtube-viewership-for-2024/"><u>The Components That Lift You in YouTube Viewership for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oney-multiplier-how-to-maximize-youtube-profits-with-mobile-viewers-for-2024/"><u>[New] Money Multiplier  How to Maximize YouTube Profits with Mobile Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/is-mukbang-and-how-to-make-mukbang-videos/"><u>What Is Mukbang and How to Make Mukbang Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/d-and-eye-catching-vlog-discussion-points-for-2024/"><u>Varied and Eye-Catching Vlog Discussion Points for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-popularity-how-to-make-a-youtube-hit-for-2024/"><u>[Updated] Unleashing Popularity  How to Make a YouTube Hit for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-ultimate-guide-to-profit-from-youtube-videos-2e-2024/"><u>[Updated] Your Ultimate Guide to Profit From Youtube Videos (2E 2024)</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-silence-to-sound-two-ways-to-fade-in-and-out-of-audio-in-final-cut-pro/"><u>In 2024, From Silence to Sound Two Ways to Fade In and Out of Audio in Final Cut Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-integrating-extra-footage-crafting-engaging-visual-narratives/"><u>[Updated] Integrating Extra Footage  Crafting Engaging Visual Narratives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/analyzing-social-media-giants-triller-vs-tiktok-max-156-chars/"><u>Analyzing Social Media Giants  Triller VS TikTok (Max 156 Chars)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-essential-webinar-tools-roundup/"><u>2024 Approved  Essential Webinar Tools Roundup</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-step-by-step-apowersoft-recording-techniques-with-an-overview-of-4-other-solutions/"><u>In 2024, Step-by-Step Apowersoft Recording Techniques with an Overview of 4 Other Solutions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-perfect-harmony-the-ultimate-guide-to-youtubes-anime-vids/"><u>2024 Approved  Perfect Harmony  The Ultimate Guide to Youtube's Anime Vids</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boost-your-posts-10-powerful-hashtags-you-cant-ignore/"><u>[New] Boost Your Posts  10 Powerful Hashtags You Can't Ignore</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-huawei-nova-y91-unlock-without-password-by-drfone-android/"><u>5 Solutions For Huawei Nova Y91 Unlock Without Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-apple-iphone-13-mini-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your Apple iPhone 13 mini</u></a></li>
+</ul></div>

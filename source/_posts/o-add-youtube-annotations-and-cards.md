@@ -1,7 +1,7 @@
 ---
 title: "How to Add YouTube Annotations and Cards?"
-date: 2024-06-23 18:26:29
-updated: 2024-06-24 10:15:26
+date: 2024-06-25T20:25:21.522Z
+updated: 2024-06-26T20:25:21.522Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-your-pathway-to-professional-looking-animated-gifs-online/"><u>[Updated] In 2024, Your Pathway to Professional-Looking Animated GIFs Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-your-soundtracks-the-best-free-youtube-to-wav-tools/"><u>Streamline Your Soundtracks  The Best Free YouTube to WAV Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[Updated] In 2024, Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-green-screen-revolution-access-comprehensive-tutorials-from-4-leading-youtube-educators/"><u>[New] 2024 Approved  The Green Screen Revolution  Access Comprehensive Tutorials From 4 Leading YouTube Educators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-profit-enabling-youtuber-earnings-via-mobile-devices-for-2024/"><u>[Updated] The Pathway to Profit  Enabling YouTuber Earnings via Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/anner-bliss-savor-your-complimentary-set-of-designs-for-2024/"><u>[New] Banner Bliss  Savor Your Complimentary Set of Designs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtubes-chief-revenue-generator/"><u>In 2024, YouTube’s Chief Revenue Generator</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-living-large-with-youtube-premium-the-inside-story/"><u>[Updated] 2024 Approved  Living Large with YouTube Premium  The Inside Story</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-14-pro-max-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 14 Pro Max in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/want-to-learn-how-to-trim-videos-in-premiere-pro-read-on-our-guide-will-help-you-trim-videos-with-this-timeline-based-video-editing-software-application-to-/"><u>Want to Learn How to Trim Videos in Premiere Pro. Read on; Our Guide Will Help You Trim Videos with This Timeline-Based Video Editing Software Application to Make Them Engaging to Viewers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sculpting-soundscapes-advanced-techniques-for-flawless-transition-sequences-audacity/"><u>[New] Sculpting Soundscapes  Advanced Techniques for Flawless Transition Sequences (Audacity)</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-ai-translation-wondershare-virbo-online/"><u>New In 2024, AI Translation | Wondershare Virbo Online</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-highlight-reel-creators-desktop-and-mobile-apps-for-2024/"><u>Updated Top Highlight Reel Creators Desktop and Mobile Apps for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-conducting-collaborative-discussions-in-a-hassle-free-manner-via-skype-across-operating-systems/"><u>[New] 2024 Approved  Conducting Collaborative Discussions in a Hassle-Free Manner via Skype Across Operating Systems</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-techniques-for-text-overlays-in-video-platforms-vimeo/"><u>[Updated] 2024 Approved  Techniques for Text Overlays in Video Platforms (Vimeo)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-creative-edge-pushing-boundaries-in-photography/"><u>[Updated] The Creative Edge  Pushing Boundaries in Photography</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-channeling-musical-charm-crafting-custom-playlists-on-youtube/"><u>[New] In 2024, Channeling Musical Charm  Crafting Custom Playlists on Youtube</u></a></li>
+</ul></div>

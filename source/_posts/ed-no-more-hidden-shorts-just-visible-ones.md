@@ -1,7 +1,7 @@
 ---
 title: "[Updated] No More Hidden Shorts, Just Visible Ones"
-date: 2024-06-22 10:57:28
-updated: 2024-06-24 10:37:20
+date: 2024-06-25T20:43:29.757Z
+updated: 2024-06-26T20:43:29.757Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,23 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-audience-expansion-strategies-that-honor-youtube-standards/"><u>In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtubes-monetary-system-monthly-or-quarterly/"><u>[New] In 2024, YouTube's Monetary System  Monthly or Quarterly?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-engaging-vlogger-subjects-each-day/"><u>[New] In 2024, Engaging Vlogger Subjects Each Day</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-enable-quiet-youtube-bgplay-for-iphone-and-android/"><u>In 2024, Enable Quiet YouTube BGPlay for iPhone & Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-artisans-approach-to-crafting-channel-identities/"><u>[Updated] The Artisan's Approach to Crafting Channel Identities</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-miniature-marketers-guide-to-video-promos-infographic/"><u>[New] In 2024, Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ap-into-endless-stock-imagery-through-favorite-4-youtube-vids/"><u>[New] Tap Into Endless Stock Imagery Through Favorite 4 Youtube Vids</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-exploring-streaming-options-vimeo-vs-youtubes-popularity/"><u>2024 Approved  Exploring Streaming Options  Vimeo vs YouTube's Popularity</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-optimizing-speed-on-vimeo-content/"><u>[New] In 2024, Optimizing Speed on Vimeo Content</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-a-visual-revolution-how-to-upgrade-your-snapchat-photos/"><u>[Updated] In 2024, A Visual Revolution  How to Upgrade Your Snapchat Photos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-blending-realms-a-guide-to-photomosaic-creation/"><u>[Updated] 2024 Approved  Blending Realms  A Guide to PhotoMosaic Creation</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-crafting-auditory-landscapes-the-artistic-synergy-between-film-edits-and-pianissimo-passages/"><u>In 2024, Crafting Auditory Landscapes The Artistic Synergy Between Film Edits and Pianissimo Passages</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-streamlined-savings-for-cloud-storage-costs-analysis/"><u>[Updated] Streamlined Savings for Cloud Storage Costs Analysis</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-top-10-craziest-tiktok-games-worth-playing/"><u>[Updated] Top 10 Craziest TikTok Games Worth Playing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pc-videography-leveraging-windows-hdr-for-2024/"><u>PC Videography  Leveraging Windows HDR for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-to-your-own-custom-arranged-music-library-on-youtube/"><u>[New] Navigating to Your Own Custom-Arranged Music Library on Youtube</u></a></li>
+</ul></div>

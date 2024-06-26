@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Personalize Your Youtube Watch Experience with Alerts & Notes for 2024"
-date: 2024-06-23 20:27:56
-updated: 2024-06-24 11:31:20
+date: 2024-06-25T21:02:36.182Z
+updated: 2024-06-26T21:02:36.182Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/tial-guide-the-8-best-zero-price-video-cutting-software/"><u>Essential Guide  The 8 Best Zero Price Video Cutting Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-hone-your-hashtag-game-tripled-traffic-6kplus-vistas/"><u>[Updated] In 2024, Hone Your Hashtag Game  Tripled Traffic, $6K+ Vistas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[New] In 2024, Mobile Filmmaking Tips  Designing Engaging YouTubes Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-online-monetization-mission-youtube-to-your-bank-for-2024/"><u>[Updated] The Online Monetization Mission  YouTube to Your Bank for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>Streamlining Creative Journey  Uploading iMovie Videos to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quantifying-mr-beasts-earnings-for-2024/"><u>[Updated] Quantifying Mr. Beast's Earnings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-video-popularity-12-key-strategies-unveiled/"><u>Elevate Video Popularity  12 Key Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eading-stock-tutorials-channel-roundup/"><u>[New] Leading Stock Tutorials  Channel Roundup</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-youtube-audio-library-you-wont-miss/"><u>Updated YouTube Audio Library You Wont Miss</u></a></li>
+<li><a href="https://techidaily.com/sign-docm-file-online-add-signature-to-docm-file-for-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>Sign .docm file Online - Add Signature to .docm file for Free</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-p55t-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from P55T</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-add-a-professional-touch-free-video-watermark-software/"><u>Updated Add a Professional Touch Free Video Watermark Software</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-mastering-your-discovoice-experience-with-the-best-free-tools-for-2024/"><u>[Updated] Mastering Your DiscoVoice Experience with the Best Free Tools for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo Y17s? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-from-square-to-wide-how-aspect-ratio-changes-your-youtube-videos-dynamics/"><u>Updated In 2024, From Square to Wide How Aspect Ratio Changes Your YouTube Videos Dynamics</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-infinix-smart-8-pro-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Infinix Smart 8 Pro by Name | Dr.fone</u></a></li>
+</ul></div>

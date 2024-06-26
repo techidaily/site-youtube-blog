@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Strategies to Avoid Pitfalls in Designing YouTube Thumbnails for 2024"
-date: 2024-06-23 20:20:52
-updated: 2024-06-24 11:23:48
+date: 2024-06-25T20:01:27.859Z
+updated: 2024-06-26T20:01:27.859Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/22c39789b5fe1ed667e7cca081a20115c82b1e475
 
 ## Strategies to Avoid Pitfalls in Designing YouTube Thumbnails
 
-# How To Make Good YouTube Banner - Dos and Don’ts
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Make Good YouTube Banner - Dos and Don’ts ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -51,7 +49,7 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
-![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+![YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 ## Part 2: Should I Use My Face?
 
@@ -71,7 +69,7 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ## Part 3: What Should I Write on My Banner?
 
-![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+![YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
 
@@ -91,7 +89,7 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
-![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+![YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
 
@@ -127,7 +125,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ## Touch Up YouTube Videos with Filmora
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -154,3 +152,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-infographic-spotlight-on-emerging-23-trends/"><u>[New] In 2024, Infographic Spotlight on Emerging '23 Trends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-search-patterns-to-screenplay-crafting-videos-from-google-data/"><u>2024 Approved  From Search Patterns to Screenplay  Crafting Videos From Google Data</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tips-for-successful-youtube-audios/"><u>[New] In 2024, Tips for Successful Youtube Audios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ber-yield-the-leaders-with-the-largest-audiences/"><u>YouTuber Yield  The Leaders with the Largest Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egal-download-how-to-safely-transfer-youtube-to-mp4-for-2024/"><u>[New] Legal Download  How to Safely Transfer YouTube to MP4 for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streaming-smarts-engaging-viewers-on-multiple-networks/"><u>[Updated] Streaming Smarts  Engaging Viewers on Multiple Networks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-seamless-video-integration-on-youtube-platform/"><u>In 2024, Seamless Video Integration on YouTube Platform</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-transform-your-auditory-perception-with-internet-based-audio-modification-tools-for-2024/"><u>Updated Transform Your Auditory Perception with Internet-Based Audio Modification Tools for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-meizu-21-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-best-websites-for-making-lyric-videos-free-and-paid-for-2024/"><u>Updated The Best Websites for Making Lyric Videos (Free and Paid) for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-breaking-boundaries-weaving-single-photos-into-masterpieces/"><u>In 2024, Breaking Boundaries  Weaving Single Photos Into Masterpieces</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-find-your-next-favorite-free-video-player-in-our-top-12-picks-pcmobile/"><u>2024 Approved  Find Your Next Favorite Free Video Player in Our Top 12 Picks (PC/Mobile)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-oneplus-phone-screen-by-drfone-android/"><u>How Can We Unlock Our OnePlus Phone Screen?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-tips-for-youtube-short-pitfall-prevention/"><u>[Updated] In 2024, Expert Tips for YouTube Short Pitfall Prevention</u></a></li>
+</ul></div>

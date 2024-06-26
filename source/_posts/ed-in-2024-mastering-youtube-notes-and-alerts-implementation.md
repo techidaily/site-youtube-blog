@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering YouTube Notes & Alerts Implementation"
-date: 2024-06-24 15:54:55
-updated: 2024-06-26 11:56:21
+date: 2024-06-25T20:31:51.686Z
+updated: 2024-06-26T20:31:51.686Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-professional-level-editing-at-zero-price-8-exceptional-software-picks/"><u>In 2024, Professional-Level Editing at Zero Price  8 Exceptional Software Picks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-12-flip-screen-cams-for-dynamic-videography/"><u>[Updated] In 2024, Top 12 Flip-Screen Cams for Dynamic Videography</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hould-you-opt-for-a-compreayer-package-on-youtube-with-premium-features/"><u>[New] Should You Opt for a Compreayer Package on YouTube with Premium Features?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>[Updated] 2024 Approved  Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/d-and-eye-catching-vlog-discussion-points-for-2024/"><u>Varied and Eye-Catching Vlog Discussion Points for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-timed-tweets-mastering-youtubes-best-post-days/"><u>[New] 2024 Approved  Timed Tweets  Mastering YouTube's Best Post Days</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-direct-youtube-video-capture-guide/"><u>In 2024, Direct YouTube Video Capture Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-to-stellar-custom-shorts-thumbnails/"><u>[Updated] Step-by-Step to Stellar Custom Shorts Thumbnails</u></a></li>
+<li><a href="https://some-skills.techidaily.com/strategic-spending-to-skyrocket-your-video-views-for-2024/"><u>Strategic Spending to Skyrocket Your Video Views for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-video-conferencing-enhance-scene-details-upward/"><u>[New] Mastering Video Conferencing  Enhance Scene Details Upward</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-itel-a60-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Itel A60 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-communicating-with-authority-power-words-in-marketing/"><u>2024 Approved  Communicating with Authority  Power Words in Marketing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-companion-for-creating-unique-metaverse-avatars/"><u>In 2024, The Ultimate Companion for Creating Unique Metaverse Avatars</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-perfected-presence-the-art-of-blurring-conference-backdrops/"><u>[New] 2024 Approved  Perfected Presence  The Art of Blurring Conference Backdrops</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-t2-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo T2 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-masterclass-guide-top-free-apps-for-iphone-and-ipad-edits/"><u>[New] Masterclass Guide  Top Free Apps for iPhone & iPad Edits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebook-video-production-made-easy-with-these-20-free-apps/"><u>[Updated] 2024 Approved  Facebook Video Production Made Easy with These 20 Free Apps</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"Boosting Streams  Switching to AV1 in YouTube's Settings\""
-date: 2024-06-23 16:30:56
-updated: 2024-06-24 12:50:20
+date: 2024-06-25T20:33:32.725Z
+updated: 2024-06-26T20:33:32.725Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,26 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-seamless-addition-of-youtube-video-selections-for-sites/"><u>In 2024, Seamless Addition of YouTube Video Selections for Sites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>[Updated] 2024 Approved  Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transcribe-without-breaking-the-bank-learn-how-with-our-free-guide/"><u>[New] In 2024, Transcribe Without Breaking the Bank  Learn How with Our Free Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-viral-flair-identifying-powerful-tags-for-youtube-short-success/"><u>In 2024, Viral Flair  Identifying Powerful Tags for YouTube Short Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-truth-behind-asmr-video-enthusiasm-for-2024/"><u>[Updated] The Truth Behind ASMR Video Enthusiasm for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-tier-video-transcription-aid-automated/"><u>[New] In 2024, Top-Tier Video Transcription Aid, Automated</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-step-by-step-guide-to-captivating-youtube-live-thumbnails/"><u>In 2024, Step-By-Step Guide to Captivating YouTube Live Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings-for-2024/"><u>[New] Ensuring Correct Ad Revenue  A Comprehensive Guide to YT Channel Earnings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis-for-2024/"><u>[Updated] Unravel the Revenue Riddle  Google's Guided Triple Steps to YouTube Income Analysis for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-shorts-earning-strategies-what-you-need-how-much-you-can-make/"><u>Youtube Shorts Earning Strategies  What You Need, How Much You Can Make</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-iphone-13-pro-max-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your iPhone 13 Pro Max</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/perfecting-your-videos-the-power-of-proper-thumbnails/"><u>Perfecting Your Videos  The Power of Proper Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harness-the-power-of-keywords-top-selection-software-unveiled-for-2024/"><u>[New] Harness the Power of Keywords  Top Selection Software Unveiled for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quick-red-eye-photo-fixes-on-your-iphone-no-money-needed-for-2024/"><u>Quick Red-Eye Photo Fixes on Your iPhone, No Money Needed for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/creative-composition-collage-tips-liven-up-your-surroundings/"><u>Creative Composition Collage Tips  Liven Up Your Surroundings</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Change/Add Location Filters on Snapchat For your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-potential-your-guide-to-effective-improvements-for-2024/"><u>Unlocking Potential  Your Guide to Effective Improvements for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-irecorder-unpacked-what-you-need-to-know/"><u>[New] IRecorder Unpacked  What You Need to Know</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/master-image-deformation-techniques-for-2024/"><u>Master Image Deformation Techniques for 2024</u></a></li>
+</ul></div>

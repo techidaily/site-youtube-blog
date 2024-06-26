@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlock Video Potential  Premium Lens Selection Tips\""
-date: 2024-06-23 22:41:43
-updated: 2024-06-25 11:46:56
+date: 2024-06-25T20:17:27.300Z
+updated: 2024-06-26T20:17:27.300Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
 ## Unlock Video Potential: Premium Lens Selection Tips
 
-# Best Camera Lenses for YouTube
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best Camera Lenses for YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -89,35 +87,31 @@ Here are a couple great lenses that might be good fits for you and your YouTube 
 | **Tamron SP AF 17-50mm f/2.8**               | Standard Zoom | $299      | f/2.8        | 17 -50mm         |
 | **Sony 30mm f/3.5 Macro**                    | Macro         | $278      | f/3.5        | 30mm             |
 
-#### 1.[Canon EF-S 10-18mm f/4.5-5.6 IS STM Lens](https://www.amazon.com/Canon-EF-S-10-18mm-4-5-5-6-Lens/dp/B00K899B9Y/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1439039090&sr=8-1&keywords=Canon+10-18mm+f/4.5-5.6&linkCode=sl1&tag=omnideals-20&linkId=81cf63202a546809712746fdac765188&linkCode=w61&imprToken=ZJIXM-O6nkoYz.L)
+#### 1. Canon EF-S 10-18mm f/4.5-5.6 IS STM Lens
 
 Canon released this lens in 2014 and shortly after it has gained the reputation of one of the most reliable wide to **ultra-wide lenses** for Canon cameras. Like most STM lenses, it offers incredibly **fast autofocus technology** that makes it a great choice for fast-paced action videos. The lens is equipped with an **image stabilization system** which guarantees that your videos are going to remain **sharp** even if the camera wasn't perfectly still while you were recording. Somewhat smaller aperture range makes this lens **poor choice for low light scenes**, although you can get decent results if you manage to keep the camera still.
 
-#### 2. [Rokinon 8mm Ultra Wide f/3.5 Fisheye Lens](https://www.amazon.com/Rokinon-Fisheye-Aperture-Exposure-AE8M-N/dp/B006O7158O/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1439039440&sr=8-2&keywords=Rokinon+8mm+f/3.5+Lens&linkCode=sl1&tag=omnideals-20&linkId=49cad7e243ca97acbda08212482dcbe5&linkCode=w61&imprToken=ZJIXM-O)
+#### 2. Rokinon 8mm Ultra Wide f/3.5 Fisheye Lens
 
 **Outdoor videos** look much cooler when they are recorded with a **wide-angle lens** because the wider field of view enables you to capture more space in a shot. **Fisheye lenses** were made popular by GoPro cameras because they make the videos look more fun while producing high image quality. Rokinon 8mm lens allows you to **adjust focus and aperture manually** so you can fine-tune your shot before hitting the record button. To make things even better this model is **compatible with a wide range of cameras including Pentax, Canon or Nikon DSLRs.** It has a relatively **fast aperture** that enables it to deliver **solid performances under low light conditions**.
 
-#### 3.[Canon EF 50mm f/1.8 STM Lens](https://www.amazon.com/Canon-50mm-1-8-STM-Lens/dp/B00X8MRBCW/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-1&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=cd09588b67ac10e4e960ea45c87b3f06&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slotNum=4)
-
-![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
+#### 3. Canon EF 50mm f/1.8 STM Lens ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
 
-#### 4.[Canon EF 135mm f/2L USM Lens](https://www.amazon.com/Canon-135mm-USM-Lens-Cameras/dp/B000053HC5/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1439038618&sr=8-1&keywords=Canon+EF+135mm+f/2+L+USM+Lens&linkCode=sl1&tag=omnideals-20&linkId=3ef39fe6c476b0dab7cf573810e16103&linkCode=w61&imprToken=ZJIXM-O6nkoY)
+#### 4. Canon EF 135mm f/2L USM Lens
 
 Recording **moving objects** from a distance requires you to have a lens that allows you to smoothly track their movements while keeping the subject in focus. The Canon EF 135mm f2/L USM lens is perhaps one of the best telephoto lenses on the market because it uses L glass that is widely accepted as the best in the industry. The Canon's telephoto lens is compatible with ASP-C and Full Frame EF mount cameras. Keep in mind that this is also a prime lens and you can't increase or decrease its focal length, but even so, it is a perfect choice for documentary-style videos.
 
-#### 5.[Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens](https://www.amazon.com/Tamron-17-50mm-Aspherical-Canon-Cameras/dp/B000FZ3FY8)
-
-![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
+#### 5. Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
 
-#### 6.[Sony 30mm f/3.5 Macro](https://www.bhphotovideo.com/c/product/791322-REG/Sony%5FSEL30M35%5F30mm%5Ff%5F3%5F5%5FWide%5FAngle%5FLens.html)
+#### 6. Sony 30mm f/3.5 Macro
 
 All Sony's APS-C format E mount cameras are compatible with this multi-purpose lens. When mounted the 30mm lens provides a 45mm focal length equivalent, which means that you can use it to take macro shots of products or to record medium or close-up shots. This is a prime lens, so changing the focal length isn't really an option, but the 1:1 life-size magnification, as well as the 0.9-inch working distance, allow you to get close to the subjects in the video. The aperture range is between f/3.5 and f/22 which means that you can choose how shallow the depth of field in your shot should be.
 
@@ -146,3 +140,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-thriving-on-short-video-profits-youtubes-money-making-guide/"><u>In 2024, Thriving on Short Video Profits  YouTube's Money-Making Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-elevate-everyday-youtubes-finest-yoga-influencers/"><u>[New] In 2024, Elevate Everyday - YouTube's Finest Yoga Influencers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-approach-to-finding-youtube-collaborators-for-2024/"><u>[New] Step-by-Step Approach to Finding YouTube Collaborators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-precision-of-portioning-video-length-optimization-on-youtube/"><u>[Updated] The Precision of Portioning  Video Length Optimization on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-prominence-mastery-a-comprehensive-youtube-guide-for-2024/"><u>[Updated] Channel Prominence Mastery  A Comprehensive YouTube Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/erated-steps-to-rearrange-youtube-music-ordering-for-2024/"><u>Accelerated Steps to Rearrange YouTube Music Ordering for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rookie-riches-economical-channels-for-monetization/"><u>[Updated] 2024 Approved  Rookie Riches  Economical Channels for Monetization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[New] In 2024, Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-overcoming-obscured-viewing-fix-for-youtube/"><u>In 2024, Overcoming Obscured Viewing  Fix for Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/your-viewing-muscles-handling-multiple-youtube-videos/"><u>Flex Your Viewing Muscles  Handling Multiple YouTube Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/toggle-your-youtube-video-with-picture-in-picture-on-ios/"><u>Toggle Your YouTube Video with Picture-in-Picture on iOS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-redmi-note-12-pro-4g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Redmi Note 12 Pro 4G Pattern Lock Screen</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-right-platform-for-content-creation-podcast-or-video/"><u>[New] The Right Platform for Content Creation? Podcast or Video?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-paving-the-path-for-creativity-turning-gifs-to-stickers-on-all-social-platforms/"><u>In 2024, Paving the Path for Creativity  Turning GIFS to Stickers on All Social Platforms</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-11-pro-max-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 11 Pro Max to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-avoiding-invisibility-strategies-for-effective-use-of-youtubes-featured-channels/"><u>2024 Approved  Avoiding Invisibility  Strategies for Effective Use of Youtube's Featured Channels</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-process-of-batched-tiktok-content-extraction/"><u>In 2024, Unveiling the Process of Batched TikTok Content Extraction</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unifying-viewers-across-youtube-and-twitch-platforms/"><u>In 2024, Unifying Viewers Across YouTube & Twitch Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pixel-perfection-combining-computer-photos/"><u>[New] Pixel Perfection  Combining Computer Photos</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-how-to-remove-background-noise-and-mute-clip-in-premiere-pro/"><u>New How to Remove Background Noise and Mute Clip in Premiere Pro</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Positive Persuasion  The Secret to Attracting Followers for 2024\""
-date: 2024-06-15 11:10:12
-updated: 2024-06-18 11:29:36
+date: 2024-06-25T21:13:40.915Z
+updated: 2024-06-26T21:13:40.915Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a
 
 ## Positive Persuasion: The Secret to Attracting Followers
 
-# How to Get People to Subscribe to Your YouTube Channel
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Get People to Subscribe to Your YouTube Channel ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -52,7 +50,7 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 #### Step 2: Get to The Point Quickly
 
@@ -62,7 +60,7 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -101,3 +99,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unveiling-the-mystery-of-proper-lighting-in-youtube-vids/"><u>[New] 2024 Approved  Unveiling the Mystery of Proper Lighting in YouTube Vids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ntly-professional-rapidly-crafting-valorant-game-imagery/"><u>Instantly Professional  Rapidly Crafting Valorant Game Imagery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-issues-with-youtube-shorts-thumbnails-for-2024/"><u>Common Issues with YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-tutorial-for-youtube-studio-editor-use-for-2024/"><u>[Updated] The Essential Tutorial for YouTube Studio Editor Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-resolving-the-disappearance-of-shorts-thumbnails/"><u>[New] In 2024, Resolving the Disappearance of Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-early-birds-guide-to-youtube-skip-these-8-potential-pitfalls-for-2024/"><u>[Updated] The Early Bird's Guide to YouTube  Skip These 8 Potential Pitfalls for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-superior-image-quality-the-power-of-youtubes-av1-settings-for-2024/"><u>[Updated] Superior Image Quality  The Power of YouTube's AV1 Settings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-creating-engaging-stream-content-shorts/"><u>[New] In 2024, Creating Engaging Stream Content Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimize-online-presence-video-embellishment-with-logos-and-watermarks-for-2024/"><u>[Updated] Optimize Online Presence  Video Embellishment with Logos and Watermarks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-looping-iphones-videos-effortlessly-for-2024/"><u>[New] Step-by-Step  Looping iPhones Videos Effortlessly for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-audio-enhancement-for-professional-instagram-posts/"><u>In 2024, Audio Enhancement for Professional Instagram Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-disabling-push-notifications-for-commercial-content/"><u>[Updated] In 2024, Disabling Push Notifications for Commercial Content</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-2024-approved-12-dubbed-anime-websites-to-watch-for-free/"><u>New 2024 Approved 12 Dubbed Anime Websites to Watch for Free</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-your-companion-guide-navigating-the-world-of-mobizen-recorders-for-2024/"><u>[Updated] Your Companion Guide  Navigating the World of Mobizen Recorders for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-compilation-budget-friendly-editing-tools-for-2024/"><u>The Ultimate Compilation  Budget-Friendly Editing Tools for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-celebrated-selections-honorable-websites-for-securing-snapchat-alerts/"><u>In 2024, Celebrated Selections  Honorable Websites for Securing Snapchat Alerts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-sharing-twitch-links-on-your-fb-page/"><u>2024 Approved  Seamless Sharing  Twitch Links on Your FB Page</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-boundaries-of-visual-creativity-using-windows-11-tools/"><u>[Updated] Exploring the Boundaries of Visual Creativity  Using Windows 11 Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-art-of-time-manipulation-in-final-cut-pro-x-for-2024/"><u>Updated The Art of Time Manipulation in Final Cut Pro X for 2024</u></a></li>
+</ul></div>

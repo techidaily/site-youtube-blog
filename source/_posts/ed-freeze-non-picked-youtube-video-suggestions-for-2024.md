@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Freeze Non-Picked YouTube Video Suggestions for 2024\""
-date: 2024-06-23 17:38:19
-updated: 2024-06-26 10:20:10
+date: 2024-06-25T20:35:43.829Z
+updated: 2024-06-26T20:35:43.829Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978
 
 ## Freeze Non-Picked YouTube Video Suggestions
 
-# YouTube Recommended Videos - Block the Videos I Don't Like
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Recommended Videos - Block the Videos I Don't Like ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -38,9 +36,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -48,9 +44,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -99,3 +93,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-resource-on-affordable-webinars-on-youtube/"><u>[New] In 2024, The Ultimate Resource on Affordable Webinars on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oost-channels-to-partner-status-in-under-90-days-start-now-for-2024/"><u>[New] Boost Channels to Partner Status in Under 90 Days, Start Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ise-and-challenges-of-video-streaming-profits/"><u>The Rise and Challenges of Video Streaming Profits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reach-audience-zenith-peak-watch-timings-uncovered-for-2024/"><u>[Updated] Reach Audience Zenith - Peak Watch Timings Uncovered for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-guide-to-finding-the-right-youtube-keywords-for-2024/"><u>[New] The Ultimate Guide to Finding the Right YouTube Keywords for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-speedy-transformation-from-pixels-to-polished-youtube-thumbnails-for-2024/"><u>[Updated] Speedy Transformation  From Pixels to Polished YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-selecting-your-digital-stage-the-comparative-analysis-of-igtv-and-youtube-for-2024/"><u>[Updated] Selecting Your Digital Stage  The Comparative Analysis of IGTV & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ate-to-noteworthy-youtube-commentaries/"><u>Navigate to Noteworthy YouTube Commentaries</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevating-your-gameplay-on-youtube-with-these-essential-tags-for-2024/"><u>[Updated] Elevating Your Gameplay on YouTube with These Essential Tags for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/standing-out-on-the-tiktok-stage-unique-pfp-concepts-and-strategies-for-2024/"><u>Standing Out on the TikTok Stage  Unique PFP Concepts and Strategies for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-metaverse-versus-omniverse-landscapes/"><u>In 2024, Exploring Metaverse Versus Omniverse Landscapes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-boosting-video-management-creating-an-effective-youtube-watch-later-list/"><u>[Updated] In 2024, Boosting Video Management  Creating an Effective YouTube Watch Later List</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-ignite-engagement-on-tiktok-explore-the-best-20-caption-ideas/"><u>[Updated] In 2024, Ignite Engagement on TikTok - Explore the Best 20 Caption Ideas</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a54-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A54 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-instagrams-visual-feast-integrating-audio-effects-for-2024/"><u>Elevate Instagram's Visual Feast  Integrating Audio Effects for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-apple-iphone-11-pro-max-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/economical-dslrs-for-the-cost-conscious/"><u>Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-comprerante-snapchat-content-tips-for-mobile-recording-success/"><u>[New] 2024 Approved  Comprerante Snapchat Content  Tips for Mobile Recording Success</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-the-core-inside-apples-m1-innovation-for-2024/"><u>Exploring the Core  Inside Apple’s M1 Innovation for 2024</u></a></li>
+</ul></div>

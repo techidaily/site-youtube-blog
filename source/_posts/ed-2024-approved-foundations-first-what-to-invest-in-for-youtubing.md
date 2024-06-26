@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Foundations First  What To Invest In for YouTubing\""
-date: 2024-06-23 23:35:31
-updated: 2024-06-25 11:13:58
+date: 2024-06-25T21:15:58.920Z
+updated: 2024-06-26T21:15:58.920Z
 tags:
   - ai video
   - ai youtube
@@ -82,9 +82,7 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-## Smartphone Camera Gear
-
-![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+## Smartphone Camera Gear ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -121,3 +119,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-making-yields-with-content-the-creators-money-map-for-2024/"><u>[Updated] Making Yields with Content  The Creator's Money Map for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-your-soundtracks-the-best-free-youtube-to-wav-tools/"><u>Streamline Your Soundtracks  The Best Free YouTube to WAV Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reliable-steps-toward-attaining-safe-and-ethical-one-million-follower-status-for-2024/"><u>[Updated] Reliable Steps Toward Attaining Safe and Ethical One-Million Follower Status for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-no-charge-frame-by-frame-youtube-tutorial/"><u>In 2024, The Ultimate No-Charge, Frame-by-Frame YouTube Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-channel-finale-strategy-plus-best-templates-and-makers-for-2024/"><u>[Updated] The Ultimate Channel Finale Strategy + Best Templates & Makers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cket-subscribers-and-engagement-top-12-video-promotion-tactics/"><u>Skyrocket Subscribers and Engagement - Top 12 Video Promotion Tactics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-filmmaking-made-simple-a-smartphone-guide-to-youtube-thumbnails/"><u>[New] In 2024, Filmmaking Made Simple  A Smartphone Guide to YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-the-top-6-favorite-short-form-video-download-tools/"><u>[New] In 2024, Unveiling the Top 6 Favorite Short-Form Video Download Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-key-aspects-to-consider-when-sizing-your-youtube-thumbnail/"><u>[New] 5 Key Aspects to Consider When Sizing Your YouTube Thumbnail</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-income-mastering-short-video-markets/"><u>[New] Maximizing Income  Mastering Short Video Markets</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-14-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi 14 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-motorola-edge-40-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Motorola Edge 40 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-lava-blaze-2-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Lava Blaze 2 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-capture-facebook-videos-like-a-pro-select-the-best-firefox-addons-and-downloaders/"><u>In 2024, Capture Facebook Videos Like a Pro  Select the Best Firefox Addons & Downloaders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-of-the-best-curated-list-of-spectacular-offline-ios-titles-for-2024/"><u>[New] Best of the Best  Curated List of Spectacular Offline iOS Titles for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-quick-fixes-to-keep-tiktok-sound-off-a-step-by-step-approach-for-2024/"><u>Updated Quick Fixes to Keep TikTok Sound Off A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-fix-chromium-and-youtube-streams/"><u>[New] In 2024, Fix  Chromium and YouTube Streams</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-leading-video-conference-software-picks/"><u>2024 Approved  Leading Video-Conference Software Picks</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-xiaomi-redmi-12-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Xiaomi Redmi 12 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-mystery-of-off-facebook-activity-what-to-know-and-do/"><u>In 2024, The Mystery of Off-Facebook Activity  What to Know & Do</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Quick YouTube Comment Removal Techniques"
-date: 2024-06-23 19:31:51
-updated: 2024-06-24 10:33:29
+date: 2024-06-25T20:04:27.260Z
+updated: 2024-06-26T20:04:27.260Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/744014ffd50adb1d07a7a2940727b9c6e249d35c9
 
 ## Mastering Quick YouTube Comment Removal Techniques
 
-# Deleting YouTube Comments
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Deleting YouTube Comments ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -40,7 +38,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +61,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -101,7 +99,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -110,15 +108,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -149,3 +147,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-exciting-conversation-starter-ideas-for-2024/"><u>[Updated] Exciting Conversation Starter Ideas for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[New] In 2024, Creating Cash Flow on YouTube  An Ad-Free Blueprint for Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-tagging-101-for-better-engagement/"><u>In 2024, YouTube Tagging 101 for Better Engagement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-fixed-easily-accessible-shorts-on-youtube/"><u>[Updated] Fixed  Easily Accessible Shorts on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/onfirming-youtube-ad-revenue-accrual-for-2024/"><u>[New] Confirming YouTube Ad Revenue Accrual for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-blueprint-for-money-making-for-2024/"><u>Gamer’s Blueprint for Money-Making for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-transform-your-content-3-effective-techniques-for-youtube-reaction-magic/"><u>2024 Approved  Transform Your Content  3 Effective Techniques for YouTube Reaction Magic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-direct-transfer-path-youtube-content-to-dailymotion-hub/"><u>[Updated] Direct Transfer Path  YouTube Content to Dailymotion Hub</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-mini-drones-for-enthusiasts/"><u>2024 Approved  Premium Mini-Drones for Enthusiasts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-expression-a-gallery-of-stunning-video-themes-for-tiktok/"><u>Elevate Your Expression  A Gallery of Stunning Video Themes for TikTok</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-high-dynamic-range-with-image-curving-for-2024/"><u>Mastering High Dynamic Range with Image Curving for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-experts-guide-to-effective-webinars-for-2024/"><u>[Updated] Expert's Guide to Effective Webinars for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-unveiling-social-medias-gastronomic-waves-for-2024/"><u>[Updated] Unveiling Social Media's Gastronomic Waves for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-11-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 11 Without Previous Owner?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-guide-to-kinemaster-mastery-and-excellent-online-alternatives/"><u>The Ultimate Guide to KineMaster Mastery & Excellent Online Alternatives</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-tecno-pop-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-free-3d-animation-tools-for-android-and-iphone-a-comprehensive-guide/"><u>New 2024 Approved Free 3D Animation Tools for Android and iPhone A Comprehensive Guide</u></a></li>
+</ul></div>

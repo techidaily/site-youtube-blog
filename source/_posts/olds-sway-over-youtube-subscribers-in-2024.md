@@ -1,7 +1,7 @@
 ---
 title: "Who Holds Sway Over YouTube Subscribers, In 2024"
-date: 2024-06-23 21:14:42
-updated: 2024-06-25 11:51:36
+date: 2024-06-25T20:45:37.348Z
+updated: 2024-06-26T20:45:37.348Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/d37722b399ead697bedbcc110ba522ecee9e46479
 
 ## Who Holds Sway Over YouTube Subscribers?
 
-# YouTube Subscriber Chart - 5 Most Subscribed YouTuber
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Subscriber Chart - 5 Most Subscribed YouTuber ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -50,33 +48,25 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-### 1\.  PewDiePie
-
-![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+### 1\.  PewDiePie ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-###  2\.  HolaSoyGerman
-
-![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+###  2\.  HolaSoyGerman ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-###  3\.  ElrubiusOMG
-
-![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+###  3\.  ElrubiusOMG ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-###  4\.  Smosh
-
-![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+###  4\.  Smosh ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -84,9 +74,7 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-### 5\.  Fernanfloo
-
-![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+### 5\.  Fernanfloo ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -123,3 +111,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/t-advice-for-staying-copyright-compliant-online-for-2024/"><u>Expert Advice for Staying Copyright Compliant Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>[Updated] YouTube Subscriber Awards The Play Button Awards for Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-orderly-path-to-youtubes-hidden-treasure-troves/"><u>[Updated] In 2024, Orderly Path to YouTube's Hidden Treasure Troves</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-playlist-creation-on-youtube-easily-for-2024/"><u>Navigating Playlist Creation on YouTube Easily for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rclass-in-time-the-top-10-youtube-channels-for-history-students-for-2024/"><u>Masterclass in Time  The Top 10 YouTube Channels For History Students for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-financial-framework-of-youtube-snippet-creation/"><u>[New] The Financial Framework of YouTube Snippet Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-the-magic-of-capturing-youtube-content-the-no-cost-way/"><u>Unlock the Magic of Capturing YouTube Content - The No-Cost Way</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/youtube-download-methods-without-apps/"><u>Free YouTube Download Methods Without Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategic-playlist-formation-your-guide-to-youtube-mastery/"><u>[New] In 2024, Strategic Playlist Formation  Your Guide to YouTube Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-maximize-your-youtube-yields-small-channel-sponsorship-strategies/"><u>[New] 2024 Approved  Maximize Your YouTube Yields  Small Channel Sponsorship Strategies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-access-to-xps-movie-making-tools-for-2024/"><u>Quick Access to XP's Movie Making Tools for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/audiophiles-guide-to-mp3-enhancement-fundamental-strategies/"><u>Audiophiles Guide to MP3 Enhancement Fundamental Strategies</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/essential-webinar-tools-roundup/"><u>Essential Webinar Tools Roundup</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-infinix-smart-7-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Infinix Smart 7? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-best-9-french-video-translators-online-and-download-options-for-2024/"><u>New Best 9 French Video Translators Online and Download Options for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-transferring-photos-and-videos-from-one-idevice-to-another/"><u>[Updated] Transferring Photos & Videos From One iDevice to Another</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-azure-profile-snapshot-analysis-resolution-codec-timeframe/"><u>[Updated] In 2024, AZURE Profile Snapshot Analysis  Resolution, Codec, Timeframe</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-data-from-iphone-7-plus-using-stellar-data-recovery-for-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Data from iPhone 7 Plus using Stellar Data Recovery for iPhone? | Stellar</u></a></li>
+</ul></div>

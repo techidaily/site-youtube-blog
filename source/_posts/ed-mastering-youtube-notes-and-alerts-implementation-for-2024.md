@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering YouTube Notes & Alerts Implementation for 2024"
-date: 2024-06-22 21:36:36
-updated: 2024-06-24 12:17:45
+date: 2024-06-25T21:04:13.732Z
+updated: 2024-06-26T21:04:13.732Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/rief-snippet-analysis-for-beginners-for-2024/"><u>[New] Brief Snippet Analysis for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/er-massive-content-views-on-youtube-efficiently-for-2024/"><u>Conquer Massive Content Views on YouTube Efficiently for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-transformative-beauty-tutorials-for-everyone/"><u>In 2024, Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/emier-sci-tech-vloggers-for-enlightened-learning-for-2024/"><u>15 Premier Sci-Tech Vloggers for Enlightened Learning for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-the-secrets-to-supervised-simultaneous-streams/"><u>[New] In 2024, Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-white-label-microphones-at-a-wallet-wise-wage-for-2024/"><u>[Updated] White-Label Microphones at a Wallet-Wise Wage for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-top-viewers-playlist-on-youtube-history-for-2024/"><u>[Updated] Ultimate Top Viewers' Playlist on YouTube History for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nary-composer-sensory-media-masterpiece-for-2024/"><u>Visionary Composer  Sensory Media Masterpiece for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-best-applications-for-crafting-dynamic-video-entrances/"><u>[Updated] 2024 Approved  Best Applications for Crafting Dynamic Video Entrances</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-dive-into-the-future-of-branding-with-these-10-igtv-ideas-for-2024/"><u>[Updated] Dive Into the Future of Branding with These 10 IGTV Ideas for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-meme-creation-at-its-peak-10-templates-unveiled/"><u>[New] Meme Creation at Its Peak  #10 Templates Unveiled</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/android-essentials-the-most-popular-apps-you-need/"><u>Android Essentials The Most Popular Apps You Need</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-standout-youtube-thumbnails-with-ease/"><u>[Updated] 2024 Approved  Crafting Standout YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/launching-effective-charity-challenges-and-contests-online-for-2024/"><u>Launching Effective Charity Challenges and Contests Online for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tweeting-visuals-integrating-youtube-and-snapchat/"><u>In 2024, Tweeting Visuals  Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-fashionable-pfps-on-discord-platform/"><u>[Updated] 2024 Approved  Step-By-Step Guide to Fashionable Pfps on Discord Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-honor-90-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Honor 90 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/refine-your-iphone-hdri-expert-tips-for-clearer-results-in-premiere-pro-for-2024/"><u>Refine Your iPhone HDRI  Expert Tips for Clearer Results in Premiere Pro for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-expanding-visual-presence-tiktoks-head-dilation-methods/"><u>In 2024, Expanding Visual Presence  TikTok's Head Dilation Methods</u></a></li>
+</ul></div>

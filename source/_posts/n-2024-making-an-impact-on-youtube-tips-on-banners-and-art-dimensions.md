@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Making an Impact on YouTube  Tips on Banners and Art Dimensions\""
-date: 2024-06-22 10:57:29
-updated: 2024-06-25 11:12:42
+date: 2024-06-25T20:34:28.553Z
+updated: 2024-06-26T20:34:28.553Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -73,9 +67,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -85,9 +77,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -149,3 +139,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-strategies-how-to-create-stellar-youtube-shorts/"><u>[New] In 2024, Step-by-Step Strategies  How to Create Stellar YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-youtube-creator-summit-a-getaway-for-top-talent/"><u>[New] In 2024, The YouTube Creator Summit - A Getaway for Top Talent</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-definitive-users-manual-for-youtube-tv/"><u>[New] The Definitive User's Manual for YouTube TV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/is-mukbang-and-how-to-make-mukbang-videos/"><u>What Is Mukbang and How to Make Mukbang Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-getting-started-on-youtube-setting-up-and-generating-income/"><u>[New] In 2024, Getting Started on YouTube  Setting Up & Generating Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-revealing-the-identity-of-viewers-on-youtube/"><u>[New] In 2024, Revealing the Identity of Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-spotlight-on-the-top-8-authentic-video-promotion-methods/"><u>[New] In 2024, Spotlight on the Top 8 Authentic Video Promotion Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-disableremove-youtube-shorts-permanently2/"><u>How to Disable/Remove YouTube Shorts Permanently?2</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-vid-wizards-guide-to-glitter-and-glamour-creating-your-chanel/"><u>In 2024, Vid-Wizards Guide to Glitter and Glamour  Creating Your Chanel</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-wont-play-mkv-movies-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Xiaomi won’t play MKV movies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-inspirational-hiring-vids-1-10/"><u>[Updated] 2024 Approved  Discover Inspirational Hiring Vids #1-10</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-implementing-incremental-noise-reduction-using-audacity/"><u>[New] Implementing Incremental Noise Reduction Using Audacity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-convert-high-res-fb-videos-seamlessly-into-mp4-at-no-extra-cost/"><u>2024 Approved  Convert High-Res FB Videos Seamlessly Into MP4 at No Extra Cost</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-windows-10-video-production-the-best-software-options/"><u>New In 2024, Windows 10 Video Production The Best Software Options</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-pro-max-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Pro Max Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/steps-for-integrating-soundtracks-into-mkv-format-mkv-v202-release/"><u>Steps for Integrating Soundtracks Into MKV Format (MKV v2.0.2 Release)</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-effortless-4k-video-conversion-top-free-and-paid-options/"><u>2024 Approved Effortless 4K Video Conversion Top Free and Paid Options</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-going-above-and-beyond-without-the-need-for-vimeo/"><u>[Updated] 2024 Approved  Going Above and Beyond Without the Need for Vimeo</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-a-guide-to-color-grade-your-picture-in-lightroom/"><u>New 2024 Approved A Guide to Color Grade Your Picture in LightRoom</u></a></li>
+</ul></div>

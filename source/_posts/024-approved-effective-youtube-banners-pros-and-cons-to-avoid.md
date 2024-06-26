@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-06-22 14:22:30
-updated: 2024-06-24 10:17:55
+date: 2024-06-25T21:09:21.355Z
+updated: 2024-06-26T21:09:21.355Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/975630c7efcc70612cff65d2f7f3b9e4bb2750437
 
 ## Effective YouTube Banners: Pros and Cons to Avoid
 
-# How To Make Good YouTube Banner - Dos and Don’ts
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Make Good YouTube Banner - Dos and Don’ts ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -51,7 +49,7 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
-![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+![YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 ## Part 2: Should I Use My Face?
 
@@ -71,7 +69,7 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ## Part 3: What Should I Write on My Banner?
 
-![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+![YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
 
@@ -91,7 +89,7 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
-![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+![YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
 
@@ -127,7 +125,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ## Touch Up YouTube Videos with Filmora
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -154,3 +152,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-creating-channel-names-that-capture-attention/"><u>[Updated] 2024 Approved  Creating Channel Names That Capture Attention</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-youtube-live-an-overview-of-thumbnails/"><u>[New] In 2024, Unveiling YouTube Live  An Overview of Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/xplore-10-youtube-creators-accelerating-their-popularity-for-2024/"><u>[New] Explore 10 YouTube Creators Accelerating Their Popularity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-tailored-insights-setting-up-your-personalbusiness-yt-channel-mobilely/"><u>[Updated] 2024 Approved  Tailored Insights  Setting Up Your Personal/Business YT Channel Mobilely</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-decision-embrace-a-youtube-mcn-or-not/"><u>[Updated] The Ultimate Decision  Embrace a YouTube MCN or Not</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/trategies-for-optimal-featured-channels-in-youtubes-algorithm-for-2024/"><u>[New] Strategies for Optimal Featured Channels in YouTube's Algorithm for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-timestamp-addition-for-desktop-and-mobile-devices-for-2024/"><u>[Updated] Mastering YouTube Timestamp Addition for Desktop & Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastery-in-captioning-a-youtube-creators-handbook/"><u>In 2024, Mastery in Captioning  A YouTube Creator's Handbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[New] 2024 Approved  Crafting Curls and Contours  Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/cheap-but-powerful-video-editing-software/"><u>Cheap but Powerful Video Editing Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-t2x-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on T2x 5G</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ensuring-your-pictures-endure-top-rated-cloud-storage-services/"><u>Ensuring Your Pictures Endure  Top-Rated Cloud Storage Services</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/pro-level-5-digital-media-recorders-online-for-2024/"><u>Pro-Level 5 Digital Media Recorders Online for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-vivo-y28-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y28 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-magic-6-lite-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor Magic 6 Lite Phone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-navigate-the-world-of-games-top-12-pc-clickers-revealed-for-2024/"><u>[New] Navigate the World of Games  Top 12 PC Clickers Revealed for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-compreehers-guide-to-srt-file-flexibility-for-2024/"><u>The Compreeher’s Guide to SRT File Flexibility for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-reno-11f-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo Reno 11F 5G Device</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-6-online-networking-hubs-for-enterprises/"><u>2024 Approved  Leading 6 Online Networking Hubs for Enterprises</u></a></li>
+</ul></div>

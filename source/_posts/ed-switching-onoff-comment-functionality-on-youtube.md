@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Switching On/Off Comment Functionality on YouTube"
-date: 2024-06-21 13:40:57
-updated: 2024-06-22 12:59:19
+date: 2024-06-25T20:46:02.518Z
+updated: 2024-06-26T20:46:02.518Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/98a90a980daafb5d4122c6bec488811f000154f10
 
 ## Switching On/Off Comment Functionality on YouTube
 
-# How to Turn on or off Comments on YouTube
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -38,13 +36,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -56,19 +54,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -108,7 +106,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -126,7 +124,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -163,3 +161,27 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailored-soundtracks-at-your-fingertips-constructing-youtube-music-collections-webmobile/"><u>[Updated] Tailored Soundtracks at Your Fingertips  Constructing YouTube Music Collections (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-dive-into-digital-fandom-top-6-interactive-questionnaires-to-identify-your-youtube-spirituality-for-2024/"><u>[Updated] Dive Into Digital Fandom  Top 6 Interactive Questionnaires to Identify Your YouTube Spirituality for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>[Updated] 2024 Approved  Virtual Victory Channel  Over a Hundred Heroes Rise</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uick-and-easy-channels-personalize-your-youtube-url-now/"><u>[New] Quick and Easy Channels  Personalize Your YouTube URL Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-calculus-of-cashflow-from-creativity-measuring-your-youtube-earnings-and-impact/"><u>[Updated] 2024 Approved  The Ultimate Calculus of Cashflow From Creativity  Measuring Your YouTube Earnings and Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-vlog-with-verve-following-in-the-footsteps-of-video-experts/"><u>[New] In 2024, Vlog with Verve  Following in the Footsteps of Video Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unveiling-youtubes-veiled-content-a-detailed-protocol/"><u>[Updated] In 2024, Unveiling YouTube's Veiled Content  A Detailed Protocol</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-thematic-wow-factor-designing-engaging-youtube-templates/"><u>[Updated] 2024 Approved  Thematic Wow Factor  Designing Engaging YouTube Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-step-by-step-guide-to-captivating-youtube-live-thumbnails/"><u>In 2024, Step-By-Step Guide to Captivating YouTube Live Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-less-is-more-the-best-video-url-reducers-revealed-for-2024/"><u>[Updated] Less Is More  The Best Video URL Reducers Revealed for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-spooky-halloween-best-15plus-halloween-countdown-video-clips/"><u>2024 Approved Spooky Halloween Best 15+ Halloween Countdown Video Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-editing-selection-quality-software-for-youtubers/"><u>Elite Editing Selection  Quality Software for YouTubers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/illuminating-pathways-through-mixed-realitys-domain/"><u>Illuminating Pathways Through Mixed Reality's Domain</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-discovering-the-best-websites-for-acquiring-high-fidelity-whoosh-soundtracks/"><u>New Discovering the Best Websites for Acquiring High-Fidelity Whoosh Soundtracks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-beginners-bane-the-top-8-youtube-errors-you-shouldnt-commit/"><u>[Updated] Beginner's Bane  The Top 8 Youtube Errors You Shouldn't Commit</u></a></li>
+<li><a href="https://extra-information.techidaily.com/no-8-advanced-online-photographic-merge-suite/"><u>No. 8 Advanced Online Photographic Merge Suite</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-examining-samsungs-digital-photography-enhancements/"><u>[New] Examining Samsung's Digital Photography Enhancements</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-calculating-youtube-profits-instantly/"><u>2024 Approved  Calculating YouTube Profits Instantly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-dji-phantom-3s-expert-features/"><u>2024 Approved  Unveiling DJI Phantom 3'S Expert Features</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-11-best-location-changers-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Realme C67 4G | Dr.fone</u></a></li>
+</ul></div>

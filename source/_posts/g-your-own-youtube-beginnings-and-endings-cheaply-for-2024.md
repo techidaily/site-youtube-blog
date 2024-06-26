@@ -1,7 +1,7 @@
 ---
 title: "Making Your Own YouTube Beginnings & Endings Cheaply for 2024"
-date: 2024-06-21 19:56:34
-updated: 2024-06-24 12:23:49
+date: 2024-06-25T21:09:48.771Z
+updated: 2024-06-26T21:09:48.771Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/85034a62a15df819e619fec4e6d0909e5ab4845fb
 
 ## Making Your Own YouTube Beginnings & Endings Cheaply
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -133,3 +131,27 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ceased-shorts-missing-on-youtube-screen/"><u>[Updated] In 2024, Ceased  Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-synchronize-your-surfing-master-multi-video-youtube-use-for-2024/"><u>[Updated] Synchronize Your Surfing  Master Multi-Video YouTube Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-secure-video-sharing-youtube-to-gmail-with-google-access-for-2024/"><u>[Updated] Unlocking Secure Video Sharing  YouTube to Gmail with Google Access for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-from-editing-to-sharing-youtube-mastery-with-adobe-premiere/"><u>[Updated] 2024 Approved  From Editing to Sharing  YouTube Mastery with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tape-looper-mastery-app/"><u>[New] In 2024, Tape Looper Mastery App</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pulse-picking-playbacks-character-beats-unveiled/"><u>[New] In 2024, Pulse-Picking Playbacks  Character Beats Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-blueprint-to-establishing-a-distinctive-marketing-persona/"><u>[New] In 2024, The Blueprint to Establishing a Distinctive Marketing Persona</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-essential-mobile-privacy-the-best-7-adblocker-apps-for-android/"><u>[Updated] In 2024, Essential Mobile Privacy  The Best 7 AdBlocker Apps for Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-key-takeaways-on-youtube-tv-an-overview-of-its-advantages/"><u>[Updated] Key Takeaways on YouTube TV  An Overview of Its Advantages</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-click-reward-spectrum-for-2024/"><u>[Updated] The Ultimate Click Reward Spectrum for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/snicker-snapshots-jokeframe-for-2024/"><u>Snicker Snapshots  JokeFrame for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unveiling-gopros-capabilities-for-capturing-dynamic-time-lapse-videos/"><u>Unveiling GoPro's Capabilities for Capturing Dynamic Time-Lapse Videos</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-freedomframe-capturing-your-gaming-moments-in-24/"><u>In 2024, FreedomFrame  Capturing Your Gaming Moments in '24</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unplug-and-laugh-select-the-best-15-funny-youtube-sources/"><u>2024 Approved  Unplug and Laugh  Select the Best 15 Funny YouTube Sources</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-quick-guide-to-recording-presentations-using-webcam-for-2024/"><u>[Updated] Quick Guide to Recording Presentations Using Webcam for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flavor-forge-30-epicurean-titles-that-resonate-for-2024/"><u>[New] Flavor Forge  30 Epicurean Titles That Resonate for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-efficient-tactics-for-recording-vimeo-media/"><u>[New] In 2024, Efficient Tactics for Recording Vimeo Media</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-14-plus-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 14 Plus Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-dissecting-insta-video-selfie-validation-necessary-or-not-in-2024/"><u>[Updated] Dissecting Insta Video Selfie Validation – Necessary or Not, In 2024</u></a></li>
+</ul></div>

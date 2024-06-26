@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Virtual Artisans' Haven Retreat\""
-date: 2024-06-21 15:51:53
-updated: 2024-06-24 11:37:46
+date: 2024-06-25T20:36:21.453Z
+updated: 2024-06-26T20:36:21.453Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
 
 ## Virtual Artisans' Haven Retreat
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -116,3 +114,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[Updated] DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-step-by-step-tutorial-personalize-and-elevate-your-short-videos/"><u>2024 Approved  Step-by-Step Tutorial  Personalize and Elevate Your Short Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-compelling-end-screens-in-youtube-videos/"><u>Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-turn-video-soundtracks-into-audible-files/"><u>2024 Approved  How to Turn Video Soundtracks Into Audible Files</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-explore-10-premier-historical-youtube-networks/"><u>[New] 2024 Approved  Explore 10 Premier Historical Youtube Networks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-bargain-microphones-for-youtube-creators-starting-small/"><u>[New] In 2024, Bargain Microphones for YouTube Creators Starting Small</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-shorts-and-tiktok-choose-the-one-for-your-need-for-2024/"><u>[Updated] YouTube Shorts & Tiktok - Choose the One for Your Need for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/elevate-video-calls-browse-through-our-top-5-hd-webcams-and-mics/"><u>Elevate Video Calls - Browse Through Our Top 5 HD Webcams & Mics</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-oppo-find-n3-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Oppo Find N3 Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevating-video-previews-a-compreayer-approach-for-youtube/"><u>2024 Approved  Elevating Video Previews  A Compreayer Approach for YouTube</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-canva-skills-purging-images-of-their-surroundings/"><u>2024 Approved  Canva Skills  Purging Images of Their Surroundings</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-voicechanger-your-guide-to-tailoring-communication-on-skype-platforms/"><u>Updated In 2024, VoiceChanger Your Guide to Tailoring Communication on Skype Platforms</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pioneering-techniques-in-health-and-wellness-fb-campaigns/"><u>[Updated] Pioneering Techniques in Health & Wellness FB Campaigns</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-streamlining-youtube-watch-order-masterclass/"><u>2024 Approved  Streamlining YouTube Watch Order Masterclass</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-examining-the-huawei-p10-camera-and-display-capabilities/"><u>[Updated] 2024 Approved  Examining the Huawei P10 Camera and Display Capabilities</u></a></li>
+</ul></div>

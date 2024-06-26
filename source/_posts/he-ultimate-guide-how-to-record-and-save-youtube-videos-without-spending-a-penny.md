@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  How To Record and Save YouTube Videos without Spending a Penny\""
-date: 2024-06-24 17:41:25
-updated: 2024-06-25 12:44:19
+date: 2024-06-25T20:10:32.875Z
+updated: 2024-06-26T20:10:32.875Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
 ## The Ultimate Guide: How To Record and Save YouTube Videos without Spending a Penny
 
-# How To Record Screencast From YouTube For Free
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How To Record Screencast From YouTube For Free ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -45,9 +43,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Recording Screencast Video with YouTube
 
@@ -55,13 +51,13 @@ Step 1: Open YouTube on your computer and sign by using your Google Account. On 
 
 Step 2: On the create an event page, add a title for your screencast video; set privacy terms and then hit “Go Live Now” option.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
@@ -113,3 +109,26 @@ Follow @Max Wales
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>[Updated] 2024 Approved  Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-non-tripod-techniques-for-still-cameras/"><u>[New] In 2024, Non-Tripod Techniques for Still Cameras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-inside-look-what-makes-asmr-special-for-2024/"><u>[Updated] Inside Look  What Makes ASMR Special for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stream-at-peak-performance-best-gpu-selection-guide/"><u>[Updated] Stream at Peak Performance  Best GPU Selection Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-nextgen-youtuber-tools-studio-vs-beta-version/"><u>[New] 2024 Approved  NextGen YouTuber Tools  Studio Vs. Beta Version</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-engaging-scriptwriting-techniques-for-higher-video-rankings/"><u>[Updated] In 2024, Engaging Scriptwriting Techniques for Higher Video Rankings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exciting-conversation-starter-ideas-for-2024/"><u>[Updated] Exciting Conversation Starter Ideas for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-revolutionize-channel-wrapping-with-expert-templates-and-how-tos-for-2024/"><u>[Updated] Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-strategy-to-dominate-youtube-via-creator-hub-for-2024/"><u>The Ultimate Strategy to Dominate YouTube Via Creator Hub for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gopro-hero5-black-vs-hero5-standard/"><u>In 2024, GoPro Hero5 Black vs Hero5 Standard</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-logic-pro-xs-audio-magic-tricks-for-seamless-sounds/"><u>In 2024, Logic Pro X's Audio Magic Tricks for Seamless Sounds</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-unleash-creativity-with-ezvides-tool-for-capturing-your-desktop/"><u>2024 Approved  Unleash Creativity with EZvide's Tool for Capturing Your Desktop</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-captivate-audiences-with-these-top-20-tiktok-captions/"><u>[Updated] 2024 Approved  Captivate Audiences with These Top 20 TikTok Captions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-secure-your-live-streams-on-firefoxchrome/"><u>In 2024, Secure Your Live Streams on FireFox/Chrome</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streaming-and-recording-showdown-obs-studio-or-bandicam-for-2024/"><u>[New] Streaming and Recording Showdown  OBS Studio or Bandicam for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-14-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi 14 Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-androidios-users-guide-to-facebook-live-broadcasting/"><u>[Updated] Android/iOS Users' Guide to Facebook Live Broadcasting</u></a></li>
+</ul></div>

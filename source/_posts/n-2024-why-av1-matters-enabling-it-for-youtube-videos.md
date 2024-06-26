@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Why AV1 Matters  Enabling It for YouTube Videos\""
-date: 2024-06-18 22:46:33
-updated: 2024-06-19 11:22:47
+date: 2024-06-25T20:57:25.845Z
+updated: 2024-06-26T20:57:25.845Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,22 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/uick-steps-to-authenticate-your-youtube-login/"><u>[New] Quick Steps to Authenticate Your YouTube Login</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oosting-youtube-interaction-with-emojis/"><u>[New] Boosting YouTube Interaction with Emojis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[New] In 2024, Mobile Filmmaking Tips  Designing Engaging YouTubes Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-from-songs-to-symphony-building-a-cohesive-youtube-playlist-on-webapp-for-2024/"><u>[Updated] From Songs to Symphony  Building a Cohesive YouTube Playlist on Web/App for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-youtube-video-quality-minimize-distractions-for-2024/"><u>Elevate YouTube Video Quality, Minimize Distractions for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-nailing-your-online-visibility-with-optimal-youtube-thumbnail-dimensions/"><u>In 2024, Nailing Your Online Visibility with Optimal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-video-rankings-on-youtube-essential-seo-techniques-unveiled-for-2024/"><u>[Updated] Mastering Video Rankings on YouTube  Essential SEO Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-a2-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of A2?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tailored-transmission-terminal-podcasters-hub-for-2024/"><u>Tailored Transmission Terminal  Podcaster's Hub for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>In 2024, Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/achieving-audio-equilibrium-methods-for-adjusting-sound-pressure-levels-with-vlc/"><u>Achieving Audio Equilibrium Methods for Adjusting Sound Pressure Levels with VLC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-how-to-pin-someone-on-snapchat-all-you-need-to-know/"><u>[New] 2024 Approved  How to Pin Someone on Snapchat  All You Need to Know</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-flash-dramatization-structure/"><u>In 2024, Flash Dramatization Structure</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-elite-10-customizations-elevating-terria/"><u>2024 Approved  Elite 10 Customizations Elevating Terria</u></a></li>
+</ul></div>

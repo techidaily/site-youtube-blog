@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Creating Compelling Solo Videos on a Budget"
-date: 2024-06-21 18:48:30
-updated: 2024-06-23 10:26:23
+date: 2024-06-25T20:18:40.840Z
+updated: 2024-06-26T20:18:40.840Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
 
 ## Creating Compelling Solo Videos on a Budget
 
-# 4 Ways To Set Up Your Talking-Head Shots For YouTube
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 4 Ways To Set Up Your Talking-Head Shots For YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -35,7 +33,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -120,3 +118,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>[New] 2024 Approved  A Treasure Trove  Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-dive-into-the-premium-list-of-top-10-budget-friendly-youtube-designers-for-2024/"><u>[Updated] A Dive Into the Premium List of Top 10 Budget-Friendly YouTube Designers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-prevent-ai-driven-youtube-video-selections/"><u>[New] In 2024, Prevent AI-Driven YouTube Video Selections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-insider-guide-to-gaming-channel-header-templates/"><u>[Updated] 2024 Approved  The Insider Guide to Gaming Channel Header Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-standout-youtube-thumbnails-with-ease-for-2024/"><u>[New] Crafting Standout YouTube Thumbnails with Ease for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-monetary-potential-predictor/"><u>[New] YouTube Monetary Potential Predictor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision/"><u>[Updated] 2024 Approved  Mics & More  Discovering the Audio Essential That Matches Your YT Vision</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-from-dreamer-to-doer-sign-up-for-a-youtube-channel/"><u>[New] 2024 Approved  From Dreamer To Doer  Sign Up for a YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/10-game-changing-techniques-to-amplify-your-facebook-presence/"><u>10 Game-Changing Techniques to Amplify Your Facebook Presence</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-why-the-article-about-mp3-converter-windows-deserves-to-read-in-2024/"><u>New Why The Article About Mp3 Converter Windows Deserves to Read, In 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-experts-selection-17-programs-for-flawless-picture-editing/"><u>2024 Approved  Expert's Selection  17 Programs for Flawless Picture Editing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essentials-of-youtube-mastery-free-online-course-series/"><u>2024 Approved  Essentials of YouTube Mastery  Free Online Course Series</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-celebrating-stop-motion-excellence-top-15-films/"><u>[Updated] Celebrating Stop-Motion Excellence  Top 15 Films</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-pro-grade-webcam-videography-tools-for-2024/"><u>[New] Pro-Grade Webcam Videography Tools for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-m54-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy M54 5G Device</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-the-ultimate-checklist-for-movie-maker-videos-on-vimeo/"><u>2024 Approved  The Ultimate Checklist for Movie Maker Videos on Vimeo</u></a></li>
+</ul></div>

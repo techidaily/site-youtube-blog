@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Joshi's Success  YouTube Earnings Strategy\""
-date: 2024-06-16 10:20:39
-updated: 2024-06-18 11:54:43
+date: 2024-06-25T20:26:54.321Z
+updated: 2024-06-26T20:26:54.321Z
 tags:
   - ai video
   - ai youtube
@@ -90,17 +90,13 @@ With two successful channels, net worth in million, luxury cars, and collaborati
 
 The reasons for his success and popularity are:
 
-### Exclusive Personality
-
-![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
+### Exclusive Personality ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
 
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-### Engaging and Interactive Content
-
-![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
+### Engaging and Interactive Content ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
 
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
@@ -140,27 +136,19 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 
 [Wondershare Filmora](https://www.wondershare.com/?%5Fgl=1%2A3w9lvu%2A%5Fga%2AMTA1Njc4NjEyLjE2NDEzMDcyMTI.%2A%5Fga%5F24WTSJBD5B%2AMTY2MzM0OTI4MS4zMS4xLjE2NjMzNDk0MTIuOC4wLjA.&%5Fga=2.110806337.554158081.1663349281-105678612.1641307212) is an intuitive software that offers a series of features and templates, so you can edit and make your videos impressive, following only a few simple steps which can help you do the right job.
 
-##### Step1 Import your Footage
-
-![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
+##### Step1 Import your Footage ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
 
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
-##### Step2 Drag your Footage to Timeline
-
-![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+##### Step2 Drag your Footage to Timeline ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
-##### Step3 Work on Speed and Duration Settings
-
-![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
+##### Step3 Work on Speed and Duration Settings ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
-##### Step4 Fix Size and Positioning of your Video
-
-![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
+##### Step4 Fix Size and Positioning of your Video ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
@@ -170,57 +158,37 @@ When it comes to making a video 10x impressive, use Filmora’s advance editing 
 
 Simply access the editing panel by double-clicking the video. After this, you can perform the following:
 
-_Motion effects_
+_Motion effects_ ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
-![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
+_Adjustment of video tone_ ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
 
-_Adjustment of video tone_
+_Color correction of the video_ ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
 
-![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
+_Options for audio_ ![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
 
-_Color correction of the video_
-
-![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
-
-_Options for audio_
-
-![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
-
-_Apply masks to your video, they feature different shape and positions, so adjust them accordingly._
-
-![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
+_Apply masks to your video, they feature different shape and positions, so adjust them accordingly._ ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
 
 ##### Step6 Use More Features from Library
 
 The software comes with a vast library packed with stunning effects, elements, transitions, and stock video. Don’t hesitate to use them and make your video more visually interesting.
 
-_Effects_
-
-![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
+_Effects_ ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
 
 Find “effects” on the top menu, click, and choose from the list.
 
-_Stock Video_
-
-![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
+_Stock Video_ ![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
 
 “Stock video” button is also located on the top menu. Click on it to find more eye-pleasing content for your footage.
 
-_Elements_
-
-![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
+_Elements_ ![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
 
 Go to the top menu and find “elements.” You can add these elements to ensure your video appear interesting and engaging.
 
-_Transitions_
-
-![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
+_Transitions_ ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
-##### Step7 Save and Export your Footage
-
-![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
+##### Step7 Save and Export your Footage ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
@@ -298,17 +266,13 @@ With two successful channels, net worth in million, luxury cars, and collaborati
 
 The reasons for his success and popularity are:
 
-### Exclusive Personality
-
-![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
+### Exclusive Personality ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
 
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-### Engaging and Interactive Content
-
-![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
+### Engaging and Interactive Content ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
 
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
@@ -348,27 +312,19 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 
 [Wondershare Filmora](https://www.wondershare.com/?%5Fgl=1%2A3w9lvu%2A%5Fga%2AMTA1Njc4NjEyLjE2NDEzMDcyMTI.%2A%5Fga%5F24WTSJBD5B%2AMTY2MzM0OTI4MS4zMS4xLjE2NjMzNDk0MTIuOC4wLjA.&%5Fga=2.110806337.554158081.1663349281-105678612.1641307212) is an intuitive software that offers a series of features and templates, so you can edit and make your videos impressive, following only a few simple steps which can help you do the right job.
 
-##### Step1 Import your Footage
-
-![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
+##### Step1 Import your Footage ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
 
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
-##### Step2 Drag your Footage to Timeline
-
-![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+##### Step2 Drag your Footage to Timeline ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
-##### Step3 Work on Speed and Duration Settings
-
-![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
+##### Step3 Work on Speed and Duration Settings ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
-##### Step4 Fix Size and Positioning of your Video
-
-![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
+##### Step4 Fix Size and Positioning of your Video ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
@@ -378,57 +334,37 @@ When it comes to making a video 10x impressive, use Filmora’s advance editing 
 
 Simply access the editing panel by double-clicking the video. After this, you can perform the following:
 
-_Motion effects_
+_Motion effects_ ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
-![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
+_Adjustment of video tone_ ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
 
-_Adjustment of video tone_
+_Color correction of the video_ ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
 
-![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
+_Options for audio_ ![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
 
-_Color correction of the video_
-
-![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
-
-_Options for audio_
-
-![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
-
-_Apply masks to your video, they feature different shape and positions, so adjust them accordingly._
-
-![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
+_Apply masks to your video, they feature different shape and positions, so adjust them accordingly._ ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
 
 ##### Step6 Use More Features from Library
 
 The software comes with a vast library packed with stunning effects, elements, transitions, and stock video. Don’t hesitate to use them and make your video more visually interesting.
 
-_Effects_
-
-![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
+_Effects_ ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
 
 Find “effects” on the top menu, click, and choose from the list.
 
-_Stock Video_
-
-![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
+_Stock Video_ ![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
 
 “Stock video” button is also located on the top menu. Click on it to find more eye-pleasing content for your footage.
 
-_Elements_
-
-![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
+_Elements_ ![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
 
 Go to the top menu and find “elements.” You can add these elements to ensure your video appear interesting and engaging.
 
-_Transitions_
-
-![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
+_Transitions_ ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
-##### Step7 Save and Export your Footage
-
-![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
+##### Step7 Save and Export your Footage ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
@@ -464,3 +400,27 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-steps-for-mp3-streams-on-youtube/"><u>[Updated] 2024 Approved  Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-no-expense-yes-watch-one-frame-at-a-time-on-youtube/"><u>[New] 2024 Approved  No Expense? Yes! Watch One Frame at a Time on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>In 2024, Dailymotion vs YouTubes  Revenue Battle Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ting-the-perfect-online-source-15-best-royalty-free-music-urls/"><u>Selecting the Perfect Online Source  15 Best Royalty-Free Music URLs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-choosing-platforms-youtube-shorts-vs-tiktok-best-for-minis/"><u>2024 Approved  Choosing Platforms  YouTube Shorts Vs. TikTok – Best for Minis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-movie-maker-pro-tips-for-efficient-editing-for-2024/"><u>[New] YouTube Movie Maker Pro Tips for Efficient Editing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevating-your-footage-imovie-videos-for-youtube-enthusiasts/"><u>2024 Approved  Elevating Your Footage  IMovie Videos for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oes-instant-subscription-strategy-improve-user-engagement-in-2024/"><u>[New] Does Instant Subscription Strategy Improve User Engagement, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-addition-of-youtube-video-selections-for-sites/"><u>[New] Seamless Addition of YouTube Video Selections for Sites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levate-views-with-optimal-youtube-thumbnails-and-ratios/"><u>[New] Elevate Views with Optimal YouTube Thumbnails & Ratios</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on iPhone 14 Plus</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-7-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 7 In Different Conditionsin</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-what-is-an-ai-text-generator-wondershare-virbo-glossary/"><u>Updated What Is an AI Text Generator? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-image-perfection-an-editors-guide/"><u>In 2024, Image Perfection  An Editor's Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-ten-essential-cam-covers-to-upgrade-your-security/"><u>2024 Approved  Ten Essential Cam Covers to Upgrade Your Security</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tuning-into-iphones-sound-scenarios/"><u>[Updated] Tuning Into iPhone's Sound Scenarios</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-itel-s23-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Itel S23 Pattern Lock Screen</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-decibel-guide-to-linux-top-5-audio-recorders-for-professional-creatives/"><u>New The Decibel Guide to Linux Top 5 Audio Recorders for Professional Creatives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unleash-creativity-with-these-top-10-instagram-reel-apps/"><u>[New] In 2024, Unleash Creativity with These Top 10 Instagram Reel Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-epicplayback-expert-analysis/"><u>[Updated] EpicPlayback Expert Analysis</u></a></li>
+</ul></div>

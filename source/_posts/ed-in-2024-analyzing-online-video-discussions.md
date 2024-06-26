@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Analyzing Online Video Discussions"
-date: 2024-06-24 10:48:49
-updated: 2024-06-26 11:41:12
+date: 2024-06-25T21:12:46.959Z
+updated: 2024-06-26T21:12:46.959Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ Comments are the best way to interact with subscribers on YouTube. YouTube’s S
 
 If you have a channel, you can use this feature in some simple steps.
 
-1. Visit YouTube[website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
+1. Visit YouTube [website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
 2. Go to the top right corner of your homepage, and you will find your profile icon. Click on it and from the drop-down menu, select the YouTube Studio option.
 3. This will take you to the YouTube Studio home page. On the left side, find and click on the Comments option, and then you will see all comments your YouTube channel has received.
 4. You can now click on the Filter icon from the comments section and type in the search term directly. Or, you can click the Search from the options, and type in the words you are looking for.
@@ -57,7 +57,7 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+![YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
@@ -67,11 +67,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 1. First, you need to install this extension. You can click this URL <https://chrome.google.com/webstore/detail/ycs-youtube-comment-searc/pmfhcilikeembgbiadjiojgfgcfbcoaa?hl=en> Or, you can open the Chrome Extensions page, and in the search bar at the top, type in YCS – YouTube Comment Search and press Enter.
 2. Click on the result that appears and then tap on the Add to Chrome button. This will add the extension to your browser.
-3. Once you add the extension, open[YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
+3. Once you add the extension, open [YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -79,7 +79,7 @@ If you are looking for an easy method to search YouTube comments, you can use th
 
 How can you use this extension to search YouTube comments? Here is a simple step-by-step tutorial.
 
-1. First, you need to download the extension from[Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
+1. First, you need to download the extension from [Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
 2. Next, you need to install it in the browser. Open your Chrome browser, and from the top right corner, click on the three vertical dots. You will find the Settings option towards the end of the drop-down menu, and then click on it.
 3. When the Settings page opens, select Extensions from the panel on the left side of the webpage. This will take you to a new tab.
 4. On the top right corner of the page, there will be a toggle switch called Developer Mode. Turn it on if it is off.
@@ -113,9 +113,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -161,3 +161,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-your-first-leap-onto-youtubes-platform/"><u>In 2024, Your First Leap Onto YouTube's Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-no-ads-creators-course-earnings-strategies-for-self-sustained-success/"><u>[Updated] 2024 Approved  The No-Ads Creator’s Course  Earnings Strategies for Self-Sustained Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-creators-ultimate-playlist-the-best-free-sound-sources/"><u>[Updated] In 2024, YouTube Creators' Ultimate Playlist  The Best Free Sound Sources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-digital-arcade-over-a-hundred-game-channels/"><u>2024 Approved  Digital Arcade  Over a Hundred Game Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-explore-the-richest-historical-content-with-these-top-10-yt-groups/"><u>[Updated] 2024 Approved  Explore the Richest Historical Content with These Top 10 YT Groups</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-conserve-space-not-time-youtube-video-length-adjustment/"><u>[New] 2024 Approved  Conserve Space, Not Time  YouTube Video Length Adjustment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-from-bites-to-blocks-top-10-video-editing-principles/"><u>[New] In 2024, From Bites to Blocks  Top 10 Video Editing Principles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-surpassing-the-ranks-essential-factors-uncovered/"><u>2024 Approved  Surpassing the Ranks  Essential Factors Uncovered</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>[New] In 2024, Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-compilation-of-15-most-engaging-youtube-themes/"><u>[Updated] In 2024, The Ultimate Compilation of 15 Most Engaging YouTube Themes</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-journey-to-the-world-of-tiktok-download-guide-for-macbook/"><u>[New] 2024 Approved  Journey to the World of TikTok  Download Guide for MacBook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capture-kings-top-15-windows-tools-for-2024/"><u>Capture Kings  Top 15 Windows Tools for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/device-unlock-honor-magic-6-by-drfone-android-unlock-android-unlock/"><u>Device unlock  Honor Magic 6</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-zero-to-hero-top-free-video-editing-software/"><u>New From Zero to Hero Top Free Video Editing Software</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-stepwise-addition-of-language-overlays-in-igtv-videos/"><u>[New] In 2024, Stepwise Addition of Language Overlays in IGTV Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ploughing-through-the-past-top-farming-games-follow-for-2024/"><u>Ploughing Through the Past  Top Farming Games Follow for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-efficient-ways-to-manage-your-timeline/"><u>New In 2024, Efficient Ways to Manage Your Timeline</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-samsung-ue590-review-top-tier-4k-uhd-tv-for-gamers/"><u>[New] Samsung UE590 Review - Top-Tier 4K UHD TV for Gamers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-list-top-10-subtitle-editors-web/"><u>[Updated] Ultimate List  Top 10 Subtitle Editors Web</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-a-filmmakers-dream-the-8-best-no-fee-video-editors-on-the-market-for-2024/"><u>[Updated] A Filmmaker's Dream  The 8 Best No-Fee Video Editors on the Market for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlock YouTube's End Screens  Easy Template Ideas & Tutorials\""
-date: 2024-06-19 12:15:19
-updated: 2024-06-22 12:53:36
+date: 2024-06-25T21:13:16.272Z
+updated: 2024-06-26T21:13:16.272Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
 ## Unlock YouTube's End Screens: Easy Template Ideas & Tutorials
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -77,23 +75,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -103,11 +99,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -144,3 +140,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-pro-screen-recording-tool-for-successful-youtubers/"><u>[Updated] Pro Screen Recording Tool for Successful YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-your-soundtracks-the-best-free-youtube-to-wav-tools/"><u>Streamline Your Soundtracks  The Best Free YouTube to WAV Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>[Updated] Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/allying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>[New] Rallying Towards Partnership  Reach the Critical 10K View Target Quickly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-strategy-for-top-tier-youtube-titles-and-tags/"><u>[New] The Ultimate Strategy for Top-Tier Youtube Titles & Tags</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-financial-forecasting-in-the-world-of-youtube-snippet-creation/"><u>[New] 2024 Approved  Financial Forecasting in the World of YouTube Snippet Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/2-proven-ways-to-increase-youtube-views-you-should-try-for-2024/"><u>[New] 12 Proven Ways to Increase YouTube Views You Should Try for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-flac-converter-guide-finding-the-perfect-one-for-your-needs/"><u>Updated FLAC Converter Guide Finding the Perfect One for Your Needs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accelerated-sizing-youtube-content-for-macs-for-2024/"><u>Accelerated Sizing  YouTube Content for MACs for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/navigating-editor-options-filmora-or-democreator-in-2024/"><u>Navigating Editor Options  Filmora or Democreator, In 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-gt-neo-5-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-poco-c51-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Poco C51 to iPod | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rookie-riches-profitable-sites-for-beginnere-buyouts/"><u>Rookie Riches  Profitable Sites for Beginner'e Buyouts</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-syncing-with-serenity-listening-to-podcasts-on-iphone-for-2024/"><u>[New] Syncing With Serenity  Listening to Podcasts on iPhone for 2024</u></a></li>
+</ul></div>

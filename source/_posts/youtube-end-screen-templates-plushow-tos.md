@@ -1,7 +1,7 @@
 ---
 title: "\"Free YouTube End Screen Templates [+How-Tos]\""
-date: 2024-06-23 14:22:50
-updated: 2024-06-25 11:31:38
+date: 2024-06-25T21:14:05.654Z
+updated: 2024-06-26T21:14:05.654Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
 ## Free YouTube End Screen Templates [+How-Tos]
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -77,23 +75,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -103,11 +99,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -144,3 +140,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>[Updated] Viral Vortex  A Guide to Powerful Social Media Tags for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-essential-tips-for-youtube-short-fixes/"><u>[New] In 2024, Essential Tips for YouTube Short Fixes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-inspire-audiences-with-these-high-quality-free-sound-files/"><u>[New] In 2024, Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-resetting-your-youtube-reputation/"><u>In 2024, Resetting Your YouTube Reputation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-guide-for-crafting-engaging-shareable-youtube-shorts/"><u>[Updated] 2024 Approved  The Ultimate Guide for Crafting Engaging, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-visual-power-in-gaming-channels-a-template-guidebook/"><u>[Updated] 2024 Approved  Visual Power in Gaming Channels  A Template Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-briefvideo-creator/"><u>In 2024, BriefVideo Creator</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/shing-inspiration-ideas-for-engaging-channels/"><u>Unleashing Inspiration  Ideas for Engaging Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716464722380-elevate-your-content-seo-mastery-starts-here/"><u>Elevate Your Content  SEO Mastery Starts Here!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-apex-athletes-snowspeedcross-22-recaps/"><u>2024 Approved  Apex Athletes  Snowspeedcross '22 Recaps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pushing-boundaries-in-media-crafting-curved-content/"><u>[New] Pushing Boundaries in Media  Crafting Curved Content</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-quick-step-to-cutting-edge-gif-creation-from-vimeo/"><u>In 2024, The Quick-Step to Cutting Edge GIF Creation From Vimeo</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-rebooted-login-claiming-back-to-facebook/"><u>[Updated] In 2024, Rebooted Login  Claiming Back to Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-3d-text-psd-goldmine-top-selections/"><u>[New] Free 3D Text PSD Goldmine - Top Selections</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-win-and-mac-accessible-screen-capture-utilities/"><u>[Updated] In 2024, Win & Mac  Accessible Screen Capture Utilities</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-14-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of Apple iPhone 14</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-fanfare-identifying-the-top-8-likable-apps-for-you/"><u>2024 Approved  Facebook Fanfare  Identifying the Top 8 Likable Apps for You</u></a></li>
+</ul></div>

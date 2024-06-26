@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Addressed  Hidden Shorters, Now Visible\""
-date: 2024-06-22 17:13:51
-updated: 2024-06-24 12:15:29
+date: 2024-06-25T21:06:30.815Z
+updated: 2024-06-26T21:06:30.815Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,27 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-comment-finder-you-should-try/"><u>[New] In 2024, YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-hack-your-channels-identity-with-these-11-budget-tools/"><u>2024 Approved  Hack Your Channel's Identity with These 11 Budget Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-premium-subscription-should-you-get-one/"><u>YouTube Premium Subscription - Should You Get One?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-capturing-contentment-a-practical-guide-to-daily-vlogging/"><u>In 2024, Capturing Contentment  A Practical Guide to Daily Vlogging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>2024 Approved  Effortless Engagement  How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-transforming-frost-into-warmth-video-backdrops-guide/"><u>In 2024, Transforming Frost Into Warmth  Video Backdrops Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-learn-to-craft-eye-catching-youtube-thumbnails-using-your-phone/"><u>[Updated] In 2024, Learn to Craft Eye-Catching YouTube Thumbnails Using Your Phone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/your-way-to-speedy-youtube-video-processing/"><u>Hack Your Way to Speedy YouTube Video Processing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unleash-your-creative-brand-selecting-one-of-a-kind-channel-titles/"><u>2024 Approved  Unleash Your Creative Brand  Selecting One-of-a-Kind Channel Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-path-to-youtube-wealth-top-revenue-tactics-for-2024/"><u>[Updated] The Path to YouTube Wealth  Top Revenue Tactics for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-to-pay-for-apple-tvplus-on-iphone-12-pro-max-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID to Pay for Apple TV+ on iPhone 12 Pro Max</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-filmora-is-a-great-video-editor-that-many-users-are-making-intro-video-with-it-this-article-will-guide-you-how-to-create-an-intro-video-with-filmora/"><u>New Filmora Is a Great Video Editor that Many Users Are Making Intro Video with It. This Article Will Guide You How to Create an Intro Video with Filmora</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-ready-your-device-overcome-tiktok-crashes-on-iphoneandroid-for-2024/"><u>[Updated] Ready Your Device? Overcome TikTok Crashes on iPhone/Android for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-oneplus-ace-2v-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on OnePlus Ace 2V? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-top-25-leaders-in-digital-influence/"><u>[New] 2024 Approved  Instagram's Top 25 Leaders in Digital Influence</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-galaxy-f14-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Galaxy F14 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-5-simple-steps-to-record-your-youtube-streams/"><u>[New] In 2024, 5 Simple Steps to Record Your YouTube Streams</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-mastering-animation-top-software-recommendations-for-mac-and-windows/"><u>New 2024 Approved Mastering Animation Top Software Recommendations for Mac and Windows</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-free-video-stabilizer-software-for-windows-and-macos-a-review/"><u>New 2024 Approved Free Video Stabilizer Software for Windows and macOS A Review</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-s17t-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo S17t | Dr.fone</u></a></li>
+</ul></div>

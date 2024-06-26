@@ -1,7 +1,7 @@
 ---
 title: "\"Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone\""
-date: 2024-06-21 14:55:45
-updated: 2024-06-24 12:11:38
+date: 2024-06-25T20:09:59.935Z
+updated: 2024-06-26T20:09:59.935Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,7 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload
-
-![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -58,7 +56,7 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
-![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+![post YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -70,9 +68,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
@@ -86,15 +82,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload
-
-![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details
-
-![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -110,7 +102,7 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -157,3 +149,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-striking-a-balance-in-youtube-thumbnail-sizing/"><u>[New] In 2024, Striking a Balance in YouTube Thumbnail Sizing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omponents-that-lift-you-in-youtube-viewership-for-2024/"><u>The Components That Lift You in YouTube Viewership for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/usical-masterclasses-in-15-short-video-formats-on-youtube/"><u>[New] Musical Masterclasses in 15 Short Video Formats on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-the-power-of-referrals-how-to-build-effective-youtube-links/"><u>[New] In 2024, Unlock the Power of Referrals  How to Build Effective YouTube Links</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/pening-list-of-the-top-12-yt-gamers-intros-freepaid-sessions/"><u>Eye-Opening List of the Top 12 YT Gamers' Intros (Free/Paid Sessions)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/traction-with-effective-video-descriptions-and-tagging-for-2024/"><u>Gain Traction with Effective Video Descriptions and Tagging for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-blueprint-for-producing-high-impact-youtube-videos/"><u>2024 Approved  The Blueprint for Producing High-Impact YouTube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-top-strategies-for-gamers-recording-with-windows-10/"><u>[New] In 2024, The Top Strategies for Gamers Recording with Windows 10</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-instant-cartoon-effects-for-your-photos/"><u>New 2024 Approved Instant Cartoon Effects for Your Photos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-roadmap-to-thriving-in-twitter-live-broadcasts/"><u>The Roadmap to Thriving in Twitter Live Broadcasts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-how-to-be-a-virtual-visitor-in-friendly-tiktok-streams/"><u>In 2024, How to Be a Virtual Visitor in Friendly TikTok Streams</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-if-you-have-transferred-to-the-mac-platform-you-may-need-virtualdub-for-mac-alternatives-because-virtualdub-only-supports-windows-os-nativel/"><u>Updated In 2024, If You Have Transferred to the Mac Platform, You May Need VirtualDub for Mac Alternatives because VirtualDub only Supports Windows OS Natively</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-supercharge-your-social-media-scrapping-the-best-5-chrome-plugins/"><u>[New] In 2024, Supercharge Your Social Media Scrapping  The Best 5 Chrome Plugins</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-shotchrome-xtreme-top-tier-os-capturing-for-2024/"><u>[Updated] ShotChrome Xtreme  Top-Tier OS Capturing for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/from-zero-to-hero-navigating-youtubes-growth-journey-for-2024/"><u>From Zero to Hero  Navigating Youtube's Growth Journey for 2024</u></a></li>
+</ul></div>

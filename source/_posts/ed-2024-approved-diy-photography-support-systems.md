@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Photography Support Systems\""
-date: 2024-06-21 21:22:37
-updated: 2024-06-24 12:42:14
+date: 2024-06-25T20:27:17.102Z
+updated: 2024-06-26T20:27:17.102Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
 
 ## DIY Photography Support Systems
 
-# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
  Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
 
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -126,3 +122,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/approved-transform-your-content-3-effective-techniques-for-youtube-reaction-magic/"><u>2024 Approved  Transform Your Content  3 Effective Techniques for YouTube Reaction Magic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-and-easy-channels-personalize-your-youtube-url-now-for-2024/"><u>[Updated] Quick and Easy Channels  Personalize Your YouTube URL Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-content-makers-compensation-breakdown-for-youtube-shorts/"><u>[New] 2024 Approved  Content Makers' Compensation Breakdown for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-track-and-validate-channels-earnings/"><u>In 2024, Track and Validate Channels' Earnings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-integrate-youtube-media-into-gslides-for-2024/"><u>[Updated] Step-by-Step Guide to Integrate YouTube Media Into GSlides for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-roadmap-for-youtube-streaming-titans-in-gaming-for-2024/"><u>[New] The Roadmap for YouTube Streaming Titans in Gaming for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-gamers-signature-look-essential-template-tips-for-channels/"><u>[Updated] Gamers' Signature Look  Essential Template Tips for Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-video-production-with-free-music-for-2024/"><u>Streamline Video Production with Free Music for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-passive-to-profitable-8-beginners-revenue-hacks-for-youtube/"><u>In 2024, From Passive to Profitable  8 Beginner's Revenue Hacks for YouTube</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/pro-grade-animation-top-software-picks-for-mac-and-windows-users-for-2024/"><u>Pro-Grade Animation Top Software Picks for Mac and Windows Users for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/index-of-varied-photographic-and-videography-instruments-for-2024/"><u>Index of Varied Photographic and Videography Instruments for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-steady-hand-how-to-remove-camera-shake-in-after-effects/"><u>New The Steady Hand How to Remove Camera Shake in After Effects</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-mastering-mobile-voice-recording-on-android-the-top-10-high-end-applications/"><u>New In 2024, Mastering Mobile Voice Recording on Android The Top 10 High-End Applications</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-perfecting-pics-on-pc-our-top-5-snipping-apps-unveiled/"><u>In 2024, Perfecting Pics on PC  Our Top 5 Snipping Apps Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-peeling-away-at-sharex-comparative-views-and-substitutes/"><u>[Updated] In 2024, Peeling Away at ShareX  Comparative Views & Substitutes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-90-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-ultimate-voice-eradication-suite-handpicking-the-top-7-tools-for-online-and-offline-use/"><u>New The Ultimate Voice Eradication Suite Handpicking the Top 7 Tools for Online & Offline Use</u></a></li>
+</ul></div>

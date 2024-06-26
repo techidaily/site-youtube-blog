@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Reduce Buffering & Lag - Turn On AV1 in YouTube Settings for 2024\""
-date: 2024-06-18 16:39:50
-updated: 2024-06-19 11:46:56
+date: 2024-06-25T20:33:24.346Z
+updated: 2024-06-26T20:33:24.346Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,26 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-tale-of-two-platforms-youtube-and-dailymention-for-2024/"><u>[Updated] The Tale of Two Platforms  YouTube and DailyMention for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-bridging-youtube-and-imovie-with-seamless-audio-transfer/"><u>[Updated] 2024 Approved  Bridging YouTube and iMovie with Seamless Audio Transfer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-thumbnails-with-ease/"><u>[New] In 2024, Mastering YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/your-viewing-muscles-handling-multiple-youtube-videos/"><u>Flex Your Viewing Muscles  Handling Multiple YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-incorporating-yt-playlists-into-web-design/"><u>[Updated] Incorporating YT Playlists Into Web Design</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-caption-implementation-essentials/"><u>[Updated] 2024 Approved  YouTube Caption Implementation Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-discover-youtubes-frame-advantage-five-free-tools/"><u>2024 Approved  Discover YouTube's Frame Advantage - Five Free Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-behind-the-scenes-of-youtube-income-generation/"><u>[Updated] Behind the Scenes of YouTube Income Generation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-effective-youtube-banners-pros-and-cons-to-avoid/"><u>[New] 2024 Approved  Effective YouTube Banners  Pros and Cons to Avoid</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-pixel-perfect-preservation-the-best-practices-of-recording-games/"><u>[New] Pixel-Perfect Preservation  The Best Practices of Recording Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/take-portrait-photo-with-your-old-iphone-x8-plus7-plus-for-2024/"><u>Take Portrait Photo with Your Old iPhone X/8 Plus/7 Plus for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/social-splendor-leading-story-filter-hits-for-2024/"><u>Social Splendor  Leading Story Filter Hits for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-lava-blaze-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Lava Blaze Pro 5G Location | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-filmmakers-guide-to-cutting-out-ambient-sound-from-imovie-on-a-mac/"><u>Updated The Filmmakers Guide to Cutting Out Ambient Sound From iMovie on a Mac</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-vivo-y78plus-t1-edition-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Vivo Y78+ (T1) Edition Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-utilizing-zooms-snap-functionality-for-2024/"><u>[Updated] Utilizing Zoom's Snap Functionality for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-screen-captures-galore-expert-techniques-for-twitter-visuals-for-2024/"><u>[New] Screen Captures Galore  Expert Techniques for Twitter Visuals for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-xr-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone XR | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Scouring for Meaningful YouTube Discussions for 2024"
-date: 2024-06-22 18:57:10
-updated: 2024-06-24 11:33:47
+date: 2024-06-25T20:42:54.838Z
+updated: 2024-06-26T20:42:54.838Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ Comments are the best way to interact with subscribers on YouTube. YouTube’s S
 
 If you have a channel, you can use this feature in some simple steps.
 
-1. Visit YouTube[website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
+1. Visit YouTube [website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
 2. Go to the top right corner of your homepage, and you will find your profile icon. Click on it and from the drop-down menu, select the YouTube Studio option.
 3. This will take you to the YouTube Studio home page. On the left side, find and click on the Comments option, and then you will see all comments your YouTube channel has received.
 4. You can now click on the Filter icon from the comments section and type in the search term directly. Or, you can click the Search from the options, and type in the words you are looking for.
@@ -57,7 +57,7 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+![YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
@@ -67,11 +67,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 1. First, you need to install this extension. You can click this URL <https://chrome.google.com/webstore/detail/ycs-youtube-comment-searc/pmfhcilikeembgbiadjiojgfgcfbcoaa?hl=en> Or, you can open the Chrome Extensions page, and in the search bar at the top, type in YCS – YouTube Comment Search and press Enter.
 2. Click on the result that appears and then tap on the Add to Chrome button. This will add the extension to your browser.
-3. Once you add the extension, open[YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
+3. Once you add the extension, open [YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -79,7 +79,7 @@ If you are looking for an easy method to search YouTube comments, you can use th
 
 How can you use this extension to search YouTube comments? Here is a simple step-by-step tutorial.
 
-1. First, you need to download the extension from[Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
+1. First, you need to download the extension from [Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
 2. Next, you need to install it in the browser. Open your Chrome browser, and from the top right corner, click on the three vertical dots. You will find the Settings option towards the end of the drop-down menu, and then click on it.
 3. When the Settings page opens, select Extensions from the panel on the left side of the webpage. This will take you to a new tab.
 4. On the top right corner of the page, there will be a toggle switch called Developer Mode. Turn it on if it is off.
@@ -113,9 +113,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -161,3 +161,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ting-your-youtube-presence-with-effective-tags-for-2024/"><u>Elevating Your YouTube Presence with Effective Tags for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/onetizing-your-content-deciphering-the-minimum-views-needed-for-2024/"><u>[New] Monetizing Your Content  Deciphering the Minimum Views Needed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-aspect-ratios-on-youtube-videosshortsads/"><u>[New] In 2024, Mastering the Art of Aspect Ratios on YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-content-potential-through-youtube-aspect-ratios/"><u>[New] In 2024, Unlocking Content Potential Through YouTube Aspect Ratios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-strategies-to-prevent-account-suspension-on-youtube/"><u>[Updated] 2024 Approved  Strategies to Prevent Account Suspension on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-earnings-explored-in-depth-look-at-dm-and-yo/"><u>Video Earnings Explored  In-Depth Look at Dm & Yo</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-permanent-ousting-technique-for-the-quick-video-feature-for-2024/"><u>[Updated] Permanent Ousting Technique for the Quick Video Feature for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-time-warp-watch-lists-in-the-reverse-order-for-2024/"><u>[Updated] YouTube's Time Warp  Watch Lists in the Reverse Order for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-reach-optimal-timestamp-in-fb-posting/"><u>In 2024, Reach Optimal Timestamp in Fb Posting</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-sound-shifts-in-free-fire-for-2024/"><u>Mastering Sound Shifts in Free Fire for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/get-professional-results-for-free-8-online-video-stabilizers-you-need-to-try-for-2024/"><u>Get Professional Results for Free 8 Online Video Stabilizers You Need to Try for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastery-in-maintaining-a-clean-feed-best-twitter-tools/"><u>2024 Approved  Mastery in Maintaining a Clean Feed  Best Twitter Tools</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-unraveling-the-mystery-how-premiere-and-after-effects-differ-in-video-production/"><u>In 2024, Unraveling the Mystery How Premiere and After Effects Differ in Video Production</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-x-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-samsung-galaxy-m34-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Samsung Galaxy M34 for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-zte-blade-a73-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your ZTE Blade A73 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-videotwitteraudio-direct-conversion/"><u>[New] 2024 Approved  VideoTwitterAudio  Direct Conversion</u></a></li>
+</ul></div>

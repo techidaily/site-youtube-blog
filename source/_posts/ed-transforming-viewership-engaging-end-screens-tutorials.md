@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Viewership  Engaging End Screens Tutorials\""
-date: 2024-06-10 12:10:54
-updated: 2024-06-12 12:40:11
+date: 2024-06-25T21:12:59.491Z
+updated: 2024-06-26T21:12:59.491Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/052918d3e56b96021eca7b3225588078d8b2ee409
 
 ## Transforming Viewership: Engaging End Screens Tutorials
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -77,23 +75,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -103,11 +99,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -144,3 +140,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/approved-efficiently-broadcasting-your-videos-as-shorts-via-computers-and-mobile/"><u>2024 Approved  Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-content-potential-through-youtube-aspect-ratios/"><u>[New] In 2024, Unlocking Content Potential Through YouTube Aspect Ratios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovating-sustainable-communities-within-the-concrete-jungle/"><u>[Updated] Innovating Sustainable Communities Within the Concrete Jungle</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-in-class-textify-your-vlogs/"><u>[New] Best in Class  Textify Your Vlogs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-engagement-and-analytics-harnessing-tubebuddys-insights/"><u>[New] In 2024, Optimize Engagement & Analytics - Harnessing TubeBuddy's Insights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-growth-potential-with-savvy-analysis-of-youtube-data-for-2024/"><u>[Updated] Unlock Growth Potential with Savvy Analysis of YouTube Data for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-insta-video-sharing-from-youtube/"><u>[Updated] 2024 Approved  Mastering Insta-Video Sharing From YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-complete-guide-to-youtube-ad-free-viewing-chrome-and-safari/"><u>[New] In 2024, The Complete Guide to YouTube Ad-Free Viewing (Chrome & Safari)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition/"><u>In 2024, The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-rapid-growth-techniques-for-youtube-views-via-collaborative-videos/"><u>2024 Approved  Rapid Growth Techniques for YouTube Views via Collaborative Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-strategic-visual-marketing-top-10-ideas-to-amplify-your-instagram-presence/"><u>[New] 2024 Approved  Strategic Visual Marketing  Top 10 Ideas to Amplify Your Instagram Presence</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-zero-viewers-10-essential-tips-for-video-popularity/"><u>2024 Approved  Conquer Zero Viewers  10 Essential Tips for Video Popularity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/self-verification-on-instagram-what-does-it-mean-for-us/"><u>Self-Verification on Instagram - What Does It Mean for Us?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-2024s-best-cameras-unveiled-high-quality-videography/"><u>[New] 2024'S Best Cameras Unveiled - High-Quality Videography</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-free-templates-for-dynamic-youtube-channel-closures/"><u>2024 Approved  Free Templates for Dynamic YouTube Channel Closures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-musical-impact-on-instagram-posts/"><u>[Updated] Maximizing Musical Impact on Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-disclosing-the-top-10-hidden-story-enthusiasts/"><u>[Updated] Disclosing the Top 10 Hidden Story Enthusiasts</u></a></li>
+</ul></div>

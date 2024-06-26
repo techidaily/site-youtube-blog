@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Non-Tripod Techniques for Still Cameras\""
-date: 2024-06-20 12:29:14
-updated: 2024-06-23 11:35:41
+date: 2024-06-25T20:18:26.871Z
+updated: 2024-06-26T20:18:26.871Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/9ea24c6282003fe5eaf1336598f1ab6b49832d478
 
 ## Non-Tripod Techniques for Still Cameras
 
-# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
  Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
 
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -126,3 +122,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-prime-live-tech-the-most-popular-streaming-tools-reviewed/"><u>In 2024, Prime Live Tech  The Most Popular Streaming Tools Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-essentials-of-monetization-youtube-policy-update-for-2024/"><u>[New] The Essentials of Monetization  YouTube Policy Update for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-visual-marketing-on-youtube-with-banners-and-thumbnails/"><u>[New] 2024 Approved  Mastering Visual Marketing on YouTube with Banners & Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-maintain-youtube-session-in-the-background/"><u>[Updated] How to Maintain YouTube Session in the Background</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-yt-buzz-top-music-video-responses-and-why-they-roar/"><u>2024 Approved  YT Buzz  Top Music Video Responses & Why They Roar</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-speedy-fortnite-cover-art-creation/"><u>[New] 2024 Approved  Speedy Fortnite Cover Art Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tial-tips-for-flv-file-fusion-on-youtube-for-2024/"><u>Essential Tips for FLV File Fusion on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-early-bird-winners-youtubes-quick-favorites/"><u>[New] 2024 Approved  Early Bird Winners  Youtube's Quick Favorites</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-video-maker/"><u>2024 Approved What Is an AI Video Maker?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/step-by-step-guide-incorporating-music-in-your-tiktok-videos/"><u>Step-by-Step Guide  Incorporating Music in Your TikTok Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-resize-images-quickly-and-easily-with-these-online-tools/"><u>In 2024, Resize Images Quickly and Easily with These Online Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-calculate-aspect-ratios-with-ease-top-5-online-tools-for-2024/"><u>Updated Calculate Aspect Ratios with Ease Top 5 Online Tools for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-5-most-inspiring-tiktok-stars/"><u>[Updated] 2024 Approved  5 Most Inspiring TikTok Stars</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cartoony-conversion-chronicles-top-windowsmac-imaging-software/"><u>Cartoony Conversion Chronicles  Top Windows/Mac Imaging Software</u></a></li>
+</ul></div>

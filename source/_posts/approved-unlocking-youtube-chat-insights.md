@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking YouTube Chat Insights\""
-date: 2024-06-25 23:52:58
-updated: 2024-06-26 12:17:33
+date: 2024-06-25T21:18:10.212Z
+updated: 2024-06-26T21:18:10.212Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ Comments are the best way to interact with subscribers on YouTube. YouTube’s S
 
 If you have a channel, you can use this feature in some simple steps.
 
-1. Visit YouTube[website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
+1. Visit YouTube [website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
 2. Go to the top right corner of your homepage, and you will find your profile icon. Click on it and from the drop-down menu, select the YouTube Studio option.
 3. This will take you to the YouTube Studio home page. On the left side, find and click on the Comments option, and then you will see all comments your YouTube channel has received.
 4. You can now click on the Filter icon from the comments section and type in the search term directly. Or, you can click the Search from the options, and type in the words you are looking for.
@@ -57,7 +57,7 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+![YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
@@ -67,11 +67,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 1. First, you need to install this extension. You can click this URL <https://chrome.google.com/webstore/detail/ycs-youtube-comment-searc/pmfhcilikeembgbiadjiojgfgcfbcoaa?hl=en> Or, you can open the Chrome Extensions page, and in the search bar at the top, type in YCS – YouTube Comment Search and press Enter.
 2. Click on the result that appears and then tap on the Add to Chrome button. This will add the extension to your browser.
-3. Once you add the extension, open[YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
+3. Once you add the extension, open [YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -79,7 +79,7 @@ If you are looking for an easy method to search YouTube comments, you can use th
 
 How can you use this extension to search YouTube comments? Here is a simple step-by-step tutorial.
 
-1. First, you need to download the extension from[Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
+1. First, you need to download the extension from [Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
 2. Next, you need to install it in the browser. Open your Chrome browser, and from the top right corner, click on the three vertical dots. You will find the Settings option towards the end of the drop-down menu, and then click on it.
 3. When the Settings page opens, select Extensions from the panel on the left side of the webpage. This will take you to a new tab.
 4. On the top right corner of the page, there will be a toggle switch called Developer Mode. Turn it on if it is off.
@@ -113,9 +113,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -161,3 +161,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/approved-comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility/"><u>2024 Approved  Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unleashing-revenue-with-review-videos-of-household-items/"><u>[Updated] 2024 Approved  Unleashing Revenue with Review Videos of Household Items</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ultimate-guide-7-preferred-android-ad-blocking-tools/"><u>[Updated] 2024 Approved  Ultimate Guide  7 Preferred Android Ad Blocking Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-step-inside-youtube-master-one-frame-no-money-spent/"><u>2024 Approved  Step Inside YouTube  Master One Frame, No Money Spent</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-thriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>[New] In 2024, Thriving in Digital Realms  The Power of Well-Planned Backlinks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-joshis-success-youtube-earnings-strategy/"><u>[New] In 2024, Joshi's Success  YouTube Earnings Strategy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-video-creation-secrets-of-the-professionals-unveiled/"><u>2024 Approved  YouTube Video Creation  Secrets of the Professionals Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-identifying-and-accessing-your-music-picks-on-youtube/"><u>In 2024, Identifying and Accessing Your Music Picks on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/down-of-earnings-how-much-does-a-clicky-make-for-2024/"><u>Breakdown of Earnings  How Much Does a Clicky Make for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-creative-summit-top-talent-junction/"><u>[Updated] 2024 Approved  The Creative Summit  Top Talent Junction</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-breaking-barriers-joining-games-via-xbox-zoom/"><u>In 2024, Breaking Barriers  Joining Games via Xbox Zoom</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-learn-video-editing-for-free-top-software-for-beginners-for-2024/"><u>New Learn Video Editing for Free Top Software for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-8-sites-to-download-free-green-screen-backgrounds-and-footage/"><u>2024 Approved  8 Sites to Download Free Green Screen Backgrounds and Footage</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-advanced-card-selections-uhd-video-perfection/"><u>2024 Approved  Advanced Card Selections  UHD Video Perfection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-list-of-premium-4k-yt-converters-ranked-by-usage/"><u>In 2024, Master List of Premium 4K YT Converters Ranked by Usage</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-7-premier-choices-for-androids-audio-editing-needs-a-comprehensive-guide-beyond-audacity/"><u>Updated In 2024, 7 Premier Choices for Androids Audio Editing Needs – A Comprehensive Guide Beyond Audacity</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-most-valuable-maps-top-treasures-in-terraria-for-2024/"><u>[New] Most Valuable Maps  Top Treasures in Terraria for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-instant-audience-expansion-with-these-channel-upgrades/"><u>2024 Approved  Instant Audience Expansion with These Channel Upgrades</u></a></li>
+</ul></div>

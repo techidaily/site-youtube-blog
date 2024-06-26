@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Essential List  6 Diverse Websites for YouTube Visuals\""
-date: 2024-06-21 22:46:34
-updated: 2024-06-24 12:52:42
+date: 2024-06-25T21:11:54.305Z
+updated: 2024-06-26T21:11:54.305Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/2aeb02acf862b6ad4b67e9ce99d75289c32cf73cc
 
 ## The Essential List: 6 Diverse Websites for YouTube Visuals
 
-# 6 Completely Different Places to Get Icons and Logos for YouTube Videos
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 6 Completely Different Places to Get Icons and Logos for YouTube Videos ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -39,7 +37,7 @@ We’ve made a list of 6 sites where you can download icons and logos for free f
 
 You might also want to check out these YouTube channels offering free [profile picture templates](https://www.filmora.io/community-blog/youtube-profile-picture-templates-%E2%80%93-free-downloads%21-310.html).
 
-## 1\. [Flaticon.com](https://www.flaticon.com/)
+## 1\. Flaticon.com
 
 **Key Points:**
 
@@ -50,17 +48,17 @@ I’m putting Flaticon.com right at the top of this list because it has somethin
 
 You start out on Flaticon by searching for a theme like beauty, gaming, flowers, or emojis. I searched for ‘birds’ and found these cuties.
 
-![ YouTube Logo Icon Download Site Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon.jpg)
+![YouTube Logo Icon Download Site Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon.jpg)
 
 _These aren’t all the birds on Flaticon, just a few._ _They had a huge selection in all the different searches I tried._
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
 
-![  Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
+![Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
 
-![ Edit Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-flaticon.jpg)
+![Edit Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-flaticon.jpg)
 
 _I never apologize for puns._
 
@@ -68,13 +66,13 @@ Once you like the look of your icon, just click Download. You will be prompted t
 
 After clicking on a format you will also be prompted to choose a size for your image. It’s always best to go with the largest image you can – its way easier to shrink things and keep them looking good than it is to have to enlarge them.
 
-![ download Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/download-icons-logos-on-flaticon.jpg)
+![download Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/download-icons-logos-on-flaticon.jpg)
 
 Flaticon has a great selection, it’s free, and they make it really easy to edit your creations. I would strongly recommend this site to anyone in the market for an icon or logo.
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
-## 2\. [Freepik.com](https://www.freepik.com/)
+## 2\. Freepik.com
 
 **Key Points:**
 
@@ -84,7 +82,7 @@ Flaticon asks that you include an “Icon made by \[author link\] from <www.flat
 
 On freepik, you start off by searching for a theme (like the genre of your YouTube title or the topic of a video, i.e. ‘makeup’ or ‘music’). I searched for ‘cat’.
 
-![ download Logo Icon on Freepik](https://images.wondershare.com/filmora/article-images/icons-logos-on-freepik.jpg)
+![download Logo Icon on Freepik](https://images.wondershare.com/filmora/article-images/icons-logos-on-freepik.jpg)
 
 _A few of the sets available on freepik. The crown icon means you need to be a paying Premium member, but most things are free._
 
@@ -92,7 +90,7 @@ You can’t edit on freepik, and in order to download for free you need to inclu
 
 You do not choose what format to download your images in on freepik. When you hit ‘Free Download’ it will automatically download a zip file which will contain both a .jpg and a .eps. The EPS is editable in any ‘vector graphics editor’, like Adobe Illustrator, and YouTube supports .jpg files.
 
-## 3\. [Seeklogo.net](https://www.seeklogo.net/)
+## 3\. Seeklogo.net
 
 **Key Points:**
 
@@ -105,11 +103,11 @@ In the ‘search’ on Seeklogo.net, you can type in the name of a brand or indu
 
 I searched for YouTube – you never know when you might need the YouTube logo.
 
-![ YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
+![YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
-## 4\. [IconArchive.com](http://www.iconarchive.com/)
+## 4\. IconArchive.com
 
 **Key Points:**
 
@@ -118,13 +116,13 @@ Although the site does not advertise PNG in the list of formats on their front p
 
 IconArchive has a huge selection of icons with somewhat of an office/business slant. I searched for ‘flower’ and half the results were of file-folders with flowers on them.
 
-![ YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
+![YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
 
 _Could be cool for a lifestyle video about school or work?_
 
 My favorite thing about IconArchive is its search features. It allows you to filter results by color, size (down to the specific resolution), category, background color, style, and a lot more.
 
-![ YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
+![YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
 
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
 
@@ -134,7 +132,7 @@ Downloads are available in different sizes and formats including PNG. PNG is alw
 
 Note that all of your different download buttons will be located underneath your image. They favor those ads that look like ‘download’ or ‘start now’ buttons, and the ads sit right next to the images on the right, so it’s easy to get confused and click on the ad.
 
-## 5\. [Logaster.com](https://www.logaster.com/)
+## 5\. Logaster.com
 
 **Key Points:**
 
@@ -150,11 +148,11 @@ When you arrive on Logaster there’s a button right on their home page that say
 
 In Step 1 it’ll ask for your company name and an activity type. You just need to put in your channel name and choose something from the activity drop down that you focus on in your videos.
 
-![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
+![YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
-![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
+![YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
 _There are 10 pages of suggestions!_
 
@@ -164,7 +162,7 @@ After you click ‘save’ in the last step you’ll be prompted to provide an e
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
 
-## 6\. [Icons8.com](https://icons8.com/)
+## 6\. Icons8.com
 
 **Key Points:**
 
@@ -178,31 +176,31 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
-![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
+![Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
-![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
+![Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
 You can give your icon a pretty different look from its default. Check this out:
 
-![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
+![Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
-![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
+![Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
 
 I downloaded my image and tried to see how it would look as an icon/profile picture. As you can see, it was pretty blurry in the preview:
 
-![ Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
+![Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
-![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
+![Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
 
@@ -233,3 +231,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls/"><u>[Updated] 2024 Approved  The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-resource-on-affordable-webinars-on-youtube/"><u>[New] In 2024, The Ultimate Resource on Affordable Webinars on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-charting-out-your-audience-youtubes-blueprint-for-2024/"><u>[Updated] Charting Out Your Audience  YouTube's Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uide-to-starting-a-successful-youtube-gaming-channel/"><u>The Guide to Starting a Successful YouTube Gaming Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/forming-viewers-experience-best-youtube-end-screens/"><u>Transforming Viewers' Experience  Best Youtube End Screens</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pick-the-best-days-to-post-on-youtube/"><u>[New] In 2024, Pick the Best Days to Post on YouTube!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-full-time-careers-meet-video-content-a-harmonious-mix/"><u>[Updated] In 2024, Full-Time Careers Meet Video Content  A Harmonious Mix</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-branding-edge-design-strategies-for-game-changing-banners-for-2024/"><u>[Updated] The Branding Edge  Design Strategies for Game-Changing Banners for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seeking-the-perfect-match-for-samsung-gear-360-find-it-here/"><u>In 2024, Seeking the Perfect Match for Samsung Gear 360 - Find It Here</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-sonic-sharpening-advanced-techniques-for-precise-de-reverberation-in-audio-processing/"><u>Updated Sonic Sharpening Advanced Techniques for Precise De-Reverberation in Audio Processing</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-take-your-videos-to-the-next-level-best-adobe-premiere-plugins-free-download/"><u>2024 Approved Take Your Videos to the Next Level Best Adobe Premiere Plugins (Free Download)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-v30-pro-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo V30 Pro for Parents | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-comprehensive-review-of-the-latest-picsart-updates/"><u>[New] A Comprehensive Review of the Latest PicsArt Updates</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-boosting-your-tiktok-presence-a-guide-to-higher-views-and-likes/"><u>[Updated] Boosting Your TikTok Presence  A Guide to Higher Views & Likes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-every-gopro-feature-explained-side-by-side/"><u>2024 Approved  Every Gopro Feature, Explained Side by Side</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-vivo-y55s-5g-2023-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo Y55s 5G (2023)? Try These Fixes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/auto-arcade-adventures-for-kids/"><u>Auto Arcade Adventures for Kids</u></a></li>
+</ul></div>

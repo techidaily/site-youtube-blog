@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Infuse Personality Into Your Content with Custom Thumbnails for 2024"
-date: 2024-06-19 17:48:15
-updated: 2024-06-21 12:55:15
+date: 2024-06-25T20:11:51.172Z
+updated: 2024-06-26T20:11:51.172Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ## Infuse Personality Into Your Content with Custom Thumbnails
 
-# How To Add Custom Thumbnails to Your YouTube Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -87,7 +85,7 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 * After signing into YouTube with your Google account, click on your profile on the top right corner. Click on **YouTube Studio** from the drop-down menu.
 
-![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
+![YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
@@ -127,7 +125,7 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
-![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
+![YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -141,7 +139,7 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
-![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
+![YouTube Thumbnail:  Don’t Be Mysterious](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -171,7 +169,7 @@ You want to use colors that will help you stand out from the other search result
 
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
-![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
+![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -222,3 +220,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/nleashing-youtube-talent-the-best-themes-for-channel-growth/"><u>[New] Unleashing YouTube Talent  The Best Themes for Channel Growth</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aster-video-production-best-lenses-for-online-platforms-for-2024/"><u>[New] Master Video Production  Best Lenses for Online Platforms for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-humble-beginnings-to-prodigy-carryminatis-earnings-ajey/"><u>[Updated] In 2024, From Humble Beginnings to Prodigy  CarryMinati's Earnings (Ajey)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/zero-to-hero-youtube-setup-growth-and-profit-strategies-for-2024/"><u>From Zero to Hero  YouTube Setup, Growth & Profit Strategies for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unraveling-successs-secrets-how-to-amass-more-subscribers-on-youtube/"><u>[Updated] Unraveling Success's Secrets  How to Amass More Subscribers on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-infographics-leveraging-social-media-videos-for-2024/"><u>[Updated] Infographics  Leveraging Social Media Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-masterful-guide-integrating-youtube-and-social-media-platforms-fb/"><u>[New] In 2024, Masterful Guide  Integrating YouTube and Social Media Platforms FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-views-secrets-for-a-million-followers-for-2024/"><u>[New] Mastering Youtube Views  Secrets for a Million Followers for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-x-fold-2-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo X Fold 2</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-artisanfusion-8k-montage-magic-toolkit/"><u>2024 Approved  ArtisanFusion  8K Montage Magic Toolkit</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-vlc-mp4-and-various-format-conversion-techniques/"><u>In 2024, Mastering VLC  MP4 & Various Format Conversion Techniques</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/quick-gain-your-guide-to-snagging-tiktoks-swiftly/"><u>Quick Gain  Your Guide to Snagging TikToks Swiftly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-list-of-free-video-cutter-and-joiner-software-for-beginners/"><u>New The Ultimate List of Free Video Cutter and Joiner Software for Beginners</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12plus-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme 12+ 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leveraging-slug-lines-for-content-engagement/"><u>In 2024, Leveraging Slug Lines for Content Engagement</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-quick-and-effective-methods-to-save-instagram-stories/"><u>[New] In 2024, Quick & Effective Methods to Save Instagram Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-haul-videos-tips-and-tricks-for-editors/"><u>In 2024, Mastering Haul Videos  Tips & Tricks for Editors</u></a></li>
+</ul></div>

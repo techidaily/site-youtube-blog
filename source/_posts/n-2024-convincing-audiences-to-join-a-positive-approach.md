@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Convincing Audiences to Join  A Positive Approach\""
-date: 2024-06-21 14:39:45
-updated: 2024-06-24 11:27:18
+date: 2024-06-25T20:35:13.629Z
+updated: 2024-06-26T20:35:13.629Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/fce57db6d0ca9f41bfe3bd2fdd239ef79b5c70d70
 
 ## Convincing Audiences to Join: A Positive Approach
 
-# How to Get People to Subscribe to Your YouTube Channel
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Get People to Subscribe to Your YouTube Channel ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -52,7 +50,7 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 #### Step 2: Get to The Point Quickly
 
@@ -62,7 +60,7 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -101,3 +99,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-basics-of-youtube-compliance-guidelines-for-2024/"><u>[Updated] The Basics of YouTube Compliance Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailoring-the-perfect-youtube-conclusion-for-engagement-for-2024/"><u>[Updated] Tailoring the Perfect YouTube Conclusion for Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/htenment-streams-foremost-ed-resources-online-for-2024/"><u>Enlightenment Streams  Foremost Ed Resources Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-epicurean-elites-top-food-vloggers-you-cant-miss/"><u>[New] 2024 Approved  Epicurean Elites  Top Food Vloggers You Can't Miss</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleash-your-youtube-playlists-a-comprehensive-guide-for-2024/"><u>[Updated] Unleash Your YouTube Playlists  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-creators-ultimate-playlist-the-best-free-sound-sources/"><u>[Updated] In 2024, YouTube Creators' Ultimate Playlist  The Best Free Sound Sources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-online-potential-mastering-the-art-of-thumbnail-sizing-for-2024/"><u>Unlocking Online Potential  Mastering the Art of Thumbnail Sizing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-blueprint-for-youtube-educational-video-success-stories/"><u>[New] In 2024, The Blueprint for YouTube Educational Video Success Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-songstreaming-the-best-free-apps-for-youtube-music-on-android-for-2024/"><u>[New] Seamless Songstreaming  The Best Free Apps for YouTube Music on Android for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-vecto-art-and-graphic-sites-compared-whos-the-best-in-2024/"><u>Free Vecto Art & Graphic Sites Compared – Who's the Best, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/pioneering-posts-a-facebook-guide-to-going-viral/"><u>Pioneering Posts  A Facebook Guide to Going Viral</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/transforming-music-production-in-logic-pro-x-with-these-essential-plugin-tools-freepaid/"><u>Transforming Music Production in Logic Pro X with These Essential Plugin Tools (Free/Paid)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-revamping-your-virtual-self-on-tiktok/"><u>In 2024, The Ultimate Guide to Revamping Your Virtual Self on TikTok</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-firefox-video-capture-utilities-for-2024/"><u>[New] Firefox Video Capture Utilities for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-complete-chromecast-handbook-streaming-any-video-format-like-a-pro/"><u>New 2024 Approved The Complete Chromecast Handbook Streaming Any Video Format Like a Pro</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-tips-for-efficiently-editing-videos-for-social-media-engagement-for-2024/"><u>[New] Tips for Efficiently Editing Videos for Social Media Engagement for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/how-to-prevent-gaps-in-live-obs-broadcasting-for-2024/"><u>How To Prevent Gaps In Live OBS Broadcasting for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-the-ultimate-guide-to-free-public-domain-video-downloads/"><u>New In 2024, The Ultimate Guide to Free Public Domain Video Downloads</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-mac-video-editing-app-turn-clips-into-masterpieces/"><u>2024 Approved Mac Video Editing App Turn Clips Into Masterpieces</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, DIY Guide to Turning YouTube Screen Time Into a FREE Screencast"
-date: 2024-06-22 16:30:17
-updated: 2024-06-25 11:17:20
+date: 2024-06-25T20:16:56.119Z
+updated: 2024-06-26T20:16:56.119Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 ## DIY Guide to Turning YouTube Screen Time Into a FREE Screencast
 
-# How To Record Screencast From YouTube For Free
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How To Record Screencast From YouTube For Free ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -45,9 +43,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Recording Screencast Video with YouTube
 
@@ -55,13 +51,13 @@ Step 1: Open YouTube on your computer and sign by using your Google Account. On 
 
 Step 2: On the create an event page, add a title for your screencast video; set privacy terms and then hit “Go Live Now” option.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
@@ -113,3 +109,26 @@ Follow @Max Wales
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ter-lab-top-7-sketches-and-vignettes-for-youtubers-for-2024/"><u>Laughter Lab  Top 7 Sketches & Vignettes for YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-jumpstart-your-youtube-venture-top-equipment-choices/"><u>2024 Approved  Jumpstart Your YouTube Venture  Top Equipment Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-effortless-internet-ranking-the-best-7-android-adblockers-now-for-2024/"><u>[Updated] Effortless Internet  Ranking the Best 7 Android AdBlockers Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-investing-in-a-monthly-youtube-premium-worthwhile/"><u>[New] Is Investing in a Monthly YouTube Premium Worthwhile?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-iphoneipad-cutting-edge-free-video-editing-tools-guide-for-2024/"><u>[Updated] IPhone/iPad  Cutting Edge Free Video Editing Tools Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-validating-your-online-identity-on-youtube-for-2024/"><u>[Updated] Step by Step  Validating Your Online Identity on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssessing-tseries-financial-outcomes-from-youtube-presence/"><u>[New] Assessing TSeries’ Financial Outcomes From YouTube Presence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free/"><u>[New] 2024 Approved  Unleash Creativity  Unlimited Samples of 50 YouTube Banners for Free</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-your-music-collection-youtube-playlists-guide/"><u>[New] 2024 Approved  Crafting Your Music Collection  YouTube Playlists Guide</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-best-celebrity-voice-generator-tools-to-transform-your-voice/"><u>Updated Best Celebrity Voice Generator Tools to Transform Your Voice</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-understanding-facebooks-new-policies-and-updates/"><u>2024 Approved  Understanding Facebook's New Policies and Updates</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-optimize-tiktok-videos-cross-platform-strategies-via-chrome/"><u>[New] In 2024, Optimize TikTok Videos  Cross-Platform Strategies via Chrome</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-ultimate-list-5-premium-live-stream-recorders-for-2024/"><u>[Updated] The Ultimate List  5 Premium Live Stream Recorders for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-navigating-the-filmmakers-dilemma-in-filmora/"><u>In 2024, Navigating the Filmmaker's Dilemma in Filmora</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-unleashing-the-power-of-lower-thirds-in-final-cut-pro-x/"><u>Updated 2024 Approved Unleashing the Power of Lower Thirds in Final Cut Pro X</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-clean-audio-clear-message-removing-unwanted-sounds-in-fcpx/"><u>New In 2024, Clean Audio, Clear Message Removing Unwanted Sounds in FCPX</u></a></li>
+<li><a href="https://techidaily.com/remove-lava-storm-5g-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Lava Storm 5G unlock screen</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-art-of-connecting-a-deep-dive-into-instagram-live-for-2024/"><u>The Art of Connecting  A Deep Dive Into Instagram Live for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-discords-no-1-love-finding-groups/"><u>In 2024, Discord's No. 1 Love Finding Groups</u></a></li>
+</ul></div>

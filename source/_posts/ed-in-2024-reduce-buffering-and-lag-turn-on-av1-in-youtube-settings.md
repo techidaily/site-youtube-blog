@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Reduce Buffering & Lag - Turn On AV1 in YouTube Settings\""
-date: 2024-06-22 21:50:16
-updated: 2024-06-25 10:38:52
+date: 2024-06-25T21:16:03.580Z
+updated: 2024-06-26T21:16:03.580Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,23 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-beauty-blogging-beginnings-crafting-a-captivating-youtube-channel/"><u>[Updated] 2024 Approved  Beauty Blogging Beginnings  Crafting a Captivating YouTube Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[Updated] In 2024, Cutting Edge Video Editing  Mastering Green Screen Integration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-art-of-applying-skin-secrets-establishing-an-online-beauty-platform/"><u>In 2024, The Art of Applying Skin Secrets  Establishing an Online Beauty Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-non-youtube-video-editing-discover-the-top-5-newcomers/"><u>In 2024, Non-YouTube Video Editing  Discover the Top 5 Newcomers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfect-your-yt-content-mastery-of-windows-movie-maker/"><u>[New] In 2024, Perfect Your YT Content  Mastery of Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-50-exclusive-youtube-banner-free-gifts/"><u>[Updated] Unlock 50 Exclusive YouTube Banner Free Gifts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-motorola-edge-2023-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-beam-brilliant-with-our-20-best-snapchat-lens-selection/"><u>[New] Beam Brilliant with Our 20 Best Snapchat Lens Selection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-simplified-guide-to-accurate-profile-ages-on-tiktok/"><u>[Updated] Simplified Guide to Accurate Profile Ages on TikTok</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-seamless-screen-capture-software-w10-edition/"><u>[Updated] Seamless Screen Capture Software, W10 Edition</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premier-mobile-podcast-apps/"><u>Premier Mobile Podcast Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-stop-chrome-from-skipping-playback-of-facebook-videos/"><u>2024 Approved  Stop Chrome From Skipping Playback of Facebook Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tonal-trails-the-journey-of-audio-blending/"><u>2024 Approved  Tonal Trails  The Journey of Audio Blending</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/scrutinized-screen-recording-tools-top-8-picks-for-2024/"><u>Scrutinized Screen Recording Tools  Top 8 Picks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instantaneous-viewership-metering/"><u>[New] Instantaneous Viewership Metering</u></a></li>
+</ul></div>

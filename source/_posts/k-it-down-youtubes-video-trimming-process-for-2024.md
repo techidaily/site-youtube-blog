@@ -1,7 +1,7 @@
 ---
 title: "\"Shrink It Down  YouTube's Video Trimming Process for 2024\""
-date: 2024-06-24 23:45:41
-updated: 2024-06-25 10:15:29
+date: 2024-06-25T20:54:06.603Z
+updated: 2024-06-26T20:54:06.603Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
 ## Shrink It Down: YouTube's Video Trimming Process
 
-# How to Edit the Length of a Video on YouTube
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit the Length of a Video on YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -42,9 +40,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
 
-#### Step 1 Get to the video editor
-
-![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### Step 1 Get to the video editor ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -89,3 +85,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-step-by-step-tutorial-broadcasting-360-video-on-youtube-live/"><u>[Updated] In 2024, Step-by-Step Tutorial  Broadcasting 360 Video on YouTube Live</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[New] 2024 Approved  Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-youtube-channel-lockdowns-device-specific-tips/"><u>[Updated] In 2024, Mastering YouTube Channel Lockdowns  Device-Specific Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/odern-marketers-guide-to-video-sharing-exploring-igtv-and-youtube-for-2024/"><u>The Modern Marketer's Guide to Video Sharing  Exploring IGTV & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[Updated] DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-engagement-with-proper-yt-thumbnail-size-for-2024/"><u>[Updated] Maximizing Engagement with Proper YT Thumbnail Size for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-video-voyages-venturing-into-the-vlog-profit-world/"><u>[Updated] In 2024, Video Voyages  Venturing Into the Vlog Profit World</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-premium-dj-visuals-library-seamless-download-experience/"><u>[New] In 2024, Premium DJ Visuals Library - Seamless Download Experience</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/understanding-the-dynamics-of-facebooks-in-stream-ad-model-for-2024/"><u>Understanding the Dynamics of Facebook's In-Stream Ad Model for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-enhancement-the-art-of-background-blur/"><u>YouTube Enhancement  The Art of Background Blur</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exiting-with-impact-mastering-podcast-conclusions-beyond-the-basics/"><u>2024 Approved  Exiting with Impact  Mastering Podcast Conclusions Beyond the Basics</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-6-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone 6</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-end-curated-content-on-instagram/"><u>[Updated] In 2024, End Curated Content on Instagram</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-smiles-in-screens-make-with-kapwing/"><u>2024 Approved  Smiles in Screens  Make with Kapwing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-best-practices-for-instagram-story-screenshots-for-2024/"><u>[New] Unveiling the Best Practices for Instagram Story Screenshots for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-leading-rogue-adventures-10-game-compilation/"><u>In 2024, Leading Rogue Adventures  #10 Game Compilation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elevate-your-teams-presence-blur-backdrops-with-expertise/"><u>[Updated] 2024 Approved  Elevate Your Teams Presence  Blur Backdrops with Expertise</u></a></li>
+</ul></div>

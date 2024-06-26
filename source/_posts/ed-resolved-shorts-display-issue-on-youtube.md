@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Resolved  Shorts Display Issue on YouTube\""
-date: 2024-06-22 19:26:52
-updated: 2024-06-25 12:34:28
+date: 2024-06-25T21:05:41.935Z
+updated: 2024-06-26T21:05:41.935Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,24 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-channel-art-make-banners-icons-and-thumbnails/"><u>2024 Approved  YouTube Channel Art - Make Banners, Icons, and Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/average-to-exceptional-discover-the-finest-free-intra-designs-for-2024/"><u>From Average to Exceptional  Discover the Finest Free Intra Designs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtubes-earning-potential-in-the-new-year-for-2024/"><u>[Updated] Unlocking YouTube's Earning Potential in the New Year for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-editors-codex-innovations-in-youtube-video-formatting/"><u>In 2024, The Editor's Codex  Innovations in Youtube Video Formatting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-profile-picture-templates-free-downloads/"><u>YouTube Profile Picture Templates – Free Downloads!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-designing-youtube-video-flow/"><u>[New] In 2024, Strategies for Designing YouTube Video Flow</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-chorus-of-creators-guidelines-for-sharing-sounds-online-for-2024/"><u>[Updated] Chorus of Creators  Guidelines for Sharing Sounds Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-5-youtube-video-editor-alternatives-for-2024/"><u>[New] Best 5 YouTube Video Editor Alternatives for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-echoes-of-engagement-the-subtle-aspects-of-story-viewing/"><u>[New] In 2024, Echoes of Engagement  The Subtle Aspects of Story Viewing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-master-class-appletv-facebook-and-you/"><u>[Updated] In 2024, Master Class  AppleTV, Facebook & You</u></a></li>
+<li><a href="https://article-helps.techidaily.com/master-the-sphere-ultimate-guide-to-live-broadcast-cameras/"><u>Master the Sphere  Ultimate Guide to Live Broadcast Cameras</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-huawei-p60-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Huawei P60 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/expert-mobile-and-desktop-options-for-perfect-discord-recording-for-2024/"><u>Expert Mobile & Desktop Options for Perfect Discord Recording for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-does-youtube-count-views-its-not-as-simple-as-you-think-for-2024/"><u>How Does YouTube Count Views? It's Not as Simple as You Think for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unlocking-full-potential-with-obs-and-skype-collaboration-tools/"><u>In 2024, Unlocking Full Potential with OBS and Skype Collaboration Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-cash-up-fast-a-newbies-guide-to-the-13-best-reddit-money-hacks/"><u>[New] In 2024, Cash Up Fast  A Newbie's Guide to the 13 Best Reddit Money Hacks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-immersion-in-hue-and-light-dreamcolors-z32-x-explored/"><u>2024 Approved  Immersion in Hue and Light  DreamColor's Z32 X Explored</u></a></li>
+</ul></div>

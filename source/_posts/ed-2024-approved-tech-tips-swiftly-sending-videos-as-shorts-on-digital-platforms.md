@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tech Tips  Swiftly Sending Videos as Shorts on Digital Platforms\""
-date: 2024-06-23 10:50:17
-updated: 2024-06-26 10:40:36
+date: 2024-06-25T20:53:48.426Z
+updated: 2024-06-26T20:53:48.426Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,7 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload
-
-![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -58,7 +56,7 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
-![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+![post YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -70,9 +68,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
@@ -86,15 +82,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload
-
-![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details
-
-![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -110,7 +102,7 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -157,3 +149,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-charting-your-youtube-trajectory-essential-tools-from-social-blade-for-2024/"><u>[Updated] Charting Your YouTube Trajectory  Essential Tools From Social Blade for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-less-is-more-the-best-video-url-reducers-revealed-for-2024/"><u>[Updated] Less Is More  The Best Video URL Reducers Revealed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/obile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[New] Mobile Sound Library  Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-building-successful-youtube-collaborations-step-by-step/"><u>[Updated] Building Successful YouTube Collaborations Step by Step</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-humor-hub-catching-the-best-comedy-channels-ever/"><u>[New] In 2024, Humor Hub  Catching the Best Comedy Channels Ever</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-10-best-flvto-alternatives-youtube-converter/"><u>In 2024, Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-content-revenue-accessing-youtubes-partner-benefits/"><u>[Updated] Unlock Content Revenue  Accessing YouTube's Partner Benefits</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-raising-awareness-with-youtubes-cc-membership-tips-for-view-growth/"><u>[New] In 2024, Raising Awareness with YouTube's CC Membership  Tips for View Growth</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-motorola-moto-g14-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Motorola Moto G14 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/a-guide-to-the-premier-8-sounds-for-youtube-launches-and-introduction-scenes-for-2024/"><u>A Guide to the Premier 8 Sounds for YouTube Launches and Introduction Scenes for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-capturing-spoken-content-with-powerpoint-step-by-step-instructions-for-audio-integration-on-windows-and-mac-os-users/"><u>Updated In 2024, Capturing Spoken Content with PowerPoint Step-by-Step Instructions for Audio Integration on Windows and Mac OS Users</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-sending-streamed-content-to-discord-with-finesse-and-precision/"><u>[Updated] In 2024, Sending Streamed Content to Discord with Finesse and Precision</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-plate-to-screen-perfecting-the-art-of-food-cinema/"><u>2024 Approved  From Plate to Screen  Perfecting the Art of Food Cinema</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-best-sound-mixer-for-windows-10/"><u>Updated Best Sound Mixer for Windows 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-safely-increase-your-youtube-fanbase-to-one-million/"><u>[Updated] How to Safely Increase Your YouTube Fanbase To One Million</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024\""
-date: 2024-06-21 17:11:14
-updated: 2024-06-24 11:44:16
+date: 2024-06-25T20:18:01.306Z
+updated: 2024-06-26T20:18:01.306Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ## Revolutionize Channel Wrapping with Expert Templates & How-Tos
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -77,23 +75,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -103,11 +99,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -144,3 +140,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dance-of-words-crafting-bouncing-text-effects/"><u>[New] 2024 Approved  Dance of Words  Crafting Bouncing Text Effects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ient-time-markers-in-youtube-videos-desktopmobile-edition/"><u>Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-more-utilizing-youtubes-income-tools-on-all-devices-for-2024/"><u>Earning More  Utilizing YouTube's Income Tools on All Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-uninterrupted-youtube-how-to-block-ads-in-popular-browsers/"><u>[New] 2024 Approved  Uninterrupted YouTube  How to Block Ads in Popular Browsers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-up-your-wealth-profit-from-effective-use-of-youtube-shorts/"><u>[Updated] In 2024, Channel Up Your Wealth  Profit From Effective Use of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-low-investment-high-rewards-channel-size-doesnt-deter-sponsorship-for-2024/"><u>[Updated] Low-Investment, High Rewards  Channel Size Doesn't Deter Sponsorship for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-virtual-vanguard-10-most-liked-youtubers/"><u>[Updated] In 2024, Virtual Vanguard  10 Most Liked YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/perts-blueprint-for-calculating-your-videos-impact-and-income-for-2024/"><u>An Expert's Blueprint for Calculating Your Video's Impact & Income for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/lets-introduce-the-top-5-applications-to-add-a-song-to-a-video-for-free-with-some-amazing-sound-and-visual-effects-for-2024/"><u>Lets Introduce the Top 5 Applications to Add a Song to a Video for Free with some Amazing Sound and Visual Effects for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-oppo-find-n3-flip-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Oppo Find N3 Flip Device</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-define-new-destination-for-mac-screenshots/"><u>[Updated] 2024 Approved  Define New Destination for Mac Screenshots</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-adjust-the-tiktok-videos-length-to-make-them-captivating-for-2024/"><u>New Adjust the TikTok Videos Length to Make Them Captivating for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-6-services-for-live-video-localization/"><u>In 2024, Premium 6 Services for Live Video Localization</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/audience-market-leaders-in-youtubes-short-clips-downloads/"><u>Audience’ Market Leaders in YouTube's Short Clips Downloads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>[New] Interactive Photography  Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-motorola-moto-g13-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Motorola Moto G13 Phone? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-samsung-galaxy-f14-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Samsung Galaxy F14 5G to Enjoy More Fun | Dr.fone</u></a></li>
+</ul></div>
