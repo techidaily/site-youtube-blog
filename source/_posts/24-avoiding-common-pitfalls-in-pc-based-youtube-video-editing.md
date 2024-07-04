@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Avoiding Common Pitfalls in PC-Based YouTube Video Editing\""
-date: 2024-06-25T21:10:59.419Z
-updated: 2024-06-26T21:10:59.419Z
+date: 2024-07-03T13:26:18.429Z
+updated: 2024-07-04T13:26:18.429Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/731e7d95cb104fd0f2b4a441263b2d39fb916acbe
 
 ## Avoiding Common Pitfalls in PC-Based YouTube Video Editing
 
-# How to Edit Videos for YouTube on PC ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit Videos for YouTube on PC
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -127,7 +128,8 @@ You can rotate the video at any angle at any direction and change the scale of v
 
 Learn more about [How to Zoom in Video After It's Recorded or Saved?](https://tools.techidaily.com/wondershare/filmora/download/)
 
-#### 3.Add texts, Music and other effects ![Filmora9 Add Text & Titles to Video Feature](https://images.wondershare.com/filmora/article-images/add-text-filmora9.jpg)
+#### 3.Add texts, Music and other effects
+![Filmora9 Add Text & Titles to Video Feature](https://images.wondershare.com/filmora/article-images/add-text-filmora9.jpg)
 
 Once the individual shots have been edited into a single video, it is now time for you to add the special effects. This is the time to add stuff such as texts, music and other special effect you may want to see on the video. If you are worried about doing this, just know that you don't have to be a pro editor to do all these since most of the program will guide you through on how to add all the special effects.
 

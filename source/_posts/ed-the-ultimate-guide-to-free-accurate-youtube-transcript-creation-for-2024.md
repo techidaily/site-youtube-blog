@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Free, Accurate YouTube Transcript Creation for 2024"
-date: 2024-06-25T20:43:36.264Z
-updated: 2024-06-26T20:43:36.264Z
+date: 2024-07-03T13:26:18.194Z
+updated: 2024-07-04T13:26:18.194Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
 ## The Ultimate Guide to Free, Accurate YouTube Transcript Creation
 
-# How to Transcribe a YouTube Video for FREE ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Transcribe a YouTube Video for FREE
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

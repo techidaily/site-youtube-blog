@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube's Creative Commons License Explained Simply\""
-date: 2024-06-25T21:15:54.256Z
-updated: 2024-06-26T21:15:54.256Z
+date: 2024-07-03T13:26:20.155Z
+updated: 2024-07-04T13:26:20.155Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b1647db8806cbe897d52438e2f14444426f8ed4b6
 
 ## YouTube's Creative Commons License Explained Simply
 
-# What's YouTube Creative Commons and How to Use it to Make Video ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# What's YouTube Creative Commons and How to Use it to Make Video
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

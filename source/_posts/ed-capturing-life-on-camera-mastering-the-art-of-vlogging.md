@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capturing Life on Camera  Mastering the Art of Vlogging\""
-date: 2024-06-25T21:02:27.782Z
-updated: 2024-06-26T21:02:27.782Z
+date: 2024-07-03T13:26:16.582Z
+updated: 2024-07-04T13:26:16.582Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 
 ## Capturing Life on Camera: Mastering the Art of Vlogging
 
-# The Dos and Don'ts of Daily Vlogging ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Dos and Don'ts of Daily Vlogging
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

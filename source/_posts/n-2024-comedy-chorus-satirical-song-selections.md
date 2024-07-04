@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Comedy Chorus  Satirical Song Selections\""
-date: 2024-06-25T20:20:29.637Z
-updated: 2024-06-26T20:20:29.637Z
+date: 2024-07-03T13:26:19.061Z
+updated: 2024-07-04T13:26:19.061Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 ## Comedy Chorus: Satirical Song Selections
 
-# 10 Parody Songs That Totally Crack You Up ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 Parody Songs That Totally Crack You Up
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

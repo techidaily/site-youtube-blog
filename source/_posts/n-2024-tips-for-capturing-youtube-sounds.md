@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tips for Capturing YouTube Sounds"
-date: 2024-06-25T21:02:50.620Z
-updated: 2024-06-26T21:02:50.620Z
+date: 2024-07-03T13:26:22.177Z
+updated: 2024-07-04T13:26:22.177Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3db
 
 ## Tips for Capturing YouTube Sounds
 
-# How to Record Audio from YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How to Record Audio from YouTube
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

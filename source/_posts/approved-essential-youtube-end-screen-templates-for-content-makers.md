@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential YouTube End Screen Templates for Content Makers\""
-date: 2024-06-25T20:09:23.156Z
-updated: 2024-06-26T20:09:23.156Z
+date: 2024-07-03T13:26:17.441Z
+updated: 2024-07-04T13:26:17.441Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/0e797ac9495f1912f56b8317309a2339c9d64cc11
 
 ## Essential YouTube End Screen Templates for Content Makers
 
-# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

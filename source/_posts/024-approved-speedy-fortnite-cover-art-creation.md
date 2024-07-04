@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Speedy Fortnite Cover Art Creation\""
-date: 2024-06-25T21:05:27.470Z
-updated: 2024-06-26T21:05:27.470Z
+date: 2024-07-03T13:26:20.544Z
+updated: 2024-07-04T13:26:20.544Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 
 ## Speedy Fortnite Cover Art Creation
 
-# How to Make Fortnite Thumbnail for Free and Easy in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Make Fortnite Thumbnail for Free and Easy in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

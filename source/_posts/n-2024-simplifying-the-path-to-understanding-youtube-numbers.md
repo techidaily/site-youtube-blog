@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Simplifying the Path to Understanding YouTube Numbers"
-date: 2024-06-25T20:14:26.251Z
-updated: 2024-06-26T20:14:26.251Z
+date: 2024-07-03T13:26:21.576Z
+updated: 2024-07-04T13:26:21.576Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 ## Simplifying the Path to Understanding YouTube Numbers
 
-# How to View YouTube Statistics ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to View YouTube Statistics
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

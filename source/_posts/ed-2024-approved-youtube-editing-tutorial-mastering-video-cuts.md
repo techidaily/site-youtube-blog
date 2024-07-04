@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube Editing Tutorial  Mastering Video Cuts\""
-date: 2024-06-25T20:54:39.623Z
-updated: 2024-06-26T20:54:39.623Z
+date: 2024-07-03T13:26:19.847Z
+updated: 2024-07-04T13:26:19.847Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/dadc574a72620fb10d26a05d18b7bc541d4008da3
 
 ## YouTube Editing Tutorial: Mastering Video Cuts
 
-# YouTube Video Editor Guide and Review ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Video Editor Guide and Review
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -42,11 +43,13 @@ This simplicity makes it very easy and quick to use. Unlike desktop editors, the
 
 #### **The Basic Features**
 
-#### 1.The editor ![YouTube Video Editor review and guide](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### 1.The editor
+![YouTube Video Editor review and guide](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 The YouTube Video Editor does come with some standard video editing functions like video splicing, Audioswap, and cropping videos. The video editor needs to have the videos already uploaded to YouTube. Along with using your own videos, you have the option to use videos that are part of the Creative Commons library. There transitions, and other features that other standard video editors have. Audioswap is easy to use, and there is access to the Creative Commons library in the editor.
 
-#### 2. The Enhancements ![YouTube video editor review](https://images.wondershare.com/filmora/article-images/quick-fix.jpg)
+#### 2. The Enhancements
+![YouTube video editor review](https://images.wondershare.com/filmora/article-images/quick-fix.jpg)
 
 The Enhancements that are included in the YouTube Video Editor are not the best tools, but they are still pretty good overall. Enhancements can be found by clicking on a video picture after it has been added to the project. Enhancements are broken into four categories: Quick Fixes, Filters, Text, and Audio. Quick fixes are basic adjustments for small issues like the contrast and saturation of the video. YouTube added an auto-fix button and stabilize video button to make it quick to fix these issues. The filters, text, and audio, are about the same that you would find with any other video editing software.
 

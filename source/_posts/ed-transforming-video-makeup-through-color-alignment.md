@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Video Makeup Through Color Alignment"
-date: 2024-06-25T20:59:42.014Z
-updated: 2024-06-26T20:59:42.014Z
+date: 2024-07-03T13:26:18.845Z
+updated: 2024-07-04T13:26:18.845Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
 ## Transforming Video Makeup Through Color Alignment
 
-# Video Color Correction for YouTube Beauty ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Video Color Correction for YouTube Beauty
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

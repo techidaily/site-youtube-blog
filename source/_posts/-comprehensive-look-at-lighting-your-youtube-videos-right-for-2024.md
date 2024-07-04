@@ -1,7 +1,7 @@
 ---
 title: "[New] A Comprehensive Look at Lighting Your YouTube Videos Right for 2024"
-date: 2024-06-25T21:20:02.487Z
-updated: 2024-06-26T21:20:02.487Z
+date: 2024-07-03T13:26:18.759Z
+updated: 2024-07-04T13:26:18.759Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
 
 ## A Comprehensive Look at Lighting Your YouTube Videos Right
 
-# How To Light Your YouTube Video ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Light Your YouTube Video
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

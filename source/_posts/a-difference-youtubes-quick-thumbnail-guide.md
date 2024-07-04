@@ -1,7 +1,7 @@
 ---
 title: "\"Make a Difference  YouTube's Quick Thumbnail Guide\""
-date: 2024-06-25T20:13:06.543Z
-updated: 2024-06-26T20:13:06.543Z
+date: 2024-07-03T13:26:18.719Z
+updated: 2024-07-04T13:26:18.719Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ced37c54f6280b48c4cccd59bb3d4e6e75cf48a36
 
 ## Make a Difference: YouTube's Quick Thumbnail Guide
 
-# How to Make a Thumbnail for Your YouTube Free Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Make a Thumbnail for Your YouTube Free Easily
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

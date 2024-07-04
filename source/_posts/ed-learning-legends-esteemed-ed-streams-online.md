@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Learning Legends  Esteemed Ed Streams Online\""
-date: 2024-06-25T20:34:59.709Z
-updated: 2024-06-26T20:34:59.709Z
+date: 2024-07-03T13:26:19.904Z
+updated: 2024-07-04T13:26:19.904Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
 ## Learning Legends: Esteemed Ed Streams Online
 
-# Top 10 Educational YouTube Channels ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 10 Educational YouTube Channels
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

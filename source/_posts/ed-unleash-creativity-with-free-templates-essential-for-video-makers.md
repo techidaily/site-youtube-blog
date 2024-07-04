@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unleash Creativity with FREE Templates – Essential for Video Makers"
-date: 2024-06-25T21:03:37.791Z
-updated: 2024-06-26T21:03:37.791Z
+date: 2024-07-03T13:26:16.903Z
+updated: 2024-07-04T13:26:16.903Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/344ccd42970473c822ce3d8647d1f132f07ed11b1
 
 ## Unleash Creativity with FREE Templates – Essential for Video Makers
 
-# Free Banner Templates & Makers for YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free Banner Templates & Makers for YouTube
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +44,8 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 In this section you’ll find 3 sites where you can download free YouTube banners.
 
-#### 1. YouTube Channel Art Templates from Filmora ![YouTube Channel Art Banner Templates Download](https://images.wondershare.com/filmora/article-images/youtube-channel-art-templates-download.png)
+#### 1. YouTube Channel Art Templates from Filmora
+![YouTube Channel Art Banner Templates Download](https://images.wondershare.com/filmora/article-images/youtube-channel-art-templates-download.png)
 
 You can find 50 free YouTube banner templates right here on filmora.io. There are 10 different categories including popular channel types like makeup and gaming.
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Curating the Perfect Mix  A Youtube Playlist Manual\""
-date: 2024-06-25T20:38:40.080Z
-updated: 2024-06-26T20:38:40.080Z
+date: 2024-07-03T13:26:22.762Z
+updated: 2024-07-04T13:26:22.762Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/680c73892fadaf0cd37020955286e78a6c2698cf8
 
 ## Curating the Perfect Mix: A Youtube Playlist Manual
 
-# How to Create a Playlist on YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create a Playlist on YouTube
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

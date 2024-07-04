@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, MCB Channel Theme Images and Templates"
-date: 2024-06-25T20:06:48.574Z
-updated: 2024-06-26T20:06:48.574Z
+date: 2024-07-03T13:26:22.795Z
+updated: 2024-07-04T13:26:22.795Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/2578f1a24857f9a6eb6b2a128a6ad654566c55aa5
 
 ## MCB Channel Theme Images and Templates
 
-# Free Minecraft YouTube Banners with Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free Minecraft YouTube Banners with Templates
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

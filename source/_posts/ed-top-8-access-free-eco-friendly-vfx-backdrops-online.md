@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Top 8  Access Free Eco-Friendly VFX Backdrops Online\""
-date: 2024-06-25T21:05:07.896Z
-updated: 2024-06-26T21:05:07.896Z
+date: 2024-07-03T13:26:17.551Z
+updated: 2024-07-04T13:26:17.551Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ## Top 8: Access Free Eco-Friendly VFX Backdrops Online
 
-# Top 8 Sites to Get Free Green Screen Backgrounds and Footage ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 8 Sites to Get Free Green Screen Backgrounds and Footage
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

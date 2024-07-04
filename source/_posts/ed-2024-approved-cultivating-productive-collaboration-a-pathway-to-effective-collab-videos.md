@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cultivating Productive Collaboration  A Pathway to Effective Collab Videos\""
-date: 2024-06-25T20:17:02.646Z
-updated: 2024-06-26T20:17:02.646Z
+date: 2024-07-03T13:26:20.028Z
+updated: 2024-07-04T13:26:20.028Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/f8511b1b508552460f630419c51d2d616ebcbf19d
 
 ## Cultivating Productive Collaboration: A Pathway to Effective Collab Videos
 
-# YouTube Collaboration Guide to Find Partners and Make Collab Videos ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Collaboration Guide to Find Partners and Make Collab Videos
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

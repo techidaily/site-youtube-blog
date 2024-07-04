@@ -1,0 +1,111 @@
+---
+title: "\"Voice of Vogue  Establishing Your Channel in the Cosmetic World for 2024\""
+date: 2024-07-03T13:31:25.719Z
+updated: 2024-07-04T13:31:25.719Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Voice of Vogue: Establishing Your Channel in the Cosmetic World for 2024\""
+excerpt: "\"This Article Describes Voice of Vogue: Establishing Your Channel in the Cosmetic World for 2024\""
+keywords: "VoiceOfVogueChannels,VogueCosmeticTips,CosmeticBrandStart,BrandVoiceLaunch,EstablishingVogue,CosmeticChannelSetup,VoiceofVogueStrategies"
+thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35ad2689534997125a364839c.jpg
+---
+
+## Voice of Vogue: Establishing Your Channel in the Cosmetic World
+
+# How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
+
+## YouTube Beauty Vlogger Set Up
+
+It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
+
+#### 1\. Light It Up
+
+![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+
+Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
+
+Depending on your budget, you can either use a window as a front light or buy a diva ring light.
+
+**Using a Window:**  Face the window while you vlog and be careful that the camera’s shadow is not visible in your shot. Avoid using a window the sun is shining directly into. You want softer, more diffused, light for a beauty vlog.
+
+**Using a Ring Light:**  Mount your camera either inside the ring or right behind it on a tripod. Ring lights are powerful options for illuminating your entire face, and they are very popular with makeup vloggers.
+
+Front lighting can make you appear flat against your background, so it is also a good idea to set up a backlight behind you to make you pop out. Setting up lights on either side of you can also help add dimension to your shot.
+
+Check this tutorial to know more details:
+
+#### 2\. Organize Your Makeup
+
+Having to search for makeup or reach across to where you are storing your curling iron will kill your vlogging momentum. Creating a great look is the fun part of beauty vlogging, and probably the part you want to focus on. Not looking for your missing brush. The best way to set yourself up for a beauty vlog is at a desk or table where you can lay everything out neatly right in front of you.
+
+#### 3\. Alter Your Background
+
+Making your vlog look more professional can be as easy as dressing up your background. You do not want there to be a lot of clutter behind you, but you don’t want to shoot with your back to a plain beige wall either. One simple way to keep your background beautiful, but not distracting, is to use a backdrop. Just hang a sheet or other piece of fabric behind you. You can even use patterns and change your backdrop to match your makeup in different videos.
+
+Another great way to disguise the room you are vlogging in, and make sure nothing behind you distracts your viewers, is to blur your background. You really stand out when your background is blurry and you are in perfect focus.
+
+#### 4\. Be Audible
+
+You have a lot to say, so make sure people can hear you. Most cameras do not have great microphones, so you will need to use an external mic. To see what kinds of options you have make sure to read and watch “[Best Microphone for YouTube - Top 5 Mics for YouTube Videos](https://tools.techidaily.com/wondershare/filmora/download/)”.
+
+If you do not have access to an external mic then you may be able to get by without one for a while using software. Make sure there is no background noise competing with your voice, and download a free audio editing program called Audacity from Audacityteam.org. Using Audacity you will be able to improve a mediocre audio recording from your camera and make it usable. This is a popular option among YouTube gamers who record both video and audio from their webcams, but there is no reason it should not be useful for beauty gurus too.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/asy-obs-youtube-live-streaming-guide-for-2024/"><u>[New] Easy OBS YouTube Live Streaming Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-art-of-self-recording-improving-your-youtube-presence-for-2024/"><u>[New] The Art of Self-Recording  Improving Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-pathway-to-profitability-navigating-youtube-adsense/"><u>In 2024, The Pathway to Profitability  Navigating YouTube AdSense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-simplifying-iphoneipad-screen-captures-for-online-sharing/"><u>[New] In 2024, Simplifying iPhone/iPad Screen Captures for Online Sharing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-essential-guide-to-advanced-youtube-studio-editing/"><u>2024 Approved  The Essential Guide to Advanced YouTube Studio Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-scoreboard-the-best-video-to-mp3-convertors/"><u>[New] In 2024, Scoreboard  The Best Video to Mp3 Convertors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-10-best-flvto-alternatives-youtube-converter/"><u>In 2024, Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/dull-scenes-to-dynamic-sports-highlights-for-2024/"><u>From Dull Scenes to Dynamic Sports Highlights for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gnite-interest-essential-themes-for-engaging-channels/"><u>[New] Ignite Interest  Essential Themes for Engaging Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-youtube-watch-list-highest-watched-in-24-hours/"><u>[Updated] Ultimate YouTube Watch List  Highest-Watched in 24 Hours</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-apple-iphone-15-pro-max-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from Apple iPhone 15 Pro Max Safe and Legal</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-kinemasters-complete-guide-to-flawless-transitions/"><u>In 2024, Kinemaster's Complete Guide to Flawless Transitions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-seamless-connections-spotify-to-youtube-music-conversion-for-2024/"><u>[Updated] Creating Seamless Connections  Spotify to YouTube Music Conversion for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-premier-options-to-play-sonys-ps1-games-on-pc/"><u>[New] 2024 Approved  Premier Options to Play Sony's PS1 Games on PC</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-youtube-to-mp4-in-no-time-expert-tips-for-selecting-a-converter/"><u>New From YouTube to MP4 in No Time Expert Tips for Selecting a Converter</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-anime-for-your-lifes-highlights-todays-most-captivating-streaming-channels-2023-new/"><u>2024 Approved  Anime for Your Life’s Highlights  Today's Most Captivating Streaming Channels [2023 New]</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-fundamentals-of-compelling-documentary-screenplay/"><u>[New] The Fundamentals of Compelling Documentary Screenplay</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ios-slide-show-tools-tailored-for-high-end-models/"><u>IOS Slide Show Tools Tailored for High-End Models</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-mix-and-match-the-ultimate-list-of-8-video-and-photo-merging-tools-for-2024/"><u>New Mix and Match The Ultimate List of 8 Video and Photo Merging Tools for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-video-enhancement-using-vce-22/"><u>Innovative Video Enhancement Using VCE 2.2</u></a></li>
+</ul></div>

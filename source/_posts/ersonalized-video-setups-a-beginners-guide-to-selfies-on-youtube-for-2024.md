@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Personalized Video Setups  A Beginner's Guide to Selfies on YouTube for 2024\""
-date: 2024-06-25T20:34:22.528Z
-updated: 2024-06-26T20:34:22.528Z
+date: 2024-07-03T13:26:20.739Z
+updated: 2024-07-04T13:26:20.739Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 
 ## Personalized Video Setups: A Beginner's Guide to Selfies on YouTube
 
-# 4 Ways To Set Up Your Talking-Head Shots For YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 4 Ways To Set Up Your Talking-Head Shots For YouTube
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

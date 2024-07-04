@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Dreamer To Doer  Sign Up for a YouTube Channel\""
-date: 2024-06-25T20:06:14.853Z
-updated: 2024-06-26T20:06:14.853Z
+date: 2024-07-03T13:26:19.475Z
+updated: 2024-07-04T13:26:19.475Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/f04df6c23b871cbbd0c17b0eb3921c505712d724d
 
 ## From Dreamer To Doer: Sign Up for a YouTube Channel
 
-# How to Create a YouTube Account ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create a YouTube Account
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

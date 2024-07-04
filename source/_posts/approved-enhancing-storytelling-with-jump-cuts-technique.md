@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Enhancing Storytelling with Jump Cuts Technique\""
-date: 2024-06-25T21:01:38.243Z
-updated: 2024-06-26T21:01:38.243Z
+date: 2024-07-03T13:26:17.111Z
+updated: 2024-07-04T13:26:17.111Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/69d60ad1b0674fb9a6dcacd9cfd5c9b2973dbd0d0
 
 ## Enhancing Storytelling with Jump Cuts Technique
 
-# How To Use Jump Cuts in Your Vlog ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Use Jump Cuts in Your Vlog
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

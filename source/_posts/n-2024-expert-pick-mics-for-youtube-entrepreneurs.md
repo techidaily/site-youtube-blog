@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Expert Pick  Mics for YouTube Entrepreneurs\""
-date: 2024-06-25T20:43:50.225Z
-updated: 2024-06-26T20:43:50.225Z
+date: 2024-07-03T13:26:16.287Z
+updated: 2024-07-04T13:26:16.287Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 
 ## Expert Pick: Mics for YouTube Entrepreneurs
 
-# Best Microphone for YouTubers ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best Microphone for YouTubers
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -33,23 +34,28 @@ If you want your viewers to be glued to their screens then quality audio is just
 
 Here are examples of some of the best external microphones for YouTube:
 
-#### 1. Blue Snowball USB Mic - $60 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
+#### 1. Blue Snowball USB Mic - $60
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
 
 The Snowball is especially good for vlogging from your webcam because it is easy to hook up to your computer using a USB port. It will record your audio simultaneously while you are using your webcam. The biggest drawback of the Snowball is that it needs to be close to you while your record. This combined with its larger size means that it will probably need to be in your shot.
 
-#### 2. RØDE Video Shotgun Mic - $140 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
+#### 2. RØDE Video Shotgun Mic - $140
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
 
 The Shotgun attaches to your DSLR camera and is great for capturing specific sounds, like dialogue, without a lot of background noise. To work well it needs to be pointing at the person who is speaking, and it should be fairly close to them as well. This means that the camera cannot be too far back from you while you vlog.
 
-#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
+#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
 
 This microphone is similar to the ones you think of being mounted on boom poles on professional sets, and it can easily be mounted onto a pole and used the same way. This gradient condenser mic is good at picking up sound at a distance, and at only picking up sound coming from directly in front of it. If you are working alone then you can set this mic up on a stand so it is pointing at you, or if you have a friend to help you you can ask them to hold it on a boom pole.
 
-#### 4. Sony LAV Wireless Mic System - $600 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
+#### 4. Sony LAV Wireless Mic System - $600
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
 
 A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can be clipped onto clothing. Wearing a LAV Mic while you vlog will allow you to move around freely and still capture great audio, rather than being stuck in range of a stationary mic. There are both wired and wireless options available in LAV Mics.
 
-#### 5. Roland R-05 WAVE/MP3 Recorder - $200 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
+#### 5. Roland R-05 WAVE/MP3 Recorder - $200
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
 
 The [R-05](https://bstasmr.com/asmr-accessories/best-asmr-microphones.html) is a pocket recorder that captures flawless audio. Its small size means you can hide it in your pocket and it will not show up in your video. Also, since it does not need to hook up to your camera or computer you will have freedom of movement.
 

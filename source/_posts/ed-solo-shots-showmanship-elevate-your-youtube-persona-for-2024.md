@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Solo Shots Showmanship  Elevate Your YouTube Persona for 2024\""
-date: 2024-06-25T21:16:08.214Z
-updated: 2024-06-26T21:16:08.214Z
+date: 2024-07-03T13:26:19.667Z
+updated: 2024-07-04T13:26:19.667Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 
 ## Solo Shots Showmanship: Elevate Your YouTube Persona
 
-# 4 Ways To Set Up Your Talking-Head Shots For YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 4 Ways To Set Up Your Talking-Head Shots For YouTube
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

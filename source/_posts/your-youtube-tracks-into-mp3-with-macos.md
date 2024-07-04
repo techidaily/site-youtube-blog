@@ -1,7 +1,7 @@
 ---
 title: "Turn Your YouTube Tracks Into MP3 with MacOS"
-date: 2024-06-25T20:55:56.025Z
-updated: 2024-06-26T20:55:56.025Z
+date: 2024-07-03T13:26:21.307Z
+updated: 2024-07-04T13:26:21.307Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
 
 ## Turn Your YouTube Tracks Into MP3 with MacOS
 
-# How to Convert YouTube Videos to MP3 Songs on Mac ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Convert YouTube Videos to MP3 Songs on Mac
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

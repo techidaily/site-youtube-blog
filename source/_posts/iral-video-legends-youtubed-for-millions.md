@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Viral Video Legends  YouTubed for Millions\""
-date: 2024-06-25T20:34:25.767Z
-updated: 2024-06-26T20:34:25.767Z
+date: 2024-07-03T13:26:16.136Z
+updated: 2024-07-04T13:26:16.136Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
 
 ## Viral Video Legends: YouTubed for Millions
 
-# Top 10 Most Viewed Videos on YouTube of All Time ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 10 Most Viewed Videos on YouTube of All Time
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

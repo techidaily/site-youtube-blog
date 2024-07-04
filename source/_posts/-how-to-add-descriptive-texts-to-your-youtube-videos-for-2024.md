@@ -1,7 +1,7 @@
 ---
 title: "Learn How to Add Descriptive Texts to Your YouTube Videos for 2024"
-date: 2024-06-25T20:20:43.622Z
-updated: 2024-06-26T20:20:43.622Z
+date: 2024-07-03T13:26:22.738Z
+updated: 2024-07-04T13:26:22.738Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 ## Learn How to Add Descriptive Texts to Your YouTube Videos
 
-# How To Add Captions to YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Captions to YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

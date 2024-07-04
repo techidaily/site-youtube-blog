@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dial Back Unrequested YouTube Recommendations"
-date: 2024-06-25T21:18:51.714Z
-updated: 2024-06-26T21:18:51.714Z
+date: 2024-07-03T13:26:21.045Z
+updated: 2024-07-04T13:26:21.045Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/f14703ab2e75a5e3ef7cee5c0a7ee5ddd2895b6cf
 
 ## Dial Back Unrequested YouTube Recommendations
 
-# YouTube Recommended Videos - Block the Videos I Don't Like ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Recommended Videos - Block the Videos I Don't Like
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -36,7 +37,8 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History
+![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -44,7 +46,8 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested
+![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 

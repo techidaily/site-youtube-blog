@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering YouTube Video Illumination Techniques"
-date: 2024-06-25T20:30:10.613Z
-updated: 2024-06-26T20:30:10.613Z
+date: 2024-07-03T13:26:15.968Z
+updated: 2024-07-04T13:26:15.968Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/48f1b4b94f775b917cb35db1cb2a6e0b4e7bb5a94
 
 ## Mastering YouTube Video Illumination Techniques
 
-# How To Light Your YouTube Video ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Light Your YouTube Video
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

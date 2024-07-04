@@ -1,7 +1,7 @@
 ---
 title: "Indie Developer Gaming Channels To Follow for 2024"
-date: 2024-06-25T20:41:41.449Z
-updated: 2024-06-26T20:41:41.449Z
+date: 2024-07-03T13:26:19.555Z
+updated: 2024-07-04T13:26:19.555Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/9ce1efb4d78691d1fda3d25f6e0de4e7036d8fbbf
 
 ## Indie Developer Gaming Channels To Follow
 
-# Top 10 Gaming YouTubers You Should Know in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 10 Gaming YouTubers You Should Know in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

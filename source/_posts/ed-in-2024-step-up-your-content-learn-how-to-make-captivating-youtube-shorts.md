@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Step Up Your Content  Learn How to Make Captivating YouTube Shorts\""
-date: 2024-06-25T20:48:24.730Z
-updated: 2024-06-26T20:48:24.730Z
+date: 2024-07-03T13:26:20.262Z
+updated: 2024-07-04T13:26:20.262Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/efe03172267db8e41dde950b174798601940a2258
 
 ## Step Up Your Content: Learn How to Make Captivating YouTube Shorts
 
-# YouTube Shorts Ultimate Guide in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Shorts Ultimate Guide in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

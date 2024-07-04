@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Screens to Spreads  The Do's and Don'ts of Live Blogging\""
-date: 2024-06-25T20:44:00.879Z
-updated: 2024-06-26T20:44:00.879Z
+date: 2024-07-03T13:26:18.072Z
+updated: 2024-07-04T13:26:18.072Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/66485902527c2f60d68ff1756c39d95b2b9ff2d6a
 
 ## From Screens to Spreads: The Do's and Don'ts of Live Blogging
 
-# The Dos and Don'ts of Daily Vlogging ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Dos and Don'ts of Daily Vlogging
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

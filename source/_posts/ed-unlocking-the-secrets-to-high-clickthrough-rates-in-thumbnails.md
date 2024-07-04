@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlocking the Secrets to High Clickthrough Rates in Thumbnails"
-date: 2024-06-25T21:18:34.943Z
-updated: 2024-06-26T21:18:34.943Z
+date: 2024-07-03T13:26:20.137Z
+updated: 2024-07-04T13:26:20.137Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/7463aefc3bf7373e7e8450adfdbb24d271ecbb972
 
 ## Unlocking the Secrets to High Clickthrough Rates in Thumbnails
 
-# The Ultimate Guide to YouTube Thumbnails that Get Views ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Ultimate Guide to YouTube Thumbnails that Get Views
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Professional Tricks for YouTube Audio Amplification for 2024"
-date: 2024-06-25T21:12:57.639Z
-updated: 2024-06-26T21:12:57.639Z
+date: 2024-07-03T13:26:18.707Z
+updated: 2024-07-04T13:26:18.707Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/bc72bcdc29440f3559a7ac3b3d313c8c685d10379
 
 ## Professional Tricks for YouTube Audio Amplification
 
-# How to Edit Audio on YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit Audio on YouTube
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

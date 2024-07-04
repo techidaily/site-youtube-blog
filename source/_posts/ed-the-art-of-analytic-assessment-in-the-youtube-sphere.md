@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Analytic Assessment in the YouTube Sphere"
-date: 2024-06-25T20:32:41.557Z
-updated: 2024-06-26T20:32:41.557Z
+date: 2024-07-03T13:26:18.117Z
+updated: 2024-07-04T13:26:18.117Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/8d3e36af5d5a0091c440dec8233de5f6c2799ee80
 
 ## The Art of Analytic Assessment in the YouTube Sphere
 
-# YouTube Analytics – How to analyze your and Competitor's YouTube Video ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Analytics – How to analyze your and Competitor's YouTube Video
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Unwanted Comments Made Easy  An Overview for 2024\""
-date: 2024-06-25T20:47:58.182Z
-updated: 2024-06-26T20:47:58.182Z
+date: 2024-07-03T13:26:21.406Z
+updated: 2024-07-04T13:26:21.406Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/0afe9beb0b64de5cc7a966e66ff258745b01178cd
 
 ## Unwanted Comments Made Easy: An Overview
 
-# Deleting YouTube Comments ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Deleting YouTube Comments
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

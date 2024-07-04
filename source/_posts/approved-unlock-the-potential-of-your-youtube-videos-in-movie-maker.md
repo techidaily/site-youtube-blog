@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock the Potential of Your YouTube Videos in Movie Maker\""
-date: 2024-06-25T20:46:41.594Z
-updated: 2024-06-26T20:46:41.594Z
+date: 2024-07-03T13:26:21.960Z
+updated: 2024-07-04T13:26:21.960Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 
 ## Unlock the Potential of Your YouTube Videos in Movie Maker
 
-# How to Edit YouTube videos in Windows Movie Maker ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit YouTube videos in Windows Movie Maker
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -44,7 +45,8 @@ Before editing the video in [Windows Movie Maker](https://windows-movie-maker-vi
 
 If your videos are not supported at importing in Windows Movie Maker, you may need to converter it first or choose a video editor like Filmora video editor which supports the almost all popular formats.
 
-#### Step 1: Import Video Files Into Windows Movie Maker ![youtube movie maker import video](https://images.wondershare.com/filmora/article-images/add-clips-in-wmm.png)
+#### Step 1: Import Video Files Into Windows Movie Maker
+![youtube movie maker import video](https://images.wondershare.com/filmora/article-images/add-clips-in-wmm.png)
 
 To import video or photo into Windows Movie Maker, you can click on the button **Add Videos or Photos** located at the top of the program. A file window will open, and you can select the videos from any area of your computer. Once you have the files selected, click **OK** to import the files to the storyboard in the right hand panel.
 

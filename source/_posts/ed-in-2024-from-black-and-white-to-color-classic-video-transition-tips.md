@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Black-and-White to Color  Classic Video Transition Tips\""
-date: 2024-06-25T20:52:17.121Z
-updated: 2024-06-26T20:52:17.121Z
+date: 2024-07-03T13:26:18.280Z
+updated: 2024-07-04T13:26:18.280Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 
 ## From Black-and-White to Color: Classic Video Transition Tips
 
-# How to Create Vintage Videos: A Comprehensive Tutorial ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create Vintage Videos: A Comprehensive Tutorial
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

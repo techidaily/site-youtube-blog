@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Yourself From Video Edges on YouTube"
-date: 2024-06-25T20:49:02.333Z
-updated: 2024-06-26T20:49:02.333Z
+date: 2024-07-03T13:26:20.231Z
+updated: 2024-07-04T13:26:20.231Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/36f59289f42403367e98ee01ecd7f903ee9a9399b
 
 ## Free Yourself From Video Edges on YouTube
 
-# How to Remove Black Bars from YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Remove Black Bars from YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

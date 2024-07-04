@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Top 50 Digital Rich List"
-date: 2024-06-25T20:45:32.708Z
-updated: 2024-06-26T20:45:32.708Z
+date: 2024-07-03T13:26:22.039Z
+updated: 2024-07-04T13:26:22.039Z
 tags:
   - ai video
   - ai youtube
@@ -101,7 +101,8 @@ Mark likes indie and horror video games and for that reason most videos on his M
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 

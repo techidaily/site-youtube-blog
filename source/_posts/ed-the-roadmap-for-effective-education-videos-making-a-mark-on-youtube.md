@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Roadmap for Effective Education Videos - Making a Mark on YouTube\""
-date: 2024-06-25T20:56:20.668Z
-updated: 2024-06-26T20:56:20.668Z
+date: 2024-07-03T13:26:16.417Z
+updated: 2024-07-04T13:26:16.417Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
 
 ## The Roadmap for Effective Education Videos - Making a Mark on YouTube
 
-# Easy Ways to Make a Great Educational Video for YouTube ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
+# Easy Ways to Make a Great Educational Video for YouTube
+![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
 ##### Marion Dubois
 

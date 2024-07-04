@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Play YouTube in Background on iPhone and Android\""
-date: 2024-06-25T21:10:25.534Z
-updated: 2024-06-26T21:10:25.534Z
+date: 2024-07-03T13:26:20.482Z
+updated: 2024-07-04T13:26:20.482Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b1e13c65cf79c8bfe0a90a1ea55d4cf4b25b6f465
 
 ## Discreet YouTube Playback on Mobile Devices
 
-# How to Play YouTube in Background on iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Play YouTube in Background on iPhone and Android
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

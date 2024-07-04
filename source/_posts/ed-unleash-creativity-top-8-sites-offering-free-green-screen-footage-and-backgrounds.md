@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleash Creativity  Top 8 Sites Offering Free Green Screen Footage & Backgrounds\""
-date: 2024-06-25T20:40:38.192Z
-updated: 2024-06-26T20:40:38.192Z
+date: 2024-07-03T13:26:17.659Z
+updated: 2024-07-04T13:26:17.659Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/d37eff43ca85f1c6727bb1c48930aa293f0c17902
 
 ## Unleash Creativity: Top 8 Sites Offering Free Green Screen Footage & Backgrounds
 
-# Top 8 Sites to Get Free Green Screen Backgrounds and Footage ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 8 Sites to Get Free Green Screen Backgrounds and Footage
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

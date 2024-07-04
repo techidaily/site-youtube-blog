@@ -1,7 +1,7 @@
 ---
 title: "\"Paint a Picture of Perfection  Chromatic Mastery for Beauty\""
-date: 2024-06-25T21:16:29.137Z
-updated: 2024-06-26T21:16:29.137Z
+date: 2024-07-03T13:26:16.069Z
+updated: 2024-07-04T13:26:16.069Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec8
 
 ## Paint a Picture of Perfection: Chromatic Mastery for Beauty
 
-# Video Color Correction for YouTube Beauty ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Video Color Correction for YouTube Beauty
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking the Potential of Edu-Vids  Strategies for Captivating Your Viewers on YouTube\""
-date: 2024-06-25T20:03:57.222Z
-updated: 2024-06-26T20:03:57.222Z
+date: 2024-07-03T13:26:18.003Z
+updated: 2024-07-04T13:26:18.003Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
 ## Unlocking the Potential of Edu-Vids: Strategies for Captivating Your Viewers on YouTube
 
-# Easy Ways to Make a Great Educational Video for YouTube ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
+# Easy Ways to Make a Great Educational Video for YouTube
+![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
 ##### Marion Dubois
 

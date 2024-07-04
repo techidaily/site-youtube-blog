@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Earning Edge Reached for Subscribers Above 500\""
-date: 2024-06-25T20:14:00.603Z
-updated: 2024-06-26T20:14:00.603Z
+date: 2024-07-03T13:26:22.408Z
+updated: 2024-07-04T13:26:22.408Z
 tags:
   - ai video
   - ai youtube
@@ -64,13 +64,17 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 #### **On Computer/Desktop**
 
-##### Step 1Sign in to YouTube Studio on your computer or desktop ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
+##### Step 1Sign in to YouTube Studio on your computer or desktop
+![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
-##### Step 2Click Earn in the left menu ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
+##### Step 2Click Earn in the left menu
+![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
 
-##### Step 3Click Apply Now to review and Accept the base terms ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
+##### Step 3Click Apply Now to review and Accept the base terms
+![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
-##### Step 4Click Start to set up an AdSense account ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
+##### Step 4Click Start to set up an AdSense account
+![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
 
 #### **On Android, iPhone and iPad**
 

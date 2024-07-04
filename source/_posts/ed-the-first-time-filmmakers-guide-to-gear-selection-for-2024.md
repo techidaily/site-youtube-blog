@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The First-Time Filmmaker's Guide to Gear Selection for 2024\""
-date: 2024-06-25T20:55:37.391Z
-updated: 2024-06-26T20:55:37.391Z
+date: 2024-07-03T13:26:17.463Z
+updated: 2024-07-04T13:26:17.463Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/995d8276c073ea6830ba619ba4614fd047fc0375a
 
 ## The First-Time Filmmaker's Guide to Gear Selection
 
-# YouTube Equipment Starter Guide For Beginners ![](https://images.wondershare.com/filmora/Contributor/Sumia-Rafique.jpg)
+# YouTube Equipment Starter Guide For Beginners
+![](https://images.wondershare.com/filmora/Contributor/Sumia-Rafique.jpg)
 
 ##### Sumia Rafique
 
@@ -127,7 +128,8 @@ Most vlogging cameras come with a built-in microphone that gets the job done. If
 
 To read more about each of these microphones, check out our post on [The 19 Best YouTube Microphones 2018 – Options for Music, Voiceovers, Vlogging, and more!](https://www.filmora.io/community-blog/the-19-best-youtube-microphones-2018---options-for-music-352.html)
 
-## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES ![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
+## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES
+![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
 
 Using your smartphone’s camera to film your YouTube videos is a great idea since it’s light, portable, and most likely always with you. The following six smartphone accessories can help you make better YouTube videos:
 

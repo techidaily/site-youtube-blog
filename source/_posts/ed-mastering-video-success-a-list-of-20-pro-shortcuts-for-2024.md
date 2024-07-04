@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts for 2024\""
-date: 2024-06-25T20:20:19.861Z
-updated: 2024-06-26T20:20:19.861Z
+date: 2024-07-03T13:26:21.850Z
+updated: 2024-07-04T13:26:21.850Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
 
 ## Mastering Video Success: A List of 20 Pro Shortcuts
 
-# YouTube Shortcuts You Should Know in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Shortcuts You Should Know in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

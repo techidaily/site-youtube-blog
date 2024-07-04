@@ -1,7 +1,7 @@
 ---
 title: "\"Snicker Surgeons  Top 7 Sketches for YouTube Laughter Aficionados for 2024\""
-date: 2024-06-25T20:43:42.804Z
-updated: 2024-06-26T20:43:42.804Z
+date: 2024-07-03T13:26:20.728Z
+updated: 2024-07-04T13:26:20.728Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/14af88c4727edfc68754682f8d9e5a16b4632ead5
 
 ## Snicker Surgeons: Top 7 Sketches for YouTube Laughter Aficionados
 
-# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

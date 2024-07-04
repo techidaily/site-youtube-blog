@@ -1,7 +1,7 @@
 ---
 title: "Your Comprehensible Guide to Economical Webinars on YouTube"
-date: 2024-06-25T20:48:15.853Z
-updated: 2024-06-26T20:48:15.853Z
+date: 2024-07-03T13:26:16.795Z
+updated: 2024-07-04T13:26:16.795Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/9ed4d2a342c503dc1182b48b6f97e1914eb836100
 
 ## Your Comprehensible Guide to Economical Webinars on YouTube
 
-# How to Host a Webinar on YouTube for Free ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How to Host a Webinar on YouTube for Free
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

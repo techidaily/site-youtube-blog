@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Integrating Your Day Job with Passionate Online Content"
-date: 2024-06-25T20:33:37.396Z
-updated: 2024-06-26T20:33:37.396Z
+date: 2024-07-03T13:26:21.207Z
+updated: 2024-07-04T13:26:21.207Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ## Integrating Your Day Job with Passionate Online Content
 
-# How to balance YouTube with a Full-Time Job ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to balance YouTube with a Full-Time Job
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

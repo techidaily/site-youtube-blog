@@ -1,7 +1,7 @@
 ---
 title: "Structuring Videos for Maximum Impact on YouTube for 2024"
-date: 2024-06-25T20:04:02.769Z
-updated: 2024-06-26T20:04:02.769Z
+date: 2024-07-03T13:26:23.122Z
+updated: 2024-07-04T13:26:23.122Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6095600b720da220ffffead1a4fc142237909794e
 
 ## Structuring Videos for Maximum Impact on YouTube
 
-# How to structure YouTube videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to structure YouTube videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

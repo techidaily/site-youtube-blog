@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Jittery Text Magic  Two Dynamic Techniques Explored\""
-date: 2024-06-25T20:13:35.047Z
-updated: 2024-06-26T20:13:35.047Z
+date: 2024-07-03T13:26:21.197Z
+updated: 2024-07-04T13:26:21.197Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
 
 ## Jittery Text Magic: Two Dynamic Techniques Explored
 
-# How to Create Animated Bouncing Text ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Create Animated Bouncing Text
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

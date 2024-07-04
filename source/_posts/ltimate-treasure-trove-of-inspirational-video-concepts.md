@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Treasure Trove of Inspirational Video Concepts"
-date: 2024-06-25T20:49:17.238Z
-updated: 2024-06-26T20:49:17.238Z
+date: 2024-07-03T13:26:17.483Z
+updated: 2024-07-04T13:26:17.483Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/0ca201532589a8340625e0277d57d7a6d8a4fe5f0
 
 ## The Ultimate Treasure Trove of Inspirational Video Concepts
 
-# Best YouTube Video Ideas to Spark Inspiration ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best YouTube Video Ideas to Spark Inspiration
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

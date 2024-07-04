@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Draft to Edit  Essential Film Techniques via YouTube for 2024\""
-date: 2024-06-25T20:04:42.969Z
-updated: 2024-06-26T20:04:42.969Z
+date: 2024-07-03T13:26:17.846Z
+updated: 2024-07-04T13:26:17.846Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ed5ee8baad91072b118b2d67f1083103fa2283373
 
 ## From Draft to Edit: Essential Film Techniques via YouTube
 
-# YouTube Channels for Filmmakers to Learn Filmmaking Tips and Tutorials ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Channels for Filmmakers to Learn Filmmaking Tips and Tutorials
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

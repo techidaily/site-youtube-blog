@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting Your Music Collection  YouTube Playlists Guide\""
-date: 2024-06-25T20:01:45.006Z
-updated: 2024-06-26T20:01:45.006Z
+date: 2024-07-03T13:26:21.135Z
+updated: 2024-07-04T13:26:21.135Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/88bfebb08e4cbb8d0a68e78c0297b8f1e363343f3
 
 ## Crafting Your Music Collection: YouTube Playlists Guide
 
-# How to Make a Playlist on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Make a Playlist on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

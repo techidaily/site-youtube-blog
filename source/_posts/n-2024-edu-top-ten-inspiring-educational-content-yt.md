@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Edu-Top Ten  Inspiring Educational Content YT\""
-date: 2024-06-25T21:04:23.982Z
-updated: 2024-06-26T21:04:23.982Z
+date: 2024-07-03T13:26:18.822Z
+updated: 2024-07-04T13:26:18.822Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/fe961e2cb838e9277b3f939887a16421625618620
 
 ## Edu-Top Ten: Inspiring Educational Content YT
 
-# Top 10 Educational YouTube Channels ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 10 Educational YouTube Channels
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

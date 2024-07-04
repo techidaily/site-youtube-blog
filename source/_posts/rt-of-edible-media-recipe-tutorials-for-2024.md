@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Edible Media  Recipe Tutorials for 2024\""
-date: 2024-06-25T20:55:52.300Z
-updated: 2024-06-26T20:55:52.300Z
+date: 2024-07-03T13:26:18.293Z
+updated: 2024-07-04T13:26:18.293Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 ## The Art of Edible Media: Recipe Tutorials
 
-# How to Make a Cooking Video in Steps - an Ultimate Guide ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make a Cooking Video in Steps - an Ultimate Guide
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shield Yourself Online  A Step-by-Step Guide for Smoothing Images\""
-date: 2024-06-25T20:59:36.429Z
-updated: 2024-06-26T20:59:36.429Z
+date: 2024-07-03T13:26:21.035Z
+updated: 2024-07-04T13:26:21.035Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/dfad489a283b58802ec92c884b7191bbab4a284ec
 
 ## Shield Yourself Online: A Step-by-Step Guide for Smoothing Images
 
-# How to Blur Faces or Objects in YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Blur Faces or Objects in YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Passive to Profitable  8 Beginner's Revenue Hacks for YouTube\""
-date: 2024-06-25T20:14:36.526Z
-updated: 2024-06-26T20:14:36.526Z
+date: 2024-07-03T13:26:23.023Z
+updated: 2024-07-04T13:26:23.023Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/454a5d400e77a7a30fc6fb5cf37376c887407a08a
 
 ## From Passive to Profitable: 8 Beginner's Revenue Hacks for YouTube
 
-# Infographic - 8 Ways to Make Money on YouTube for Beginners ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - 8 Ways to Make Money on YouTube for Beginners
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Visualizing 2023  Social Media's Next Big Thing\""
-date: 2024-06-25T20:58:09.237Z
-updated: 2024-06-26T20:58:09.237Z
+date: 2024-07-03T13:26:23.228Z
+updated: 2024-07-04T13:26:23.228Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ## Visualizing 2023: Social Media's Next Big Thing
 
-# Infographic - Social Media Trends ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - Social Media Trends
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

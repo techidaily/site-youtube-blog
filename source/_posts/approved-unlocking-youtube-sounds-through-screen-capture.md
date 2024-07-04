@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking YouTube Sounds Through Screen Capture\""
-date: 2024-06-25T20:52:09.158Z
-updated: 2024-06-26T20:52:09.158Z
+date: 2024-07-03T13:26:18.910Z
+updated: 2024-07-04T13:26:18.910Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 
 ## Unlocking YouTube Sounds Through Screen Capture
 
-# How to Record Audio from YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How to Record Audio from YouTube
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

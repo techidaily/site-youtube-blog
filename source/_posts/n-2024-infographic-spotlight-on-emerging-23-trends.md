@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Infographic Spotlight on Emerging '23 Trends"
-date: 2024-06-25T20:12:49.789Z
-updated: 2024-06-26T20:12:49.789Z
+date: 2024-07-03T13:26:22.730Z
+updated: 2024-07-04T13:26:22.730Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
 ## Infographic Spotlight on Emerging '23 Trends
 
-# Infographic - Social Media Trends ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - Social Media Trends
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "Prime 8 Edits Suites on Linux OS"
-date: 2024-06-25T21:19:36.454Z
-updated: 2024-06-26T21:19:36.454Z
+date: 2024-07-03T13:26:19.914Z
+updated: 2024-07-04T13:26:19.914Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/e5fa00147cce37f680150801c141d35390120d592
 
 ## Prime 8 Edits Suites on Linux OS
 
-# Best 8 YouTube Editing Software for Linux ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best 8 YouTube Editing Software for Linux
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
