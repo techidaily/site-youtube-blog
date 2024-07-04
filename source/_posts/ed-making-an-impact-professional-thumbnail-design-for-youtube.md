@@ -1,0 +1,118 @@
+---
+title: "\"[Updated] Making an Impact  Professional Thumbnail Design for YouTube\""
+date: 2024-06-25T20:25:01.036Z
+updated: 2024-06-26T20:25:01.036Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Making an Impact: Professional Thumbnail Design for YouTube\""
+excerpt: "\"This Article Describes [Updated] Making an Impact: Professional Thumbnail Design for YouTube\""
+keywords: "YouTubE Thumbnails,Impact Design Art,Prof I Cessional Images,Video Impact Thumbs,Impactful Image Art,Thumbnail Creative Work,Design for YouTube"
+thumbnail: https://thmb.techidaily.com/06b7f9bb308a2f230442ff554dbb6dddbc8b32cf4318fa7b79eedb41360cb388.jpg
+---
+
+## Making an Impact: Professional Thumbnail Design for YouTube
+
+# How to Make YouTube Banners and Thumbnails ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+## How to Make YouTube Banners and Thumbnails
+
+YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
+
+#### 1\. YouTube Banners
+
+**Quick Tips:**
+
+1. The image you upload for your YouTube banner should be 2560 x 1440px (pixels).
+2. The 'safe area' for text, logos, and other important visual information (like faces) is 1546 x 423px.
+
+Your banner is probably the first thing that comes to mind when you think about channel art. Banners are the headers that rest at the tops of channel pages on YouTube. Your banner should be 2560 x 1440 px, although not all of it will always be visible. On a desktop computer or mobile device only a 1546 x 423 px ‘safe area’ will be visible. When viewed on a TV screen your entire image will be visible. YouTube does support PNG, but if your PNG file does not upload properly (as has been the case for some YouTubers) then changing your file type to JPEG might help.
+
+YouTube Banners are extremely important to the success of your channel. If you do not have a banner then it looks like you do not really care about your vlog. If you have a basic banner that is not at all personalized then it certainly looks like you care, but it might also look like you are new to YouTube.
+
+The best banners are customized to reflect the kind of experience you want viewers to have on your channel. The banner of a comedic YouTube channel might use bright colors, where the banner for a gaming channel will probably use darker colors similar to the ones that are in the games the vlogger plays. Connecting your banner to the theme of your channel is part of how you define the style of your vlog. It is the difference between being a Beauty Guru and a general YouTuber who gives makeup tips sometimes.
+
+Including a photo of yourself, or your logo if you have one, is a great way to personalize your banner.
+
+#### 2\. YouTube Thumbnails
+
+**Quick Tips:**
+
+1. Search for your video's topic to see the thumbnails your thumbnail will be competing against.
+2. Make any text huge so people can read it on their smartphone screens.
+3. Emojis, colored boarders, and graphics are all potential ways to stand out.
+
+Thumbnails are often ignored by newer YouTubers. YouTube selects a thumbnail for every one of your videos and it is always a still image from that video. You can choose which frame you want to use and a lot of people feel like that is good enough. When you create a custom thumbnail, however, you get to not only choose your image but insert a title.
+
+If you are choosing the images you are using for thumbnails you can make sure they are always similar frames. This will help people identify your videos quickly in searches. Using titles in your thumbnails will also help searchers identify your videos, if you always use the same title style. Another benefit of titles is that they capture the attention of people looking for your specific topic. Remember when building your thumbnails that they will appear smaller on YouTube than they probably are while you edit them. On mobile devices, they will look even smaller. So, if you are going to use text in your thumbnail, make sure it is huge.
+
+One thumbnail taboo that you should never break is using an image that has nothing to do with your video. Using an image of a cute cat for a vlog post that has nothing to do with cats is misleading and will anger viewers. You may draw in a lot of viewers who want to see a cat video, but they will leave right away when they do not see a cat and they will never watch anything by you again.
+
+#### 3.Where To Create Banners and Thumbnails
+
+There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
+
+![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+**Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
+
+![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+**PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/24-premium-changing-voices-technology-for-youtube-artists/"><u>In 2024, Premium Changing Voices Technology for YouTube Artists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-become-a-shorts-connoisseur-must-know-facts/"><u>[New] In 2024, Become a Shorts Connoisseur  Must-Know Facts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/teps-youtube-takes-once-a-video-is-submitted-for-viewing/"><u>The Steps YouTube Takes Once a Video Is Submitted for Viewing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/riber-supremacy-youtubes-front-runners-for-2024/"><u>Subscriber Supremacy  YouTube's Front-Runners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/isual-producer-studio/"><u>[New] Visual Producer Studio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-alternative-film-choices-ranked-7-1/"><u>In 2024, Alternative Film Choices  Ranked #7-1</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-revenue-calculation-for-every-clicked-video/"><u>[New] In 2024, Revenue Calculation for Every Clicked Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-nextgen-youtuber-tools-studio-vs-beta-version/"><u>[New] 2024 Approved  NextGen YouTuber Tools  Studio Vs. Beta Version</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-inside-track-on-calculating-your-youtube-impact-and-income/"><u>[Updated] 2024 Approved  Inside Track on Calculating Your YouTube Impact and Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[Updated] Green Screen Mastery  Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unveiling-8-top-choices-your-go-to-templates-on-ig/"><u>Unveiling 8 Top Choices  Your Go-To Templates on IG</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/behind-the-scenes-insider-knowledge-for-youtube-video-production/"><u>Behind the Scenes  Insider Knowledge for YouTube Video Production</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-mastery-in-messaging-perfecting-video-posting-on-discord/"><u>[New] 2024 Approved  Mastery in Messaging  Perfecting Video Posting on Discord</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-spectrum-of-sound-choosing-your-linux-audio-editor-for-free-or-a-fee-for-2024/"><u>The Spectrum of Sound Choosing Your Linux Audio Editor for Free or a Fee for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/discover-vintage-luts-premiere-pro-free-and-paid-options-available/"><u>Discover Vintage LUTs Premiere Pro Free and Paid Options Available</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-advanced-protocols-for-adding-melodies-to-instagram-live-streams/"><u>New Advanced Protocols for Adding Melodies to Instagram Live Streams</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-transforming-your-speech-into-powerful-bass-with-filmora-filmmaking/"><u>New In 2024, Transforming Your Speech Into Powerful Bass with Filmora Filmmaking</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-realme-narzo-60x-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Realme Narzo 60x 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/unveiling-the-leading-audio-recording-apps-of-todays-tech-scene/"><u>Unveiling the Leading Audio Recording Apps of Todays Tech Scene</u></a></li>
+</ul></div>
