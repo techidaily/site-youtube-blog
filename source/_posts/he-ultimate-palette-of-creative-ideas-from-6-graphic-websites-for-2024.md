@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Palette of Creative Ideas From 6 Graphic Websites for 2024"
-date: 2024-06-25T20:58:52.621Z
-updated: 2024-06-26T20:58:52.621Z
+date: 2024-07-13T14:43:10.375Z
+updated: 2024-07-14T14:43:10.375Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b461869fdc65b7a58affdd23329a3336b55cdb42a
 
 ## The Ultimate Palette of Creative Ideas From 6 Graphic Websites
 
-# 6 Completely Different Places to Get Icons and Logos for YouTube Videos ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 6 Completely Different Places to Get Icons and Logos for YouTube Videos
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -82,6 +83,9 @@ Flaticon asks that you include an “Icon made by \[author link\] from <www.flat
 
 On freepik, you start off by searching for a theme (like the genre of your YouTube title or the topic of a video, i.e. ‘makeup’ or ‘music’). I searched for ‘cat’.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![download Logo Icon on Freepik](https://images.wondershare.com/filmora/article-images/icons-logos-on-freepik.jpg)
 
 _A few of the sets available on freepik. The crown icon means you need to be a paying Premium member, but most things are free._
@@ -233,3 +237,40 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-role-of-analytics-in-youtube-shorts-management/"><u>2024 Approved  The Role of Analytics in YouTube Shorts Management</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-dualview-photography-analysis/"><u>[New] DualView Photography Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-topping-content-youtubes-top-5-for-2024/"><u>Chart-Topping Content  YouTube's Top 5 for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-affluent-streaming-stars/"><u>[New] 2024 Approved  Affluent Streaming Stars</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/radiant-recording-two-simple-steps-for-enhanced-iphone-video-lighting-for-2024/"><u>Radiant Recording  Two Simple Steps for Enhanced iPhone Video Lighting for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-out-as-an-elite-gamer-on-youtube-for-2024/"><u>Stand Out as an Elite Gamer on Youtube for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-inside-tiktoks-dynamic-world-filters-and-animation-for-2024/"><u>[New] Inside TikTok's Dynamic World (Filters & Animation) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>[New] 2024 Approved  Charting Success  Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-12-ideal-video-cameras-for-aspiring-and-seasoned-vloggers/"><u>[New] 2024 Approved  12 Ideal Video Cameras for Aspiring and Seasoned Vloggers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-screener-tech-perfect-for-creating-viral-youtube-moments/"><u>[New] 2024 Approved  Best Screener Tech  Perfect for Creating Viral YouTube Moments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-engaging-gamers-banners-using-pre-made-themes/"><u>[New] 2024 Approved  Crafting Engaging Gamers' Banners  Using Pre-Made Themes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-full-screen-browsing-potential-in-safari-for-apple/"><u>In 2024, Unlock Full-Screen Browsing Potential in Safari for Apple</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-spotify-playlist-converters-for-creating-youtube-content/"><u>Top 5 Spotify Playlist Converters for Creating YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-fixed-eclipsed-youtube-short-video/"><u>[New] 2024 Approved  Fixed  Eclipsed YouTube Short Video</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-definitive-guide-ios-screenshots-and-recording-2inas-2023/"><u>[New] 2024 Approved  The Definitive Guide  IOS Screenshots & Recording (2Inas 2023)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-time-streamers-unite-learn-obs-and-broadcast-to-youtube-for-2024/"><u>First-Time Streamers Unite  Learn OBS & Broadcast to Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>[New] 2024 Approved  12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-proper-techniques-for-exporting-photos-from-phone-to-snapchat/"><u>In 2024, Proper Techniques for Exporting Photos From Phone to Snapchat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-free-tools-for-fb-advertising-top-20-video-maker-recommendations/"><u>2024 Approved  Free Tools for Fb Advertising  Top 20 Video Maker Recommendations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-female-gamers-on-youtube/"><u>Top 10 Female Gamers on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-video-decks-smart-description-templates/"><u>[New] 2024 Approved  Elevate Video Decks  Smart Description Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[New] 6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-finding-peace-in-patience-slowing-down-your-online-video-experience-on-youtube-60-chars-a-bit-long-but-full-of-helpful-info/"><u>[New] 2024 Approved  Finding Peace in Patience  Slowing Down Your Online Video Experience on YouTube (60 Chars, a Bit Long but Full of Helpful Info)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-guide-to-gathering-creative-themes-using-google-trends/"><u>[New] 2024 Approved  A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-earning-potential-steps-to-join-the-youtube-premium-club/"><u>[New] 2024 Approved  Earning Potential  Steps to Join the YouTube Premium Club</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-extracting-image-files-from-youtube-browser-based-os-techniques/"><u>[New] 2024 Approved  Extracting Image Files From Youtube  Browser-Based, OS Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-prodigy-ryan-kaji-dominates-youtube-revenue-race-for-2024/"><u>Child Prodigy  Ryan Kaji Dominates YouTube Revenue Race for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-unlock-pro-level-videos-top-free-online-video-editing-tools/"><u>2024 Approved Unlock Pro-Level Videos Top Free Online Video Editing Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[New] 2024 Approved  Audio Matters  Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-to-fine-tune-youtube-videos-for-efficient-consumption/"><u>Learn to Fine-Tune YouTube Videos for Efficient Consumption</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-effective-legal-strategies-for-content-visibility/"><u>[New] 2024 Approved  Effective, Legal Strategies for Content Visibility</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-free-online-video-production-studios-top-9-options-for-2024/"><u>New Free Online Video Production Studios Top 9 Options for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-path-to-personalized-tiktok-hash-creation-for-2024/"><u>The Path to Personalized TikTok Hash Creation for 2024</u></a></li>
+</ul></div>

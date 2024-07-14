@@ -1,7 +1,7 @@
 ---
 title: "[New] Where Are My YouTube Comments? Desktop/iOS/Android Strategies for 2024"
-date: 2024-06-25T20:50:52.922Z
-updated: 2024-06-26T20:50:52.922Z
+date: 2024-07-13T14:33:45.062Z
+updated: 2024-07-14T14:33:45.062Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,9 @@ That said, the following sections teach you how to find your YouTube comments on
 * [Part 5: How to Moderate YouTube Comments?](#part5)
 * [Part 6: Tips for Writing Good YouTube Comments](#part6)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Find All the Comments You’ve Posted on YouTube?
 
 YouTube allows you to post comments on any video only if you are signed in to your Google account while browsing the streaming platform. Because of this, the portal is able to keep a record of your activities, thus enabling you to track all your comments, and take necessary action such as deleting or modifying them as required.
@@ -244,3 +247,51 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/he-pathway-to-pro-youtube-earnings-on-every-device/"><u>[New] The Pathway to Pro Youtube Earnings on Every Device</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-checklist-for-your-youtubes-most-impactful-visuals-for-2024/"><u>[Updated] The Ultimate Checklist for Your YouTube's Most Impactful Visuals for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-swiftly-expand-your-youtube-following-for-minimal-cost-for-2024/"><u>[Updated] Swiftly Expand Your YouTube Following for Minimal Cost for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-video-brand-enhancement-embedding-logoswatermarks-for-youtube-shows/"><u>2024 Approved  Video Brand Enhancement  Embedding Logos/Watermarks for YouTube Shows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/g-through-rhythm-how-to-submit-music-to-youtube/"><u>Rising Through Rhythm  How to Submit Music to YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-bring-playlists-down-to-youtube-the-5-best-conversion-resources-for-2024/"><u>[Updated] Bring Playlists Down to YouTube  The 5 Best Conversion Resources for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-dominance-exploring-the-quintessential-five-tactics-for-2024/"><u>[Updated] Unlocking YouTube Dominance - Exploring the Quintessential Five Tactics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-insiders-guide-to-fixing-popular-youtube-short-problems/"><u>[Updated] The Insider's Guide to Fixing Popular YouTube Short Problems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-supercharge-your-videos-with-powerful-tagging-techniques/"><u>[Updated] Supercharge Your Videos with Powerful Tagging Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>[Updated] 2024 Approved  Enhance Your Videos  Effective Titles and Keywords on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-virtual-vision-creation-shaping-a-humorous-self-portrait/"><u>[New] In 2024, Virtual Vision Creation  Shaping a Humorous Self-Portrait</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-filmmakers-dream-the-8-best-no-fee-video-editors-on-the-market/"><u>[New] 2024 Approved  A Filmmaker's Dream  The 8 Best No-Fee Video Editors on the Market</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/jeys-youtube-earnings-insight-2023/"><u>[New] Ajey's YouTube Earnings Insight - 2023</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hts-into-income-average-earnings-per-advertisement-playback-in-2024/"><u>Insights Into Income  Average Earnings per Advertisement Playback, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gue-enrichment-system-for-2024/"><u>Dialogue Enrichment System for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-video-content-potential-integrating-interactive-features-in-youtube-cards/"><u>Unlocking Video Content Potential  Integrating Interactive Features in Youtube Cards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-from-free-to-paid-subscriber-count-surpasses-500/"><u>[Updated] 2024 Approved  From Free to Paid  Subscriber Count Surpasses 500</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-poco-x5-to-mac-drfone-by-drfone-android/"><u>How to Mirror Poco X5 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-tips-for-successful-youtube-audios/"><u>2024 Approved  Tips for Successful Youtube Audios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/are-the-laws-around-saving-youtube-videos-for-offline-use/"><u>What Are the Laws Around Saving YouTube Videos for Offline Use?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-streamlining-screenshot-tasks-in-minutes/"><u>[New] In 2024, Streamlining Screenshot Tasks in Minutes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastery-manual-for-dynamic-distracting-filters-for-2024/"><u>[New] Mastery Manual for Dynamic, Distracting Filters for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ary-callings-30-unique-show-title-suggestions/"><u>Culinary Callings  30 Unique Show Title Suggestions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-conquer-social-media-with-savvy-fb-video-choices-for-2024/"><u>[New] Conquer Social Media with Savvy FB Video Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads/"><u>[New] The Digital Cashman's Codex  Flourishing on YouTube, Free From Ads</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-tremors-and-rumbles-a-compendium-of-colossal-sound-effects/"><u>Updated In 2024, Tremors and Rumbles A Compendium of Colossal Sound Effects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eginners-guide-video-setup-must-haves-for-2024/"><u>[New] Beginner's Guide  Video Setup Must-Haves for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/arnings-in-the-age-of-streaming-how-youtube-pays-creators/"><u>[New] Earnings in the Age of Streaming  How YouTube Pays Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-creators-guide-15-unrestricted-music-archives-for-2024/"><u>[Updated] YouTube Creators' Guide  15 Unrestricted Music Archives for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-lut-techniques-for-professional-color-grading-and-correction/"><u>[Updated] LUT Techniques for Professional Color Grading and Correction</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/artistry-at-heart-best-10-free-easy-mac-drawers-for-2024/"><u>Artistry at Heart  Best 10 Free, Easy Mac Drawers for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/speeding-up-tiktok-videos-the-ultimate-guide-for-2024/"><u>Speeding Up TikTok Videos  The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-yuva-2-pro-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Yuva 2 Pro.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ave-goodbye-to-dullness-the-ultimate-list-of-funny-youtubers-for-2024/"><u>[New] Wave Goodbye to Dullness  The Ultimate List of Funny YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-best-10-cutting-edge-reaction-ideas-for-2024/"><u>[Updated] YouTube's Best  10 Cutting-Edge Reaction Ideas for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egies-for-swift-fixes-in-youtubers-shorts-for-2024/"><u>Strategies for Swift Fixes in YouTubers' Shorts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-creating-high-quality-youtube-ads-on-a-dime/"><u>[Updated] The Pathway to Creating High-Quality YouTube Ads on a Dime</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-seamless-video-editing-on-arm-devices-filmora-x-makes-it-happen/"><u>Updated Seamless Video Editing on ARM Devices Filmora X Makes It Happen</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/future-cinema-at-your-fingertips-top-10-players/"><u>Future Cinema at Your Fingertips - Top 10 Players</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-infinix-hot-40-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Infinix Hot 40 Pro Device SIM</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spectrum-sync-master-for-2024/"><u>Spectrum Sync Master for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-smartphones-role-in-video-content-making-youtube-thumbnails-stand-out-for-2024/"><u>[New] The Smartphone's Role in Video Content  Making YouTube Thumbnails Stand Out for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/visionaryshot-cutting-edge-windowsmac-captures-for-2024/"><u>VisionaryShot  Cutting-Edge Windows/Mac Captures for 2024</u></a></li>
+</ul></div>

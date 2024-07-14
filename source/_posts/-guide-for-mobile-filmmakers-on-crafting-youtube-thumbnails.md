@@ -1,7 +1,7 @@
 ---
 title: "[New] A Guide for Mobile Filmmakers on Crafting YouTube Thumbnails"
-date: 2024-06-25T20:51:59.870Z
-updated: 2024-06-26T20:51:59.870Z
+date: 2024-07-13T14:35:03.606Z
+updated: 2024-07-14T14:35:03.606Z
 tags:
   - ai video
   - ai youtube
@@ -130,6 +130,9 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
@@ -379,3 +382,51 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-rewind-revolution-novel-strategies-for-youtube-viewers/"><u>[New] The Rewind Revolution  Novel Strategies for YouTube Viewers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-speed-up-your-storytelling-how-to-create-engaging-time-lapse-videos/"><u>Updated 2024 Approved Speed Up Your Storytelling How to Create Engaging Time Lapse Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-secure-video-sharing-youtube-to-gmail-with-google-access-for-2024/"><u>[Updated] Unlocking Secure Video Sharing  YouTube to Gmail with Google Access for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-cost-effective-media-providers-online-for-2024/"><u>[Updated] The Ultimate Guide to Cost-Effective Media Providers Online for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ransform-your-content-3-effective-techniques-for-youtube-reaction-magic-for-2024/"><u>[New] Transform Your Content  3 Effective Techniques for YouTube Reaction Magic for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/musical-embellishments-for-digital-images-for-2024/"><u>Musical Embellishments for Digital Images for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ascent-of-jake-paul-in-online-video-fame/"><u>[Updated] The Ascent of Jake Paul in Online Video Fame</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-definitive-guide-to-removing-persistent-youtube-channels-on-all-screens/"><u>[Updated] The Definitive Guide to Removing Persistent Youtube Channels on All Screens</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/immersive-education-the-role-of-virtual-reality/"><u>Immersive Education  The Role of Virtual Reality</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/pure-audio-processing-the-art-of-background-noise-elimination-with-filmora-by-wondershare/"><u>Pure Audio Processing The Art of Background Noise Elimination with Filmora by Wondershare</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-that-you-should-know-about-youtube-keyword-research-for-2024/"><u>Things That You Should Know About YouTube Keyword Research for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-secrets-to-successful-youtube-filmmaking-with-pc-editing-software-for-2024/"><u>[Updated] Secrets to Successful YouTube Filmmaking with PC Editing Software for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-comprehensive-list-the-most-acclaimed-10-vimeo-video-harvesters-for-2024/"><u>[New] Comprehensive List  The Most Acclaimed 10 Vimeo Video Harvesters for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-your-way-through-youtube-tvs-unique-offerings-for-2024/"><u>[Updated] Navigating Your Way Through YouTube TV's Unique Offerings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-artistry-designing-channels-visual-assets-bannersicons-for-2024/"><u>[Updated] YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-sharex-overview-top-picks-and-substitutes/"><u>[New] In 2024, ShareX Overview  Top Picks & Substitutes</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-from-zero-to-hero-top-10-intro-creator-websites-for-beginners/"><u>Updated In 2024, From Zero to Hero Top 10 Intro Creator Websites for Beginners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-facebooks-features-for-sharing-youtube-content/"><u>[New] In 2024, Navigating Facebook's Features for Sharing YouTube Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-discoveries-10-facebook-meme-pages-that-surprise-you/"><u>[Updated] Discoveries  10 Facebook Meme Pages That Surprise You</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license-for-2024/"><u>[Updated] Skyrocketing View Figures by Sustaining YouTube's Creative Commons License for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-filmmaking-fundamentals-for-the-modern-tiktoker-quick-effective-tips/"><u>[Updated] In 2024, Filmmaking Fundamentals for the Modern TikToker  Quick, Effective Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-seamless-instagram-story-layering-techniques-for-2024/"><u>[Updated] Seamless Instagram Story Layering Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-115-hilarious-puzzle-threads-on-tiktok/"><u>[Updated] In 2024, 115 Hilarious Puzzle Threads on TikTok</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-balancing-acts-in-youtube-music-mixes-for-2024/"><u>[New] Balancing Acts in YouTube Music Mixes for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-dominant-click-through-rates-in-youtube-advertising/"><u>[New] In 2024, Strategies for Dominant Click-Through Rates in YouTube Advertising</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-constructor-suite-for-2024/"><u>[Updated] Video Constructor Suite for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-strategies-for-high-def-facebook-video/"><u>[New] Top Strategies for High-Def Facebook Video</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-running-windows-and-mac-os-video-editing-apps-on-chrome-os/"><u>Updated The Ultimate Guide to Running Windows and Mac OS Video Editing Apps on Chrome OS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-generating-a-youtube-auto-subscribe-direct-link/"><u>[Updated] 2024 Approved  Generating a YouTube Auto Subscribe Direct Link</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-overcoming-the-invisible-screen-hurdle-youtube-fixes/"><u>[New] In 2024, Overcoming the Invisible Screen Hurdle  YouTube Fixes</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oppo-find-x6-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Oppo Find X6 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-art-of-self-recording-improving-your-youtube-presence-for-2024/"><u>[New] The Art of Self-Recording  Improving Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-streamlining-the-process-of-sending-videos-in-discord/"><u>[New] Streamlining the Process of Sending Videos in Discord</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-designing-youtube-video-flow/"><u>[New] In 2024, Strategies for Designing YouTube Video Flow</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stock-success-the-ultimate-list-of-channels/"><u>[Updated] Stock Success  The Ultimate List of Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimal-mics-tailored-to-youtube-professionals/"><u>[Updated] Optimal Mics Tailored to YouTube Professionals</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-coordinated-duet-clips-with-tiktok-twist/"><u>[New] 2024 Approved  Coordinated Duet Clips with TikTok Twist</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-superb-phone-video-and-photo-capturing-with-best-apps-list/"><u>[Updated] Superb Phone Video & Photo Capturing with Best Apps List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remier-selector-master-your-video-grabs-for-2024/"><u>The Premier Selector  Master Your Video Grabs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-video-visibility-on-youtube-through-lighting/"><u>[New] In 2024, Maximizing Video Visibility on YouTube Through Lighting</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-top-non-tiktok-apps-keep-up-with-trending-social-media/"><u>[New] Top Non-TikTok Apps  Keep Up with Trending Social Media</u></a></li>
+</ul></div>

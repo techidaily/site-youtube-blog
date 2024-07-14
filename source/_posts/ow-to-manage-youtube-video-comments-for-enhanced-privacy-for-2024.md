@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Manage YouTube Video Comments for Enhanced Privacy for 2024"
-date: 2024-06-25T20:29:11.986Z
-updated: 2024-06-26T20:29:11.986Z
+date: 2024-07-13T14:08:12.006Z
+updated: 2024-07-14T14:08:12.006Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ce715e4a5f07116757cf7fe719b940aadd98801d0
 
 ## How to Manage YouTube Video Comments for Enhanced Privacy
 
-# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -138,6 +139,9 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -163,3 +167,40 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-creative-ways-to-create-iphone-text-gif/"><u>Updated 2024 Approved Creative Ways to Create iPhone Text GIF</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-inside-vitas-advanced-video-editing-tools-full-review-and-expert-tutorial-2024/"><u>[Updated] Inside Vita's Advanced Video Editing Tools  Full Review & Expert Tutorial 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-hardware-driver-on-windows-11-by-drivereasy-guide/"><u>How to Manually Install a Hardware Driver on Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-7-ultimate-live-streaming-apps-for-iphone-and-android-users-on-youtube/"><u>[Updated] 2024 Approved  7 Ultimate Live Streaming Apps for iPhone and Android Users on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/d-and-eye-catching-vlog-discussion-points-for-2024/"><u>Varied and Eye-Catching Vlog Discussion Points for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ary-cinematography-step-by-step-recipe-tutorials-for-2024/"><u>Culinary Cinematography  Step-by-Step Recipe Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-making-your-mark-on-youtube-a-branding-blueprint/"><u>[Updated] Making Your Mark on YouTube – A Branding Blueprint</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hilarityhub-online-tool-for-funny-image-crafting/"><u>2024 Approved  HilarityHub  Online Tool for Funny Image Crafting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-earning-in-a-world-dominated-by-youtubers/"><u>[Updated] Earning in a World Dominated by YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-shorts-ultimate-guide/"><u>YouTube Shorts Ultimate Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-conversion-tools-for-video-content/"><u>[New] 2024 Approved  Expert Conversion Tools for Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-content-creators-dilemma-vimeo-or-youtube-for-2024/"><u>[Updated] The Content Creator’s Dilemma  Vimeo or YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-camera-selection-for-youtube-filmmakers/"><u>[Updated] The Ultimate Camera Selection for YouTube Filmmakers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-access-global-grooves-at-zero-price/"><u>[New] 2024 Approved  Access Global Grooves at Zero Price</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-10-must-have-keyword-gurus-for-video-success/"><u>[Updated] 2024 Approved  10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/h-amidst-cold-selecting-perfect-winter-backdrops/"><u>Warmth Amidst Cold  Selecting Perfect Winter Backdrops</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-money-trail-for-youtube-creators-revenue-realization/"><u>[Updated] The Money Trail for YouTube Creators  Revenue Realization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transitioning-playlists-from-spotify-to-a-tailored-youtube-music-list-for-2024/"><u>[Updated] Transitioning Playlists From Spotify to a Tailored YouTube Music List for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izing-monetization-unlocking-partnerships-without-limits/"><u>Maximizing Monetization  Unlocking Partnerships Without Limits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings/"><u>[Updated] Navigate Your Path to Prominence  A Precise Guide to Youtube's Featured Listings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-list-of-8-free-video-editing-programs-for-creatives-for-2024/"><u>The Ultimate List of 8 FREE Video Editing Programs for Creatives for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-access-yt-comments-desktopiosandroid-edition-explained-for-2024/"><u>[Updated] Access YT Comments  Desktop/iOS/Android Edition Explained for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-growth-trajectories-with-top-7-tiktok-tools/"><u>[Updated] 2024 Approved  Mastering Growth Trajectories with Top 7 TikTok Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/innovative-and-user-friendly-voice-editing-apps-for-2024/"><u>Innovative and User-Friendly Voice Editing Apps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-early-birds-guide-to-youtube-skip-these-8-potential-pitfalls-for-2024/"><u>[Updated] The Early Bird's Guide to YouTube  Skip These 8 Potential Pitfalls for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reach-audience-zenith-peak-watch-timings-uncovered-for-2024/"><u>[Updated] Reach Audience Zenith - Peak Watch Timings Uncovered for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hoot-cool-vids-from-scratch-with-your-mac-newcomers-guide/"><u>[New] Shoot Cool Vids From Scratch with Your Mac, Newcomers Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-strategies-for-optimal-featured-channels-in-youtubes-algorithm/"><u>[New] Strategies for Optimal Featured Channels in YouTube's Algorithm</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-from-clicks-to-cash-the-journey-of-youtubes-ajay-nagar-for-2024/"><u>[Updated] From Clicks to Cash  The Journey of YouTube's Ajay Nagar for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-strategies-for-randomizing-youtube-tracks-across-media-for-2024/"><u>[Updated] Quick Strategies for Randomizing YouTube Tracks Across Media for 2024</u></a></li>
+</ul></div>

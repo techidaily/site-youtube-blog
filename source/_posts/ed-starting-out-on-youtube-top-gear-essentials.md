@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Starting Out on YouTube - Top Gear Essentials\""
-date: 2024-06-25T21:17:44.611Z
-updated: 2024-06-26T21:17:44.611Z
+date: 2024-07-13T15:05:24.129Z
+updated: 2024-07-14T15:05:24.129Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9
 
 ## Starting Out on YouTube - Top Gear Essentials
 
-# YouTube Equipment Starter Guide For Beginners ![](https://images.wondershare.com/filmora/Contributor/Sumia-Rafique.jpg)
+# YouTube Equipment Starter Guide For Beginners
+![](https://images.wondershare.com/filmora/Contributor/Sumia-Rafique.jpg)
 
 ##### Sumia Rafique
 
@@ -127,7 +128,8 @@ Most vlogging cameras come with a built-in microphone that gets the job done. If
 
 To read more about each of these microphones, check out our post on [The 19 Best YouTube Microphones 2018 – Options for Music, Voiceovers, Vlogging, and more!](https://www.filmora.io/community-blog/the-19-best-youtube-microphones-2018---options-for-music-352.html)
 
-## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES ![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
+## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES
+![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
 
 Using your smartphone’s camera to film your YouTube videos is a great idea since it’s light, portable, and most likely always with you. The following six smartphone accessories can help you make better YouTube videos:
 
@@ -149,6 +151,9 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Daytime Light Bulbs](https://images.wondershare.com/filmora/article-images/daytime-light-bulbs.jpg)   | **Daytime Light Bulbs** Your home is most likely lit with incandescent light bulbs that illuminate orange-tinted light. You can remove those light bulbs and replace them with daytime light bulbs that illuminate more of a white colored light.                                                                                                                                                     |
 | ------------------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | ![On-Camera LED Light](https://images.wondershare.com/filmora/article-images/on-camera-led-light.jpg)   | **On-Camera LED Light** If you need more light just in front of the camera and you need this light to be portable, LED lights that attach to your camera’s hot/cold shoe will do the job.                                                                                                                                                                                                             |
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | ![LED Ring Light](https://images.wondershare.com/filmora/article-images/led-ring-light.jpg)             | **LED Ring Light** If you need more light just in front of the camera, you don’t have a lot of space, and you don’t need this light to be small and portable, an LED ring light is the best piece of equipment for you. You can position your camera inside the circular space of the ring light. This kind of light also gives your eyes the circular shaped highlight that many people like to see. |
 | ![Softbox Video Light](https://images.wondershare.com/filmora/article-images/softbox-video-light.jpg)   | **Softbox Video Light** If you need more light and have more space, another piece of lighting equipment good for beginners is a softbox video light.                                                                                                                                                                                                                                                  |
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
@@ -226,3 +231,55 @@ Follow @Sumia Rafique
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-gt-10-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix GT 10 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-absolute-zero-to-audience-peaks-top-10-insights-on-boosting-video-viewership/"><u>[New] From Absolute Zero to Audience Peaks  Top 10 Insights on Boosting Video Viewership</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-key-to-attracting-views-youtube-image-marketing/"><u>[Updated] The Key to Attracting Views  YouTube Image Marketing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-essential-youtube-beauty-influencers-10-creators-to-watch/"><u>[New] In 2024, Essential YouTube Beauty Influencers  10 Creators to Watch</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-guide-youtube-channel-titles-for-video-blogging-max-156-for-2024/"><u>[Updated] Ultimate Guide  YouTube Channel Titles For Video Blogging (Max 156) for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-pova-5-profrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Pova 5 ProFRP Lock</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-speedy-iphone-timelapses-made-simple/"><u>[Updated] Speedy iPhone Timelapses Made Simple</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-magic5-ultimate-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-leading-10-live-streaming-services/"><u>2024 Approved  Unveiling the Leading 10 Live-Streaming Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-mobile-filmmakers-blueprint-crafting-viral-thumbnails-for-youtubes-for-2024/"><u>[Updated] The Mobile Filmmaker's Blueprint  Crafting Viral Thumbnails for YouTubes for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-direct-access-to-clean-cut-tiktok-videos-without-watermarks/"><u>In 2024, Direct Access to Clean-Cut TikTok Videos Without Watermarks</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-c51-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme C51 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/meld-editsuite/"><u>MediaMeld EditSuite</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-tiktok-trendsetters-guide-to-video-virality-for-2024/"><u>[New] TikTok Trendsetter's Guide to Video Virality for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-the-differences-in-youtubes-ownership-and-cc-models-for-2024/"><u>Charting the Differences in YouTube's Ownership and CC Models for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ming-wars-recap-fb-live-yt-live-and-twitter-spaces-for-2024/"><u>Streaming Wars Recap  FB LIVE, YT Live & Twitter Spaces for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-13-pro-max-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your Apple iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-8-strategies-for-striking-thumbnails-in-youtube-circles/"><u>[New] In 2024, Top 8 Strategies for Striking Thumbnails in YouTube Circles</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-how-to-make-youtube-thumbnails-online-and-offline/"><u>[New] In 2024, How to Make YouTube Thumbnails Online & Offline</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-analytics-understanding-metrics-without-fancy-tools/"><u>[Updated] The Art of Analytics  Understanding Metrics Without Fancy Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-video-insights-top-7-free-easy-to-use-tag-extraction-software-reviewed/"><u>Unlock Video Insights  Top 7 Free, Easy-to-Use Tag Extraction Software Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-for-boosting-your-youtube-shorts-audience-for-2024/"><u>[Updated] Strategies for Boosting Your YouTube Shorts Audience for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-create-a-playlist-on-youtube-a-complete-guide/"><u>[Updated] How to Create a Playlist on Youtube - a Complete Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-video-marketing-titles-and-tags-on-youtube/"><u>[Updated] The Art of Video Marketing  Titles & Tags on YouTube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discover-reasons-to-never-turn-off-your-windows-11-push-notifications/"><u>Discover Reasons to Never Turn Off Your Windows 11 Push Notifications</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-remove-youtube-commercials-in-a-click-techniques-for-every-browser/"><u>[Updated] Remove YouTube Commercials in a Click - Techniques for Every Browser</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-final-chapter-of-your-youtube-content-creation-for-2024/"><u>[Updated] The Final Chapter of Your YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-new-era-youtube-hits-past-vidcon/"><u>In 2024, Unveiling New Era  YouTube Hits Past VidCon</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-to-record-screencast-from-youtube-for-free/"><u>[Updated] In 2024, How To Record Screencast From YouTube For Free</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-discovering-youtube-studio-where-ideas-become-engaging-content/"><u>In 2024, Discovering YouTube Studio  Where Ideas Become Engaging Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailoring-video-content-to-youtubes-niche-needs/"><u>[Updated] Tailoring Video Content to Youtube's Niche Needs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-graphicgenius-suite/"><u>[New] In 2024, GraphicGenius Suite</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-discord-gifs-how-to-put-gifs-on-discord-a-complete-guide/"><u>[New] 2024 Approved  Discord GIFs  How to Put GIFs on Discord - A Complete Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-incredible-live-stream-options-a-compilation/"><u>[Updated] Incredible Live Stream Options - A Compilation</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-vivo-t2-pro-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Vivo T2 Pro 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-professional-portals-15-youtube-economic-insights/"><u>[New] In 2024, Professional Portals  15 YouTube Economic Insights</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-5-hdmi-21-gaming-monitors-you-can-find/"><u>[New] Top 5 HDMI 2.1 Gaming Monitors You Can Find</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-studio-to-screen-uploading-melodies-online/"><u>[Updated] In 2024, From Studio to Screen  Uploading Melodies Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-undo-button-retracing-your-youtube-steps/"><u>[New] In 2024, The Undo Button  Retracing Your YouTube Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube-for-2024/"><u>[Updated] Snippet Spectacle  Top Hashes to Trigger the Viral Spree on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-flip-understanding-1-million-views-payoff-for-2024/"><u>[Updated] The Financial Flip  Understanding 1 Million Views Payoff for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-vault-the-wealth-of-mr-beast/"><u>[Updated] Unlocking the Vault  The Wealth of Mr. Beast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-creator-studio-unleashing-the-power-of-your-channel/"><u>[New] In 2024, YouTube Creator Studio  Unleashing the Power of Your Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-max-views-max-impact-discover-best-posting-days-for-2024/"><u>[Updated] Max Views, Max Impact  Discover Best Posting Days for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-top-6-must-have-apps-to-elevate-your-instagram-video-content/"><u>[Updated] 2024 Approved  Top 6 Must-Have Apps to Elevate Your Instagram Video Content</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-time-saving-approaches-to-turn-whatsapp-audios-into-mp3-format/"><u>In 2024, Time-Saving Approaches to Turn WhatsApp Audios Into MP3 Format</u></a></li>
+</ul></div>

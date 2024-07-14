@@ -1,7 +1,7 @@
 ---
 title: "Perfect Sound Devices for Podcasters"
-date: 2024-06-25T21:04:51.498Z
-updated: 2024-06-26T21:04:51.498Z
+date: 2024-07-13T14:50:13.734Z
+updated: 2024-07-14T14:50:13.734Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
 
 ## Perfect Sound Devices for Podcasters
 
-# Best Microphone for YouTubers ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best Microphone for YouTubers
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -33,23 +34,28 @@ If you want your viewers to be glued to their screens then quality audio is just
 
 Here are examples of some of the best external microphones for YouTube:
 
-#### 1. Blue Snowball USB Mic - $60 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
+#### 1. Blue Snowball USB Mic - $60
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
 
 The Snowball is especially good for vlogging from your webcam because it is easy to hook up to your computer using a USB port. It will record your audio simultaneously while you are using your webcam. The biggest drawback of the Snowball is that it needs to be close to you while your record. This combined with its larger size means that it will probably need to be in your shot.
 
-#### 2. RØDE Video Shotgun Mic - $140 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
+#### 2. RØDE Video Shotgun Mic - $140
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
 
 The Shotgun attaches to your DSLR camera and is great for capturing specific sounds, like dialogue, without a lot of background noise. To work well it needs to be pointing at the person who is speaking, and it should be fairly close to them as well. This means that the camera cannot be too far back from you while you vlog.
 
-#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
+#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
 
 This microphone is similar to the ones you think of being mounted on boom poles on professional sets, and it can easily be mounted onto a pole and used the same way. This gradient condenser mic is good at picking up sound at a distance, and at only picking up sound coming from directly in front of it. If you are working alone then you can set this mic up on a stand so it is pointing at you, or if you have a friend to help you you can ask them to hold it on a boom pole.
 
-#### 4. Sony LAV Wireless Mic System - $600 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
+#### 4. Sony LAV Wireless Mic System - $600
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
 
 A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can be clipped onto clothing. Wearing a LAV Mic while you vlog will allow you to move around freely and still capture great audio, rather than being stuck in range of a stationary mic. There are both wired and wireless options available in LAV Mics.
 
-#### 5. Roland R-05 WAVE/MP3 Recorder - $200 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
+#### 5. Roland R-05 WAVE/MP3 Recorder - $200
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
 
 The [R-05](https://bstasmr.com/asmr-accessories/best-asmr-microphones.html) is a pocket recorder that captures flawless audio. Its small size means you can hide it in your pocket and it will not show up in your video. Also, since it does not need to hook up to your camera or computer you will have freedom of movement.
 
@@ -153,6 +159,9 @@ The Rycote Lyre shock mount eliminates any external audio that can be caused by 
 
 **Tip** : For a greater range, the Rode VMRP Video Mic Pro can be mounted onto a boom pole, should the subject need to move around within the shot or if the camera needs to move away from the subject.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8. Best Waterproof Microphone
 
 [Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://www.amazon.com/Sennheiser-MKE-elements-Action-GoPro/dp/B06XYS2KHG) \- $200 ![Best Waterproof Microphone: Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://images.wondershare.com/filmora/article-images/best-waterproof-microphone.jpg)
@@ -239,3 +248,43 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-top-10-cheapbudget-friendly-action-cameras/"><u>[New] 2024 Approved  Top 10 Cheap/Budget Friendly Action Cameras</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-trailer-making-made-easy-top-tools-for-mac-and-windows/"><u>New 2024 Approved Trailer Making Made Easy Top Tools for Mac and Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-famous-gamers-software-choices/"><u>[New] In 2024, Famous Gamers' Software Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-1-ranked-youtube-to-text-online-service/"><u>[New] 2024 Approved  1 Ranked  YouTube to Text Online Service</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expertise-guide-for-effective-text-overlays-on-images/"><u>[New] Expertise Guide for Effective Text Overlays on Images</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-channel-your-creativity-crafting-youtube-trailers-in-filmora/"><u>[New] 2024 Approved  Channel Your Creativity  Crafting YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-expert-stock-videos-top-channels-for-analysis/"><u>[New] 2024 Approved  Expert Stock Videos  Top Channels for Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovating-human-interface-a-guide-to-hand-perception/"><u>2024 Approved  Innovating Human Interface  A Guide to Hand Perception</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-designing-with-dirt-incorporating-natural-elements-into-urban-areas/"><u>[Updated] 2024 Approved  Designing with Dirt  Incorporating Natural Elements Into Urban Areas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[New] 2024 Approved  Cut The Cost, Not The Creativity  Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-visual-voyage-through-youtubes-2017-data-deluge/"><u>[New] A Visual Voyage Through Youtube's 2017 Data Deluge</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-second-stories-explained-well-in-2024/"><u>[New] 5-Second Stories Explained Well, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-building-a-solid-foundation-youtube-video-script-basics/"><u>[New] 2024 Approved  Building a Solid Foundation  YouTube Video Script Basics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-stardews-guide-ginger-isle-essentials/"><u>[Updated] Stardew's Guide  Ginger Isle Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-auto-play-youtube-iphoneandroid-no-notification/"><u>[New] 2024 Approved  Auto-Play YouTube  IPhone/Android, No Notification</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-video-performance-top-notch-youtube-seo-strategies/"><u>[New] 2024 Approved  Elevate Video Performance  Top-Notch YouTube SEO Strategies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/brief-blueprints-sending-ios-videos-and-images/"><u>Brief Blueprints  Sending iOS Videos & Images</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-channeling-success-the-personal-brand-strategy-for-youtubers/"><u>[New] 2024 Approved  Channeling Success  The Personal Brand Strategy for YouTubers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-troubleshooting-frozen-footage-in-photo-booths/"><u>[New] Troubleshooting Frozen Footage in Photo Booths</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[New] 2024 Approved  Audio Conversion Made Simple  YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-building-wealth-through-video-content-revenue/"><u>[New] 2024 Approved  Building Wealth Through Video Content Revenue</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-capture-the-essence-extracting-youtube-audio-directly/"><u>[New] 2024 Approved  Capture the Essence  Extracting YouTube Audio Directly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-alphabetical-arrangement-of-cine-capture-models/"><u>In 2024, Alphabetical Arrangement of Cine-Capture Models</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-step-by-step-approach-to-best-youtube-thumbnails/"><u>[New] A Step-by-Step Approach to Best YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-content-with-insightful-channel-descriptions/"><u>[New] 2024 Approved  Elevate Your Content with Insightful Channel Descriptions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-honor-90-gt-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Honor 90 GT.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-creating-content-with-purpose-balancing-job-and-youtube/"><u>[New] 2024 Approved  Creating Content with Purpose  Balancing Job & YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-talk-points-for-daily-videos/"><u>Novel Talk Points for Daily Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-mobile-and-professional-camera-capture-for-impressive-igtv/"><u>Mastering Mobile and Professional Camera Capture for Impressive IGTV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>[New] 2024 Approved  From Dull to Delightful  How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[New] 2024 Approved  Elevate Your Content  Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-on-purging-stored-videos-from-youtube-watchlater/"><u>Guide on Purging Stored Videos From YouTube Watchlater</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-finding-your-youtube-stored-melodies-easily/"><u>[New] 2024 Approved  Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-samsung-galaxy-s23-ultra-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Samsung Galaxy S23 Ultra Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>

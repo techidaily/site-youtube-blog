@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shot Securement  Keeping Cameras Still on Arms Only for 2024\""
-date: 2024-06-25T20:51:43.144Z
-updated: 2024-06-26T20:51:43.144Z
+date: 2024-07-13T14:34:44.117Z
+updated: 2024-07-14T14:34:44.117Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/298f3a51b5ad96cf99ca78528e1cf7576a8f7bf91
 
 ## Shot Securement: Keeping Cameras Still on Arms Only
 
-# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -56,6 +57,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -124,3 +128,49 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/nlock-your-potential-50-free-high-impact-banners-at-your-disposal/"><u>[New] Unlock Your Potential  50 FREE, High-Impact Banners at Your Disposal!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/intrusions-check-out-our-list-of-top-7-android-apps-for-2024/"><u>Zero Intrusions? Check Out Our List of Top 7 Android Apps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-the-art-of-discovering-elusive-youtube-videos/"><u>Mastering the Art of Discovering Elusive YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-journey-through-creative-commons-a-users-guide/"><u>[New] In 2024, The Journey Through Creative Commons  A User's Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-step-by-step-creating-fade-inout-sequences-for-dynamic-audio/"><u>In 2024, Step-by-Step Creating Fade In/Out Sequences for Dynamic Audio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-free-access-worlds-biggest-youtube-short-downloaders/"><u>[New] In 2024, Free Access  World’s Biggest YouTube Short Downloaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-prevent-youtube-spam-channel-blocking-guide-for-all-platforms/"><u>[New] 2024 Approved  Prevent Youtube Spam  Channel Blocking Guide for All Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-iconic-80s-aesthetic-techniques-for-cutting-videos/"><u>2024 Approved  Iconic 80S Aesthetic Techniques for Cutting Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-visual-storytelling-adding-captions-to-images-in-oses-for-2024/"><u>[Updated] Visual Storytelling  Adding Captions to Images in OSes for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-in-depth-review-of-razers-high-res-cam/"><u>2024 Approved  In-Depth Review of Razer's High-Res Cam</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-engaging-content-with-google-trends-analytics-for-2024/"><u>[New] Crafting Engaging Content with Google Trends Analytics for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-the-complete-archive-exploring-the-most-compelling-cartoon-noise-files-new-arrivals/"><u>Updated In 2024, The Complete Archive Exploring the Most Compelling Cartoon Noise Files (New Arrivals)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-sounds-through-screen-capture-for-2024/"><u>[Updated] Unlocking YouTube Sounds Through Screen Capture for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-seamless-transitions-from-real-to-reel/"><u>2024 Approved  Seamless Transitions From Real to Reel</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-phase-out-of-facebooks-faces-at-meta/"><u>Examining the Phase-Out of Facebook’s Faces at Meta</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-potential-of-youtube-shorts-a-comprehensive-tutorial/"><u>[Updated] Unlocking the Potential of YouTube Shorts  A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/zing-earnings-disparity-dailymovement-and-youtube-profits-compared/"><u>Analyzing Earnings Disparity  DailyMovement and YouTube Profits Compared</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-ultimate-guide-to-selecting-screen-recorder-software/"><u>In 2024, The Ultimate Guide to Selecting Screen Recorder Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-understanding-the-dynamics-behind-youtube-video-rankings/"><u>[New] In 2024, Understanding the Dynamics Behind YouTube Video Rankings</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-the-ultimate-guide-to-imovie-alternatives-for-windows-1110/"><u>Updated In 2024, The Ultimate Guide to iMovie Alternatives for Windows 11/10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rom-streams-to-statements-decoding-the-3-step-process-for-calculating-youtube-earnings/"><u>[New] From Streams to Statements  Decoding the 3-Step Process for Calculating YouTube Earnings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-conquer-time-lapse-with-your-canon-camera/"><u>2024 Approved  Conquer Time-Lapse with Your Canon Camera</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-6-plus-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone 6 Plus Passcode not Working?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-25-ultimate-android-and-ios-downloading-tools-reviewed/"><u>[New] In 2024, 25 Ultimate Android & iOS Downloading Tools Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>In 2024, Elevate Your Game  Strategies for Stellar Gaming YouTube Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-mobile-asmr-tools-essential-downloads/"><u>In 2024, Top Mobile ASMR Tools  Essential Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-essentials-of-youtube-gaming-livestreaming/"><u>[New] 2024 Approved  The Essentials of YouTube Gaming Livestreaming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-gain-momentum-with-these-strategies-for-trending-youtubers/"><u>[New] 2024 Approved  Gain Momentum with These Strategies for Trending YouTubers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-infinix-gt-10-pro-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Infinix GT 10 Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleashing-the-power-of-youtube-short-form-videos/"><u>[New] In 2024, Unleashing the Power of YouTube Short Form Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-poco-m6-pro-4g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Poco M6 Pro 4G Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rom-hobbies-to-hearts-youtubes-path-to-fame/"><u>[New] From Hobbies to Hearts  YouTube's Path to Fame</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ne-replay-select-playlist-extractors-reviewed/"><u>Offline Replay  Select Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-ultimate-5-display-choices-for-ps5/"><u>[New] Ultimate 5 Display Choices  For PS5</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-pros-handbook-to-youtube-income-multiplatform-use-for-2024/"><u>[New] A Pro's Handbook to YouTube Income  Multiplatform Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-techniques-to-retrieve-and-save-youtubes-iconic-images/"><u>[New] 3 Techniques to Retrieve & Save YouTube's Iconic Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-4-revolutionary-shifts-in-social-networking/"><u>The Impact: 4 Revolutionary Shifts in Social Networking</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-edge-40-neo-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Edge 40 Neo without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-y78plus-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Vivo Y78+ Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-stand-out-in-a-crowd-with-these-10-youtube-theme-innovators/"><u>[New] 2024 Approved  Stand Out in a Crowd with These 10 YouTube Theme Innovators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-youtube-visuals-for-no-charge-best-free-downloader-guide/"><u>Unlock YouTube Visuals for No Charge  Best Free Downloader Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-standout-youtube-thumbnails-with-ease-for-2024/"><u>[New] Crafting Standout YouTube Thumbnails with Ease for 2024</u></a></li>
+</ul></div>

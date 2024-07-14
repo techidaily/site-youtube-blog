@@ -1,7 +1,7 @@
 ---
 title: "\"Tech Tips  Swiftly Sending Videos as Shorts on Digital Platforms\""
-date: 2024-06-25T20:26:11.902Z
-updated: 2024-06-26T20:26:11.902Z
+date: 2024-07-13T14:04:39.653Z
+updated: 2024-07-14T14:04:39.653Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,8 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload
+![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -82,11 +83,16 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload
+![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -151,3 +157,49 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion-for-2024/"><u>[Updated] Digital Content Contenders  Compare & Contrast Vimeo, YouTube + Dailymotion for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leaders-in-virtual-marvel-universe-creation-for-2024/"><u>[Updated] Leaders in Virtual Marvel Universe Creation for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/farm-frenzy-fun-pack-the-ultimate-agritainment-guide/"><u>Farm Frenzy Fun-Pack  The Ultimate Agritainment Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-iphone-12-pro-max-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your iPhone 12 Pro Max Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-strategic-use-of-instagrams-music-emojis-on-posts/"><u>[Updated] In 2024, Strategic Use of Instagram’s Music Emojis on Posts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-create-impactful-video-elements-cardsannotations/"><u>[Updated] How to Create Impactful Video Elements  Cards/Annotations</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-record-your-gameplay-with-ease-3-simple-solutions/"><u>Updated In 2024, Record Your Gameplay with Ease 3 Simple Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-breaking-barriers-watching-live-events-on-your-roku-screen/"><u>[Updated] 2024 Approved  Breaking Barriers  Watching Live Events on Your Roku Screen</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlit-splendor-hues-and-highlights-technique/"><u>Streamlit Splendor  Hues and Highlights Technique</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-thumbnails-essential-dimensions-explored/"><u>[New] Mastering YouTube Thumbnails  Essential Dimensions Explored</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-easy-ways-to-get-free-views-on-youtube-alternative-methods/"><u>[Updated] In 2024, Easy Ways To Get Free Views on YouTube! Alternative Methods</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-photobooth-hiccups-resolving-frozen-playback-issues/"><u>In 2024, Photobooth Hiccups  Resolving Frozen Playback Issues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-guide-to-producing-high-impact-youtube-intros-for-2024/"><u>[Updated] The Complete Guide to Producing High-Impact YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-speedy-tutorial-crafting-youtube-image-thumbnails-from-scratch-for-2024/"><u>[Updated] Speedy Tutorial  Crafting YouTube Image Thumbnails From Scratch for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ideal-video-capturer-for-engaging-youtube-audiences/"><u>[Updated] Ideal Video Capturer for Engaging YouTube Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-digital-storytelling-youtubes-filmmaking-pathway/"><u>[Updated] Pioneering Digital Storytelling  YouTube's Filmmaking Pathway</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-organize-your-videos-best-mp4-metadata-taggers-for-pc-and-mac/"><u>New 2024 Approved Organize Your Videos Best MP4 Metadata Taggers for PC and Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-retrace-steps-how-to-turn-your-yt-queue-on-its-head-for-2024/"><u>[Updated] Retrace Steps  How to Turn Your YT Queue on Its Head for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-revenue-building-for-youtube-creators-for-2024/"><u>[Updated] Step-by-Step Revenue Building for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-economics-for-beginners-channel-creation-and-income-strategies-for-2024/"><u>Youtube Economics for Beginners  Channel Creation & Income Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-breaking-boundaries-with-mini-drones-an-in-depth-analysis-of-dji-spark/"><u>[New] Breaking Boundaries with Mini Drones  An In-Depth Analysis of DJI Spark</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-avoid-every-interruption-the-ultimate-guide-to-7-adblocking-tools/"><u>[Updated] Avoid Every Interruption  The Ultimate Guide to 7 AdBlocking Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-eliminating-backlogged-videos-from-your-youtube-history/"><u>[Updated] Eliminating Backlogged Videos From Your YouTube History</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-easily-alter-video-velocity-youtubes-playback-speed-mastery/"><u>[Updated] Easily Alter Video Velocity  YouTube's Playback Speed Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-deleting-youtube-comments/"><u>[Updated] In 2024, Deleting YouTube Comments</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-access-unlimited-free-high-quality-green-screen-footage-online-for-2024/"><u>[Updated] Access Unlimited Free, High-Quality Green Screen Footage Online for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-xiaomi-redmi-12-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Xiaomi Redmi 12 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-shorts-templates-a-complete-guide-for-2024/"><u>[New] Mastering YouTube Shorts Templates  A Complete Guide for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-the-secrets-to-using-vivavideo-app/"><u>In 2024, Unveiling the Secrets to Using VivaVideo App</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope-for-2024/"><u>[Updated] Comparing Social Platforms  Facebook LIVE Vs. YouTube Live & Twitter Periscope for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-finale-101-insider-tricks-for-successful-outros/"><u>[Updated] In 2024, Channel Finale 101  Insider Tricks for Successful Outros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-hone-your-hashtag-game-tripled-traffic-6kplus-vistas/"><u>[Updated] In 2024, Hone Your Hashtag Game  Tripled Traffic, $6K+ Vistas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-exclusive-guide-to-affordable-premium-video-editors/"><u>[Updated] In 2024, Exclusive Guide to Affordable, Premium Video Editors</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-how-to-secure-continuous-streaming-in-obs/"><u>[New] How To Secure Continuous Streaming In OBS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-zoom-in-how-to-sequentially-play-youtube-videos-for-free/"><u>[Updated] In 2024, Zoom In  How to Sequentially Play YouTube Videos for Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-instant-expertise-changing-photos-to-captivating-youtube-thumbnails-for-2024/"><u>[Updated] Instant Expertise  Changing Photos to Captivating YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailored-soundtracks-at-your-fingertips-constructing-youtube-music-collections-webmobile/"><u>[Updated] Tailored Soundtracks at Your Fingertips  Constructing YouTube Music Collections (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-editors-workshop-enhancing-your-youtube-video-visibility/"><u>2024 Approved  Editor's Workshop  Enhancing Your Youtube Video Visibility</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Oppo A18 | Dr.fone</u></a></li>
+</ul></div>

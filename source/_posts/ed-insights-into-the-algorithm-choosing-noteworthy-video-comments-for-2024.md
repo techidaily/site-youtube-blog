@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Insights Into the Algorithm Choosing Noteworthy Video Comments for 2024"
-date: 2024-06-25T21:07:22.006Z
-updated: 2024-06-26T21:07:22.006Z
+date: 2024-07-13T14:53:10.908Z
+updated: 2024-07-14T14:53:10.908Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,9 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -157,3 +160,65 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-excellent-20-copy-free-pubg-thumbnail-sequences/"><u>2024 Approved  Excellent 20 Copy-Free PUBG Thumbnail Sequences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-guidance-for-effortless-addition-of-youtube-playlists-to-your-site/"><u>2024 Approved  Guidance for Effortless Addition of YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ultimate-video-capture-toolkit/"><u>[New] In 2024, Ultimate Video Capture Toolkit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-counterplay-creative-ways-to-watch-youtube-in-reverse-for-2024/"><u>[Updated] The Counterplay  Creative Ways to Watch YouTube in Reverse for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/convert-mp4-to-60-fps-gif-a-step-by-step-guide/"><u>Convert MP4 to 60 FPS GIF A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-guide-to-assembling-youtube-music-collections-onlineapp-wise/"><u>[Updated] The Complete Guide to Assembling YouTube Music Collections Online/App-Wise</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-do-you-like-clouds-or-sky-and-want-to-use-them-as-a-video-background-explore-this-article-to-learn-about-the-sky-change-video-in-filmora.m/"><u>New 2024 Approved Do You Like Clouds or Sky and Want to Use Them as a Video Background? Explore This Article to Learn About the Sky Change Video in Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prime-picks-of-youtubes-snackable-shorter-videos-free-for-2024/"><u>[Updated] Prime Picks of YouTube's Snackable Shorter Videos (FREE) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-speech-analysis-and-conversion-its-free/"><u>[New] Speech Analysis and Conversion - It's Free</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-top-12-tycoon-games-worthy-of-every-business-strategists-time/"><u>[Updated] The Top 12 Tycoon Games Worthy of Every Business Strategist's Time</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-11-auditory-capture-devices-reviewed-here/"><u>[New] In 2024, Top 11 Auditory Capture Devices Reviewed Here</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-professional-recordings-at-home-10-key-strategies-for-excellence/"><u>[Updated] Professional Recordings at Home  10 Key Strategies for Excellence</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevating-your-instagram-presence-with-watermarks/"><u>[New] Elevating Your Instagram Presence with Watermarks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-10-gaming-youtubers-you-should-know/"><u>2024 Approved  Top 10 Gaming YouTubers You Should Know</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715860825474-2024-approved-capture-and-store-screen-content-free/"><u>2024 Approved  Capture and Store Screen Content, FREE!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-recommended-videos-block-the-videos/"><u>YouTube Recommended Videos - Block the Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-editprime-vision/"><u>In 2024, EditPrime Vision</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-15-indispentic-tools-to-launch-your-youtube-career/"><u>[Updated] 2024 Approved  15 Indispentic Tools to Launch Your YouTube Career</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/vr-action-cams-face-off-hero5-black-vs-yis-new-release-for-2024/"><u>VR Action Cams Face-Off  Hero5 Black Vs. Yi's New Release for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-vivo-y100a-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Vivo Y100A Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-shrink-your-files-9-best-free-video-compression-tools-for-windows-10/"><u>New 2024 Approved Shrink Your Files 9 Best Free Video Compression Tools for Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-partner-selection-for-youtube-joint-ventures-for-2024/"><u>[Updated] Navigating Partner Selection for YouTube Joint Ventures for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-your-pathway-to-professional-looking-animated-gifs-online/"><u>[Updated] In 2024, Your Pathway to Professional-Looking Animated GIFs Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-your-creations-uploading-imovie-videos-to-youtube/"><u>[New] Maximizing Your Creations  Uploading IMovie Videos to YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/utorrent-media-player-seamless-streaming/"><u>UTorrent Media Player  Seamless Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-transform-your-airborran-viewing-20-free-dji-drone-luts-offer/"><u>2024 Approved  Transform Your Airborran Viewing - 20 FREE DJI Drone LUTS Offer</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-8-iphonecomputer-apps-for-seamless-video-editing/"><u>2024 Approved  Top 8 iPhone/Computer Apps for Seamless Video Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-a-compre-written-by-dr-john-smith-phd-in-environmental-science/"><u>2024 Approved  A Compre Written By  Dr. John Smith, PhD in Environmental Science</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-wealthiest-web-workshops-hosts-for-2024/"><u>[Updated] Wealthiest Web Workshops Hosts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ant-thumbnails-made-professionally-without-delay-for-2024/"><u>Valorant Thumbnails Made Professionally, Without Delay for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-join-the-jocular-joy-the-greatest-instagram-meme-gatherings-for-2024/"><u>[Updated] Join the Jocular Joy  The Greatest Instagram Meme Gatherings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>[New] 2024 Approved  Digital Content Contenders  Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-checklist-for-youtubes-resolution-width-and-height-settings-for-2024/"><u>[Updated] The Complete Checklist for YouTube's Resolution, Width & Height Settings for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-v27-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo V27 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ultimate-guide-to-youtube-thumbnail-creation-on-mac/"><u>In 2024, Ultimate Guide to YouTube Thumbnail Creation on Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-top-10-no-cost-video-cutting-apps/"><u>[New] 2024 Approved  Top 10 No-Cost Video Cutting Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-audience-favorites-3-powerful-tales/"><u>[Updated] Unlock Audience Favorites  3 Powerful Tales</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-positive-persuasion-the-secret-to-attracting-followers-for-2024/"><u>[Updated] Positive Persuasion  The Secret to Attracting Followers for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-made-easy-your-guide-to-adding-and-sharing-gifs/"><u>[New] Snapchat Made Easy  Your Guide to Adding and Sharing Gifs</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-windows-movie-maker-not-enough-try-these-10-free-alternatives/"><u>In 2024, Windows Movie Maker Not Enough? Try These 10 Free Alternatives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2024/"><u>[Updated] Ryan Kaji’s Net Worth  11-Year-Old Boy Gets Highest-Paid From YouTube 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-reliable-methods-to-elevate-your-youtube-presence-without-breaking-trust/"><u>2024 Approved  Reliable Methods to Elevate Your YouTube Presence Without Breaking Trust</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/fficient-tricks-to-scramble-youtube-playlists-pcphonetv/"><u>[New] Efficient Tricks to Scramble YouTube Playlists (PC/Phone/TV)</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/there-are-many-vlogging-cameras-you-can-find-in-the-market-however-to-get-a-good-start-in-vlogging-some-sony-vlogging-cameras-and-canon-vlog-cameras-are-to-/"><u>There Are Many Vlogging Cameras You Can Find in the Market. However, to Get a Good Start in Vlogging, some Sony Vlogging Cameras and Canon Vlog Cameras Are to Consider. This Article Introduces You to the Respective List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-earnings-per-thousand-views-explained/"><u>[New] 2024 Approved  YouTube Earnings Per Thousand Views Explained</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-legal-limits-of-capturing-youtube-video-footage/"><u>2024 Approved  The Legal Limits of Capturing YouTube Video Footage</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/tailoring-meet-backdrop-for-enhanced-presentations/"><u>Tailoring Meet Backdrop for Enhanced Presentations</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-s17-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo S17 Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-laughter-loop-a-pocketful-of-humorous-short-film-ideas/"><u>[Updated] Laughter Loop  A Pocketful of Humorous Short Film Ideas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-7-easy-steps-for-a-subscriber-surge-on-youtube/"><u>2024 Approved  7 Easy Steps for a Subscriber Surge on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-8-youtube-ranks-expertly-navigating-with-key-tools/"><u>[Updated] In 2024, Top 8 YouTube Ranks  Expertly Navigating with Key Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-keep-watching-youtube-in-the-background-with-ease/"><u>[Updated] Keep Watching YouTube in the Background with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/alt-autoplay-youtube-recommendations/"><u>[New] Halt Autoplay YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essentials-of-mobile-based-youtube-channel-creation-for-personalbusiness-use-for-2024/"><u>[Updated] The Essentials of Mobile-Based YouTube Channel Creation for Personal/Business Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-surprisingly-good-underrated-movie-hits/"><u>[Updated] 2024 Approved  Surprisingly Good  Underrated Movie Hits</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/picture-perfect-your-essential-guide-to-uploading-on-youtube-for-2024/"><u>Picture Perfect  Your Essential Guide to Uploading on YouTube for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-alternatives-round-up-top-3-contenders/"><u>[Updated] In 2024, YouTube Alternatives Round-Up  Top 3 Contenders</u></a></li>
+</ul></div>

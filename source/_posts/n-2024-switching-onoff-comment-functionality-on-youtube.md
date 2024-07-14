@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Switching On/Off Comment Functionality on YouTube"
-date: 2024-06-25T20:18:17.578Z
-updated: 2024-06-26T20:18:17.578Z
+date: 2024-07-13T13:55:21.103Z
+updated: 2024-07-14T13:55:21.103Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
 ## Switching On/Off Comment Functionality on YouTube
 
-# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -36,6 +37,9 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -163,3 +167,43 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/be-tv-explained-essential-knowledge-for-all-viewers-for-2024/"><u>YouTube TV Explained  Essential Knowledge for All Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-views-secrets-for-a-million-followers-for-2024/"><u>[New] Mastering Youtube Views  Secrets for a Million Followers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-rated-dj-templates-free-access-for-music-makers/"><u>In 2024, Top-Rated DJ Templates  Free Access for Music Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-2017-data-overload-infographics-and-surprising-yt-stats/"><u>In 2024, 2017 Data Overload  Infographics & Surprising YT Stats</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlock-your-individuality-a-guide-to-120plus-unique-snapchat-stories-for-2024/"><u>[Updated] Unlock Your Individuality  A Guide to 120+ Unique Snapchat Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beat-your-content-up-a-notch-music-addition-in-youtube-videos/"><u>[Updated] 2024 Approved  Beat Your Content Up a Notch  Music Addition in YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-supercharge-your-channels-a-guide-to-the-best-keyword-research-software/"><u>[New] In 2024, Supercharge Your Channels  A Guide to the Best Keyword Research Software</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-gopro-video-editing-made-easy-a-beginners-guide-to-quik-on-macbook/"><u>Updated 2024 Approved GoPro Video Editing Made Easy A Beginners Guide to Quik on MacBook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-dji-phantom-3s-superior-flight-control-features-for-2024/"><u>Unveiling DJI Phantom 3'S Superior Flight Control Features for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unraveling-youtubes-viewer-metrics-a-deeper-look/"><u>[New] 2024 Approved  Unraveling YouTube's Viewer Metrics  A Deeper Look</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-overcoming-black-screen-errors-during-youtube-viewing/"><u>[New] In 2024, Strategies for Overcoming Black Screen Errors During YouTube Viewing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-instantaneous-media-movement-android-to-iphone/"><u>[New] 2024 Approved  Instantaneous Media Movement  Android to iPhone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rhythm-revivers-10-androidios-audio-challengers/"><u>[Updated] 2024 Approved  Rhythm Revivers  10 Android/iOS Audio Challengers</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-get-best-alternatives-of-vsdc-video-editor-on-mac/"><u>New In 2024, Get Best Alternatives of VSDC Video Editor on Mac</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-create-ai-avatar-video-online/"><u>Updated In 2024, Create AI Avatar Video | Online</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-the-ultimate-guide-to-pairing-airpods-with-your-desktop-os/"><u>Updated In 2024, The Ultimate Guide to Pairing AirPods with Your Desktop OS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtubes-virality-secrets-effective-hashtag-strategies/"><u>[New] In 2024, YouTube's Virality Secrets  Effective Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-savory-streams-the-best-food-channels-to-watch/"><u>[New] 2024 Approved  Savory Streams  The Best Food Channels to Watch</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unveiling-the-art-of-designing-captivating-valorant-thumbnails/"><u>In 2024, Unveiling the Art of Designing Captivating Valorant Thumbnails</u></a></li>
+<li><a href="https://network-issues.techidaily.com/new-tech-woes-blacked-out-screens/"><u>New Tech Woes: Blacked-Out Screens</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-master-class-bots-for-chat-engagement-for-2024/"><u>[Updated] Master-Class Bots for Chat Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ro-tools-for-non-pro-youtubers-for-2024/"><u>[New] Pro Tools for Non-Pro YouTubers for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-8-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 8 Plus without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-xs-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your Apple iPhone XS?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/urate-your-learning-best-15-science-yt-experts/"><u>[New] Curate Your Learning  Best 15 Science YT Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-tactics-to-triple-your-youtube-subscription-numbers/"><u>[New] 2024 Approved  Tactics to Triple Your YouTube Subscription Numbers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-guide-to-analyzing-youtube-engagement/"><u>[New] In 2024, Step-by-Step Guide to Analyzing YouTube Engagement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-selection-of-free-youtube-introduction-makers/"><u>2024 Approved  Ultimate Selection of Free YouTube Introduction Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-achieving-youtube-live-prominence-with-pro-level-tips/"><u>[New] 2024 Approved  Achieving YouTube Live Prominence with Pro-Level Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reate-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>[New] Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-puns-and-plots-developing-7-funny-video-storylines/"><u>2024 Approved  Puns & Plots  Developing 7 Funny Video Storylines</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-mastering-pubg-sounds-simple-tips/"><u>[New] In 2024, Mastering PUBG Sounds  Simple Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-aural-adventures-next-gen-devices/"><u>[New] 2024 Approved  Aural Adventures  Next-Gen Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-10-budget-friendly-platforms-for-youtube-branding-mastery/"><u>In 2024, 10 Budget-Friendly Platforms for YouTube Branding Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/best-of-both-worlds-top-high-quality-zero-dollar-webm-tools/"><u>Best of Both Worlds  Top High-Quality, Zero-Dollar WebM Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-calendar-on-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover lost Calendar on iPhone | Stellar</u></a></li>
+</ul></div>

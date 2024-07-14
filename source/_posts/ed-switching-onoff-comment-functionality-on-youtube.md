@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Switching On/Off Comment Functionality on YouTube"
-date: 2024-06-25T20:46:02.518Z
-updated: 2024-06-26T20:46:02.518Z
+date: 2024-07-13T14:28:03.434Z
+updated: 2024-07-14T14:28:03.434Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/98a90a980daafb5d4122c6bec488811f000154f10
 
 ## Switching On/Off Comment Functionality on YouTube
 
-# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -54,6 +55,9 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
@@ -163,3 +167,58 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ize-engagement-with-these-9-youtube-thumbnail-creators-for-2024/"><u>Maximize Engagement with These 9 YouTube Thumbnail Creators for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-tasty-transcultures-international-tiktok-recipes/"><u>[New] In 2024, Tasty Transcultures  International TikTok Recipes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-masterful-ad-blocking-select-from-these-top-7-android-apps/"><u>In 2024, Masterful Ad Blocking  Select From These Top 7 Android Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-10plus-preferred-no-pay-webm-player-options-for-2024/"><u>[Updated] 10+ Preferred No-Pay WebM Player Options for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[Updated] Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-5-youtube-video-editor-alternatives-for-2024/"><u>[New] Best 5 YouTube Video Editor Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-secure-steps-for-skyrocketing-video-engagement-a-million-wins-strategy/"><u>[New] In 2024, Secure Steps for Skyrocketing Video Engagement  A Million Wins Strategy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-immersive-worlds-with-youtubes-top-10-vr-videos/"><u>[New] In 2024, Unlock Immersive Worlds with YouTube's Top 10 VR Videos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-x-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone X Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-adobes-toolset-perfecting-your-youtube-uploads/"><u>2024 Approved  Adobe's Toolset  Perfecting Your YouTube Uploads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[New] 2024 Approved  Crafting Curls and Contours  Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-flip-your-video-collection-in-a-flash/"><u>2024 Approved  How to Flip Your Video Collection in a Flash</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-playstation-palace-a-million-gaming-moves/"><u>[New] 2024 Approved  PlayStation Palace  A Million Gaming Moves</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nleash-the-power-of-your-youtube-channel-with-expert-editing-techniques/"><u>[New] Unleash the Power of Your YouTube Channel with Expert Editing Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-strategies-for-success-in-the-spotify-ad-arena-for-2024/"><u>[Updated] Pioneering Strategies for Success in the Spotify Ad Arena for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-making-your-instagram-story-pop-with-youtube-vids/"><u>[Updated] Making Your Instagram Story Pop with YouTube Vids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-complete-blueprint-to-tally-your-youtube-growth-and-income/"><u>2024 Approved  The Complete Blueprint to Tally Your YouTube Growth and Income</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-best-10-websites-for-professional-vectors/"><u>Explore Best 10 Websites for Professional Vectors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-overcoming-gopro-distorted-images-a-guide/"><u>2024 Approved  Overcoming GoPro Distorted Images  A Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tips-for-effective-tripod-usage-in-video-blogging/"><u>[New] In 2024, Tips for Effective Tripod Usage in Video Blogging</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-essential-voice-tweaks-a-guide-to-androids-top-7-editing-apps/"><u>Updated Essential Voice Tweaks A Guide to Androids Top 7 Editing Apps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-from-iphone-15-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email From iPhone 15 Pro Max? Heres the Best Fixes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dj-delight-choosing-ultimate-event-videos/"><u>DJ Delight  Choosing Ultimate Event Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gnite-interest-essential-themes-for-engaging-channels/"><u>[New] Ignite Interest  Essential Themes for Engaging Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-zero-to-hero-crafting-an-authoritative-online-self/"><u>[Updated] In 2024, From Zero to Hero  Crafting an Authoritative Online Self</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-infographic-roundup-yts-shocking-reality-of-17/"><u>In 2024, Infographic Roundup  YT's Shocking Reality of '17</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem/"><u>[New] In 2024, Perfecting Your Playlists  Adapting Spotify to the YouTube Music Ecosystem</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-to-your-subscription-statistics/"><u>Navigating to Your Subscription Statistics</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-mastering-visual-communication-on-discord-an-essential-guide-to-using-gifs-effectively-for-2024/"><u>[Updated] Mastering Visual Communication on Discord  An Essential Guide to Using GIFs Effectively for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility/"><u>[New] Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastery-of-podcast-rss-feeds-a-step-by-step-tutorial/"><u>[New] Mastery of Podcast RSS Feeds  A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-free-youtube-thumbnail-downloaderssavers-online/"><u>[Updated] 10 Free YouTube Thumbnail Downloaders/Savers Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unlock-immersive-worlds-with-youtubes-top-10-vr-videos/"><u>2024 Approved  Unlock Immersive Worlds with YouTube's Top 10 VR Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-make-every-minute-count-for-view-growth-with-youtube-shorts/"><u>2024 Approved  How to Make Every Minute Count for View Growth with YouTube Shorts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-y100-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo Y100 for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unleash-speed-in-your-youtube-videography-with-rapid-techniques/"><u>[New] 2024 Approved  Unleash Speed in Your YouTube Videography with Rapid Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-aspect-ratios-on-youtube-videosshortsads/"><u>[New] In 2024, Mastering the Art of Aspect Ratios on YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-time-management-for-those-balancing-careers-and-youtubing/"><u>[Updated] 2024 Approved  Time Management for Those Balancing Careers and YouTubing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-plating-perfection-30-unique-and-appealing-recipe-channels/"><u>[New] 2024 Approved  Plating Perfection  30 Unique and Appealing Recipe Channels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigate-your-way-through-premiere-pros-fs-mode/"><u>2024 Approved  Navigate Your Way Through Premiere Pro's FS Mode</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-exclusive-list-of-leading-free-video-editing-programs/"><u>2024 Approved  Exclusive List of Leading Free Video Editing Programs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-youtube-sounds-to-mp3-using-mac-for-2024/"><u>Streamline YouTube Sounds to MP3 Using Mac for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-essential-iphoneside-by-side-guide-for-fb-sharing-for-2024/"><u>[New] The Essential iPhoneside by Side Guide for FB Sharing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-skyrocketing-up-the-rankings-hit-10k-views-to-unlock-partnership/"><u>[New] In 2024, Skyrocketing Up the Rankings - Hit 10K Views to Unlock Partnership</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-loop-like-a-pro-detailed-methods-for-youtube-enthusiasts/"><u>2024 Approved  Loop Like a Pro  Detailed Methods for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izing-your-youtube-channels-strategies-for-success-for-2024/"><u>Monetizing Your YouTube Channels  Strategies for Success for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-maximizing-reach-strategies-from-seasoned-tubebuddy-experts/"><u>2024 Approved  Maximizing Reach  Strategies From Seasoned TubeBuddy Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-brand-differentiation-with-powerful-youtube-names-for-2024/"><u>[Updated] Brand Differentiation with Powerful YouTube Names for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-handbook-to-zooms-online-presentation-features/"><u>[Updated] The Ultimate Handbook to Zoom's Online Presentation Features</u></a></li>
+</ul></div>

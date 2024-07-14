@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youtube's Retro Playlist Trick  How to Go in Arrears\""
-date: 2024-06-25T21:07:41.505Z
-updated: 2024-06-26T21:07:41.505Z
+date: 2024-07-13T14:53:34.167Z
+updated: 2024-07-14T14:53:34.167Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,9 @@ Step 2:
 * Click the"Open Chrome Web Store"option.
 * Search for theIridium for YouTubeextension using the search bar.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
 Step 3:
@@ -142,3 +145,45 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/-look-at-earnings-understanding-your-monthly-income-from-youtubes-adsense-for-2024/"><u>[New] A Look at Earnings  Understanding Your Monthly Income From YouTube's AdSense for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enlightenment-in-education-top-10-history-youtube-channels/"><u>[New] 2024 Approved  Enlightenment in Education  Top 10 History YouTube Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-sound-alteration-apps-for-vloggers-for-2024/"><u>Prime Sound Alteration Apps for Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>[New] 2024 Approved  Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-engaging-youtube-channel-names-for-vlogger-success-no-more-than-156/"><u>[New] 2024 Approved  Crafting Engaging YouTube Channel Names for Vlogger Success (No More Than 156)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-queries-character-and-sound-crossover/"><u>Quick Queries  Character & Sound Crossover</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-diy-tips-to-cut-unwanted-sounds-from-your-videos/"><u>[New] 2024 Approved  DIY Tips to Cut Unwanted Sounds From Your Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-immersive-realms-top-10-youtubes-most-captivating-vr-videos-for-2024/"><u>Enter Immersive Realms  Top 10 YouTube's Most Captivating VR Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[New] 2024 Approved  Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/samsung-photo-editor-review-2023-pros-con-features-and-guide-for-2024/"><u>Samsung Photo Editor Review 2023 - Pros, Con, Features, and Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-video-vanguard-youtubes-1-24-hours-list/"><u>Viral Video Vanguard  YouTube's #1 24 Hours List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-innovative-apps-to-design-stunning-openings/"><u>[New] 5 Innovative Apps to Design Stunning Openings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dominating-the-digital-space-with-trending-content/"><u>[New] 2024 Approved  Dominating the Digital Space with Trending Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-must-see-historical-channels-on-youtube-for-2024/"><u>[New] 10 Must-See Historical Channels on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-accelerate-engagement-the-best-12-ways-to-increase-video-popularity/"><u>[New] 2024 Approved  Accelerate Engagement - The Best 12 Ways to Increase Video Popularity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-must-have-keyword-gurus-for-video-success/"><u>[New] 10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-simple-ways-to-reverse-a-youtube-playlist/"><u>[New] 4 Simple Ways to Reverse a YouTube Playlist</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-celebrating-artistry-top-20-anime-melodies/"><u>2024 Approved  Celebrating Artistry  Top 20 Anime Melodies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-label-microphones-at-a-wallet-wise-wage-for-2024/"><u>White-Label Microphones at a Wallet-Wise Wage for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-top-10-flawless-web-based-vimeo-video-extractors-for-2024/"><u>[New] Top 10 Flawless Web-Based Vimeo Video Extractors for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-proven-video-growth-enhancers-for-2024/"><u>Top 8 Proven Video Growth Enhancers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-customize-your-videos-appeal-youtube-thumbnail-tips-and-tricks/"><u>[New] 2024 Approved  Customize Your Video's Appeal  YouTube Thumbnail Tips & Tricks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-huawei-nova-y71-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Huawei Nova Y71</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essentials-for-professionals-advanced-strategies-in-video-tagging/"><u>[New] 2024 Approved  Essentials for Professionals  Advanced Strategies in Video Tagging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-transcribers-for-youtube-clips-for-2024/"><u>Elite Transcribers for YouTube Clips for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tailored-titles-for-crafted-merged-and-oriented-videos-android-for-2024/"><u>Tailored Titles for Crafted, Merged & Oriented Videos (Android) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-the-best-youtube-symbols-are-hidden/"><u>Where the Best YouTube Symbols Are Hidden</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-prime-moments-celebrations-beyond-vidcon-for-2024/"><u>Youtube's Prime Moments  Celebrations Beyond VidCon for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>[New] 2024 Approved  Boosting Video Quality  The Best Cameras for Vloggers' Dreams</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-lol-factory-robotic-deadwalkers/"><u>In 2024, LOL Factory  Robotic Deadwalkers</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-speed-up-or-slow-down-best-video-editing-software/"><u>In 2024, Speed Up or Slow Down Best Video Editing Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-acquiring-free-music-youtube-video-edition/"><u>[New] 2024 Approved  Acquiring Free Music  YouTube Video Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-capture-youtubes-iconic-icons-online-tools-desktop-software-and-commands/"><u>[New] 2024 Approved  Capture YouTube's Iconic Icons  Online Tools, Desktop Software & Commands</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-top-10-ai-script-generators/"><u>Updated In 2024, Top 10 AI Script Generators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-building-engagement-the-role-of-youtube-shorts-template-design/"><u>[New] 2024 Approved  Building Engagement  The Role of YouTube Shorts Template Design</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-your-study-of-the-past-with-these-top-10-channels-for-2024/"><u>Craft Your Study of the Past with These Top 10 Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[New] 2024 Approved  Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-infinix-gt-10-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Infinix GT 10 Pro Phones with/without a PC</u></a></li>
+</ul></div>

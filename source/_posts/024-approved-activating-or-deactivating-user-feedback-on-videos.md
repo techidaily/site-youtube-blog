@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Activating or Deactivating User Feedback on Videos\""
-date: 2024-07-03T13:33:58.286Z
-updated: 2024-07-04T13:33:58.286Z
+date: 2024-07-13T15:16:08.268Z
+updated: 2024-07-14T15:16:08.268Z
 tags:
   - ai video
   - ai youtube
@@ -112,6 +112,9 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -165,3 +168,62 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-cutting-edge-computers-optimal-machines-for-media-creation/"><u>[New] In 2024, Cutting-Edge Computers  Optimal Machines for Media Creation</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-lava-blaze-2-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Lava Blaze 2 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-huawei-nova-y71-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Huawei Nova Y71 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-switching-onoff-comment-functionality-on-youtube/"><u>[New] In 2024, Switching On/Off Comment Functionality on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtubers-essential-camera-guidebook/"><u>[New] In 2024, YouTubers' Essential Camera Guidebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-essential-hashtags-propel-your-posts-to-the-top/"><u>[New] 2024 Approved  Essential #Hashtags  Propel Your Posts to the Top</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-digital-riches-transitioning-youtube-earnings-to-currency/"><u>In 2024, Digital Riches  Transitioning YouTube Earnings to Currency</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-learning-legends-esteemed-ed-streams-online/"><u>[New] In 2024, Learning Legends  Esteemed Ed Streams Online</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/haunting-harmonics-procuring-disturbing-sound-effects-for-creatives-for-2024/"><u>Haunting Harmonics Procuring Disturbing Sound Effects for Creatives for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oad-youtube-gallery-files-instantly-for-2024/"><u>Download YouTube Gallery Files Instantly for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-nokia-c210-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Nokia C210 Unlock Without Password</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hero5-black-vs-yis-new-tech-action-cam-showdown-update/"><u>In 2024, Hero5 Black Vs. Yi's New Tech  Action Cam Showdown Update</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-sound-sculpture-shaping-your-youtube-audio-experience/"><u>In 2024, Sound Sculpture  Shaping Your YouTube Audio Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-12-premier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>[New] 2024 Approved  12 Premier Video Game Entrances by Top Youtubers  Free & Paid Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-understanding-the-legality-of-online-video-recordings/"><u>[New] In 2024, Understanding the Legality of Online Video Recordings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-streamline-channels-effortlessly-top-10-online-design-aids/"><u>In 2024, Streamline Channels Effortlessly  Top 10 Online Design Aids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/onetization-mastery-thriving-in-the-youtube-economy-no-ads-included-for-2024/"><u>[New] Monetization Mastery  Thriving in the YouTube Economy, No Ads Included for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-fundamentals-of-designing-high-converting-snap-ads/"><u>[New] 2024 Approved  Fundamentals of Designing High-Converting Snap Ads</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-12-premium-cameras-for-professional-vloggers/"><u>[Updated] Exploring 12 Premium Cameras for Professional Vloggers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-perfecting-the-art-of-podcast-title-creation-essential-tips-and-inspirations/"><u>[New] 2024 Approved  Perfecting the Art of Podcast Title Creation  Essential Tips & Inspirations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-cost-leverage-to-youtube-lore-sponsorship-hacks-for-small-spheres/"><u>[New] Low-Cost Leverage to YouTube Lore  Sponsorship Hacks for Small Spheres</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-non-tripod-techniques-for-still-cameras/"><u>[New] 2024 Approved  Non-Tripod Techniques for Still Cameras</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-secure-your-footage-top-video-editing-software-for-face-anonymity/"><u>Updated 2024 Approved Secure Your Footage Top Video Editing Software for Face Anonymity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-freely-download-youtube-series-on-mobile/"><u>[New] In 2024, The Ultimate Guide to Freely Download YouTube Series on Mobile</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-a-step-by-step-guide-for-custom-discord-emoji-statuses/"><u>[Updated] In 2024, A Step-by-Step Guide for Custom Discord Emoji Statuses</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-copyright-on-youtube-and-cc/"><u>[New] In 2024, Navigating Copyright on YouTube & CC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-engaging-exchange-zones-for-2024/"><u>[New] Explore Engaging Exchange Zones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-vloggers-guide-to-choosing-camera-essentials-the-top-9-accessories/"><u>[Updated] Vloggers' Guide to Choosing Camera Essentials - The Top 9 Accessories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/his-years-unexpected-cinematic-gems-for-2024/"><u>[New] This Year's Unexpected Cinematic Gems for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/choing-ethos-with-closing-credits-for-2024/"><u>[New] Echoing Ethos with Closing Credits for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/arnessing-imovies-potential-for-youtube-broadcasting/"><u>[New] Harnessing iMovie's Potential for YouTube Broadcasting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ultimate-tips-for-youtube-content-creation-excellence/"><u>In 2024, Ultimate Tips for YouTube Content Creation Excellence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-auto-play-youtube-iphoneandroid-no-notification-for-2024/"><u>[Updated] Auto-Play YouTube  IPhone/Android, No Notification for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-video-popularity-leading-trackers-for-youtube/"><u>[Updated] Unleashing Video Popularity  Leading Trackers for YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quick-ways-to-retain-live-chat-transcripts/"><u>[New] In 2024, Quick Ways to Retain Live Chat Transcripts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-world-of-mp4-edits-on-apple-devices-for-2024/"><u>Navigating the World of MP4 Edits on Apple Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-8-linux-friendly-video-cutters/"><u>[Updated] Top 8 Linux-Friendly Video Cutters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>[New] 2024 Approved  YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-premium-multi-device-video-talks-solutions/"><u>In 2024, Premium Multi-Device Video Talks Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[Updated] Green Screen Mastery  Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-mastering-on-screen-captions-in-tiktok-videos/"><u>[Updated] Mastering On-Screen Captions in TikTok Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-your-videos-hidden-potential-with-these-top-20-shortcuts-for-2024/"><u>Unlock Your Video's Hidden Potential with These Top 20 Shortcuts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[New] In 2024, __Local Labor Costs__  The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ransform-your-video-appeal-incorporating-own-thumbnails/"><u>[New] Transform Your Video Appeal  Incorporating Own Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-streamlining-your-youtube-views-a-guide-to-blocking-advertisements/"><u>In 2024, Streamlining Your YouTube Views  A Guide to Blocking Advertisements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-potential-views-best-keyword-resources-ranked/"><u>[Updated] Unleashing Potential Views  Best Keyword Resources Ranked</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hats-the-best-youtube-thumbnail-size/"><u>[New] What's the Best YouTube Thumbnail Size?</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-amazon-prime-video-how-to-fix-aspect-ratio-issues-on-your-device/"><u>In 2024, Amazon Prime Video How to Fix Aspect Ratio Issues on Your Device</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-a-youtube-reaction-video-for-2024/"><u>[New] How to Make a YouTube Reaction Video for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smoothing-out-the-rough-edges-in-photo-booth-videos/"><u>2024 Approved  Smoothing Out The Rough Edges In Photo Booth Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unraveling-the-best-video-formats-for-youtube-success-for-2024/"><u>[Updated] Unraveling the Best Video Formats for YouTube Success for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-poco-c55-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Poco C55 FRP Without Computer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-online-gaming-earnings-in-the-future/"><u>[Updated] 2024 Approved  Online Gaming Earnings in the Future</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-poco-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Poco FRP</u></a></li>
+</ul></div>

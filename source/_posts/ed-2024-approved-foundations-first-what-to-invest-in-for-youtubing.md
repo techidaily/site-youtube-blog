@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Foundations First  What To Invest In for YouTubing\""
-date: 2024-06-25T21:15:58.920Z
-updated: 2024-06-26T21:15:58.920Z
+date: 2024-07-13T15:03:19.370Z
+updated: 2024-07-14T15:03:19.370Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,9 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -82,7 +85,8 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-## Smartphone Camera Gear ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+## Smartphone Camera Gear
+![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -121,3 +125,46 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://printer-issues.techidaily.com/print-failure-alert-domain-service-down/"><u>Print Failure Alert: Domain Service Down</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-instagram-snapshot-of-an-enlightening-episode/"><u>[New] Instagram Snapshot of an Enlightening Episode</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-learn-more-top-education-streams-online/"><u>[Updated] 2024 Approved  Learn More  Top Education Streams Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-essential-sd-cards-for-gopro-hero-78-cameras-our-picks-for-2024/"><u>[New] Essential SD Cards for GoPro Hero 7/8 Cameras  Our Picks for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-slowing-it-down-the-best-video-editing-software-for-dramatic-effects-for-2024/"><u>New Slowing It Down The Best Video Editing Software for Dramatic Effects for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-art-of-digital-makeup-on-video-platforms/"><u>2024 Approved  The Art of Digital Makeup on Video Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-uniting-youtube-videos-a-comprehensive-approach/"><u>[Updated] 2024 Approved  Uniting YouTube Videos  A Comprehensive Approach</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-plus-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Plus To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-top-16-youtube-beginnings-for-higher-engagement/"><u>[New] 2024 Approved  Top 16 YouTube Beginnings for Higher Engagement</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-s24-ultra-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-breakthrough-strategies-for-youtube-short-problem-solving-for-2024/"><u>[Updated] Breakthrough Strategies for YouTube Short Problem-Solving for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-essential-tips-for-smooth-youtube-content-trimming/"><u>[Updated] Essential Tips for Smooth YouTube Content Trimming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-analyzing-earnings-disparity-dailymovement-and-youtube-profits-compared/"><u>[Updated] 2024 Approved  Analyzing Earnings Disparity  DailyMovement and YouTube Profits Compared</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-exclusive-youtube-snippet-access-high-quality-free-download/"><u>[Updated] In 2024, Exclusive YouTube Snippet Access - High Quality, Free Download!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-your-stream-utilizing-youtubes-av1-technology-for-2024/"><u>[Updated] Master Your Stream  Utilizing YouTube's AV1 Technology for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-online-learning-campaign-comprehensive-insights-streamed-live/"><u>In 2024, Online Learning Campaign Comprehensive Insights Streamed Live</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/encompassing-vsco-photo-editor-explained/"><u>Encompassing VSCO Photo Editor Explained</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-mastering-silence-effective-video-noise-reduction-techniques-in-adobe-premiere-pro/"><u>Updated Mastering Silence Effective Video Noise Reduction Techniques in Adobe Premiere Pro</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-unveiling-vimeo-subscription-perks-for-every-user-type/"><u>2024 Approved  Unveiling Vimeo Subscription Perks for Every User Type</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/comprehensible-techniques-for-effective-classroom-recordings-on-mac-for-2024/"><u>Comprehensible Techniques for Effective Classroom Recordings on Mac for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-live-stream-magic-setting-up-logitech-cam-for-videos/"><u>[New] 2024 Approved  Live-Stream Magic  Setting Up Logitech Cam for Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-yt-microphone-match-wallet-friendly-finds-and-favorites/"><u>[Updated] In 2024, YT Microphone Match  Wallet-Friendly Finds & Favorites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-increase-viewership-fairly-insights-for-video-marketers/"><u>[Updated] 2024 Approved  Increase Viewership Fairly  Insights for Video Marketers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unveiling-youtubes-veiled-content-a-detailed-protocol/"><u>[Updated] In 2024, Unveiling YouTube's Veiled Content  A Detailed Protocol</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-top-6-mobile-phones-snapchats-ultimate-video-editing-companions/"><u>[Updated] 2024 Approved  Top 6 Mobile Phones  Snapchat's Ultimate Video Editing Companions</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-unique-voice-customization-for-zoom-discover-6-innovative-methods-to-be-memorable-and-funny/"><u>New In 2024, Unique Voice Customization for Zoom Discover 6 Innovative Methods to Be Memorable & Funny</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-clipcraft-designer-for-2024/"><u>[Updated] ClipCraft Designer for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ce-your-projects-with-free-green-screens-from-these-online-hubs-for-2024/"><u>Enhance Your Projects with Free Green Screens From These Online Hubs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-weave-soundscapes-into-premiere-pro-editing-workflows/"><u>[New] 2024 Approved  Weave Soundscapes Into Premiere Pro Editing Workflows</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/facebook-feed-breakthroughs-seeing-your-videos/"><u>Facebook Feed Breakthroughs  Seeing Your Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-optimizing-audience-retention-through-engaging-shorts/"><u>[Updated] In 2024, Optimizing Audience Retention Through Engaging Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovative-editing-youtube-studio-edition-insights-for-2024/"><u>[Updated] Innovative Editing  YouTube Studio Edition Insights for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-perfect-ending-for-youtubers-best-practices-and-pro-files/"><u>[Updated] Perfect Ending for YouTubers  Best Practices and Pro Files</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-transition-like-a-pro-top-10-premiere-pro-plugin-essentials/"><u>Updated 2024 Approved Transition Like a Pro Top 10 Premiere Pro Plugin Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ace-in-the-halls-boosting-youtube-traffic/"><u>[Updated] Ace in the Halls  Boosting YouTube Traffic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-insights-into-youtubes-economic-model-for-content-makers-for-2024/"><u>[Updated] Insights Into YouTube's Economic Model for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-rise-to-stardom-secrets-to-viral-video-success-for-2024/"><u>[Updated] Rise to Stardom  Secrets to Viral Video Success for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cementing-climactic-conclusions/"><u>2024 Approved  Cementing Climactic Conclusions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-nuances-of-gamers-channel-templates-for-2024/"><u>[Updated] Navigating the Nuances of Gamers' Channel Templates for 2024</u></a></li>
+</ul></div>

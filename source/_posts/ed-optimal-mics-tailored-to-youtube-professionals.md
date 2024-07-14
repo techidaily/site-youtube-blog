@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimal Mics Tailored to YouTube Professionals"
-date: 2024-06-25T21:08:58.130Z
-updated: 2024-06-26T21:08:58.130Z
+date: 2024-07-13T14:55:03.526Z
+updated: 2024-07-14T14:55:03.526Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b5066dad0b601fca3256158753d40238cd5a1c775
 
 ## Optimal Mics Tailored to YouTube Professionals
 
-# Best Microphone for YouTubers ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best Microphone for YouTubers
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -33,23 +34,28 @@ If you want your viewers to be glued to their screens then quality audio is just
 
 Here are examples of some of the best external microphones for YouTube:
 
-#### 1. Blue Snowball USB Mic - $60 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
+#### 1. Blue Snowball USB Mic - $60
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube01.JPG)
 
 The Snowball is especially good for vlogging from your webcam because it is easy to hook up to your computer using a USB port. It will record your audio simultaneously while you are using your webcam. The biggest drawback of the Snowball is that it needs to be close to you while your record. This combined with its larger size means that it will probably need to be in your shot.
 
-#### 2. RØDE Video Shotgun Mic - $140 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
+#### 2. RØDE Video Shotgun Mic - $140
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube02.JPG)
 
 The Shotgun attaches to your DSLR camera and is great for capturing specific sounds, like dialogue, without a lot of background noise. To work well it needs to be pointing at the person who is speaking, and it should be fairly close to them as well. This means that the camera cannot be too far back from you while you vlog.
 
-#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
+#### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
 
 This microphone is similar to the ones you think of being mounted on boom poles on professional sets, and it can easily be mounted onto a pole and used the same way. This gradient condenser mic is good at picking up sound at a distance, and at only picking up sound coming from directly in front of it. If you are working alone then you can set this mic up on a stand so it is pointing at you, or if you have a friend to help you you can ask them to hold it on a boom pole.
 
-#### 4. Sony LAV Wireless Mic System - $600 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
+#### 4. Sony LAV Wireless Mic System - $600
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube04.JPG)
 
 A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can be clipped onto clothing. Wearing a LAV Mic while you vlog will allow you to move around freely and still capture great audio, rather than being stuck in range of a stationary mic. There are both wired and wireless options available in LAV Mics.
 
-#### 5. Roland R-05 WAVE/MP3 Recorder - $200 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
+#### 5. Roland R-05 WAVE/MP3 Recorder - $200
+![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
 
 The [R-05](https://bstasmr.com/asmr-accessories/best-asmr-microphones.html) is a pocket recorder that captures flawless audio. Its small size means you can hide it in your pocket and it will not show up in your video. Also, since it does not need to hook up to your camera or computer you will have freedom of movement.
 
@@ -79,6 +85,9 @@ Tip: In cardioid mode, speak into the front of the mic, not the top of it.
 
 When you are filming outside, you are dealing with audio from all different directions: distant traffic, a gust of wind, the neighbor’s kids, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![Best Microphones for Outdoor Locations: Rode VideoMic Pro Compact VMP Shotgun Microphone](https://images.wondershare.com/filmora/article-images/best-microphones-for-outdoor-locations.jpg)
 
 That’s why a shotgun mic is better than an omnidirectional one for outdoor situations. Shotgun microphones, such as the Rode VideoMic Pro, picks up audio only in the direction it’s pointing in. You can aim it at your subject and it will give you clear audio without a lot of background noises.
@@ -239,3 +248,42 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-approach-fine-tuning-your-youtube-videos-dimensions-and-sizes/"><u>[New] In 2024, Step-by-Step Approach  Fine-Tuning Your YouTube Videos' Dimensions & Sizes</u></a></li>
+<li><a href="https://techidaily.com/is-your-honor-x50i-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Honor X50i working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-transform-youtube-soundtracks-on-iphone-with-these-6-choices/"><u>[New] 2024 Approved  Transform YouTube Soundtracks on iPhone with These 6 Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-your-first-impression-matters-8-must-try-youtube-tools-for-thumbnails/"><u>[New] 2024 Approved  Your First Impression Matters  8 Must-Try YouTube Tools for Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-best-asmr-microphones-you-should-try/"><u>In 2024, The Best ASMR Microphones You Should Try</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-biggest-fifa-footage-trends-in-graphics/"><u>Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/power-boosters-secrets-to-stellar-video-thumbnails/"><u>Font Power Boosters  Secrets to Stellar Video Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-guide-to-smart-video-money-making-on-platforms/"><u>2024 Approved  The Guide to Smart Video Money-Making on Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oes-the-sub4sub-strategy-improve-content-consumption-in-2024/"><u>[New] Does the Sub4Sub Strategy Improve Content Consumption, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-guide-to-muting-instagram-accounts/"><u>[New] Guide to Muting Instagram Accounts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy F15 5G</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reating-your-own-path-on-youtube-a-course-guide/"><u>[New] Creating Your Own Path on YouTube  A Course Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discovering-the-varieties-in-non-contact-technology/"><u>Discovering the Varieties in Non-Contact Technology</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/refine-content-creation-high-end-watermark-erasers/"><u>Refine Content Creation  High-End Watermark Erasers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/form-your-classroom-with-youtubes-educational-content/"><u>Transform Your Classroom with YouTube's Educational Content</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/making-sense-of-creative-commons-licensing-and-usage-for-2024/"><u>Making Sense of Creative Commons Licensing & Usage for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-tips-for-selecting-lenses-as-a-video-blogger/"><u>[Updated] Expert Tips for Selecting Lenses as a Video Blogger</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/1-year-old-video-sensation-unprecedented-wealth-accumulation/"><u>[New] 11-Year-Old Video Sensation  Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/decoding-virtual-worlds-the-workings-of-vr/"><u>Decoding Virtual Worlds  The Workings of VR</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-step-by-step-guide-to-youtube-shorts-excellence/"><u>[New] A Step-by-Step Guide to YouTube Shorts Excellence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-playlist-downloads-a-comprehensive-guide/"><u>[New] In 2024, Mastering YouTube Playlist Downloads  A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-effective-affordable-youtube-intros-with-templates/"><u>[New] 2024 Approved  Crafting Effective, Affordable YouTube Intros with Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevating-your-channel-a-gamers-blueprint-for-success/"><u>[New] 2024 Approved  Elevating Your Channel  A Gamers' Blueprint for Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ack-your-way-to-speedy-youtube-video-processing-for-2024/"><u>[New] Hack Your Way to Speedy YouTube Video Processing for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/trim-videos-freely-8-watermark-free-editors/"><u>Trim Videos Freely 8 Watermark-Free Editors</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-beat-the-heat-learn-trending-easy-tiktok-moves/"><u>[New] In 2024, Beat the Heat  Learn Trending, Easy TikTok Moves</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-poco-c65-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-sides-novel-strategies-for-inverting-your-youtube-views/"><u>Unseen Sides  Novel Strategies for Inverting Your YouTube Views</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-do-a-poll-on-instagram-stories-the-only-guide-you-need-to-read-for-2024/"><u>[New] How to Do a Poll on Instagram Stories  The Only Guide You Need to Read for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-what-to-pick-for-your-youtube-videos-ideal-formats-explored/"><u>[New] 2024 Approved  What to Pick for Your YouTube Videos? Ideal Formats Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-for-transforming-fragments-into-lasting-memories/"><u>[Updated] 2024 Approved  The Ultimate Guide for Transforming Fragments Into Lasting Memories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-curating-a-musical-portfolio-in-youtube/"><u>[New] In 2024, Curating a Musical Portfolio in Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-simplifying-complexities-in-youtube-shorts/"><u>[New] 2024 Approved  Simplifying Complexities in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-comparing-youtube-video-downloader-apps-on-android/"><u>2024 Approved  Comparing YouTube Video Downloader Apps on Android</u></a></li>
+</ul></div>

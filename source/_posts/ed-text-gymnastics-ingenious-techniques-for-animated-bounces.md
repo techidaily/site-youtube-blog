@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Text Gymnastics  Ingenious Techniques for Animated Bounces\""
-date: 2024-06-25T21:18:30.284Z
-updated: 2024-06-26T21:18:30.284Z
+date: 2024-07-13T15:06:18.139Z
+updated: 2024-07-14T15:06:18.139Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
 
 ## Text Gymnastics: Ingenious Techniques for Animated Bounces
 
-# How to Create Animated Bouncing Text ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Create Animated Bouncing Text
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -48,6 +49,9 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
@@ -143,3 +147,48 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ake-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] Make an Impression With YouTube Clips  Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-charting-success-with-youtube-income-streams/"><u>In 2024, Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-prodigy-vs-creative-hub-beta-edition-for-2024/"><u>YouTube Prodigy Vs. Creative Hub Beta Edition for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-decoding-the-new-apeaksoft-screenscape-expert-analysis/"><u>In 2024, Decoding the New Apeaksoft Screenscape  Expert Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-your-ultimate-guide-to-streaming-google-meet-on-youtube/"><u>[New] In 2024, Your Ultimate Guide to Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsightful-rank-watchers-optimizing-your-video-performance/"><u>[New] Insightful Rank Watchers  Optimizing Your Video Performance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-bite-sized-content-on-youtube/"><u>2024 Approved  Bite-Sized Content on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/oppo-a38-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A38 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-addition-of-youtube-video-selections-for-sites/"><u>[New] Seamless Addition of YouTube Video Selections for Sites</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-splice-video-editor-for-mac-download-now/"><u>2024 Approved Splice Video Editor for Mac Download Now</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/build-your-affordable-virtual-reality-headgear-using-google-cards-for-2024/"><u>Build Your Affordable Virtual Reality Headgear Using Google Cards for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-gamers-quest-1000plus-game-adventures-unfolded/"><u>[New] 2024 Approved  Gamer's Quest  1,000+ Game Adventures Unfolded</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-harmonic-haven-best-dj-template-selections/"><u>In 2024, Harmonic Haven  Best DJ Template Selections</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-infinix-hot-30i-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Infinix Hot 30i.</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-mastering-audio-amplitude-control-in-audacity/"><u>Updated Mastering Audio Amplitude Control in Audacity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-live-stream-to-youtube-with-wirecast/"><u>[Updated] 2024 Approved  How to Live Stream to Youtube with Wirecast?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-optimal-screen-reproduction-system-for-youtubing-adepts/"><u>In 2024, Optimal Screen Reproduction System for YouTubing Adepts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-closing-credits-creations-affordable-premium-and-more/"><u>2024 Approved  Closing Credits Creations  Affordable, Premium & More</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ze-youtube-metrics-to-transform-views-into-revenue/"><u>Utilize YouTube Metrics to Transform Views Into Revenue</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-treasure-trove-of-premium-youtube-images-from-6-websites/"><u>[New] A Treasure Trove of Premium YouTube Images From 6 Websites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-essential-skills-for-youtube-success-8-free-online-courses/"><u>2024 Approved  Essential Skills for YouTube Success  8 Free Online Courses</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nt-tactics-to-unpredictably-organize-youtube-songs/"><u>Instant Tactics to Unpredictably Organize YouTube Songs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-steer-clear-of-obscurity-secure-a-top-spot-with-youtube-seo-tips/"><u>[New] In 2024, Steer Clear of Obscurity  Secure a Top Spot with YouTube SEO Tips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovative-nomadism-how-to-stand-out-as-a-modern-travel-videographer/"><u>2024 Approved  Innovative Nomadism  How To Stand Out as A Modern Travel Videographer</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-iphone-xr-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From iPhone XR</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rapidly-evolving-yt-spaces-enhancing-cerebral-growth/"><u>[Updated] 2024 Approved  Rapidly Evolving YT Spaces Enhancing Cerebral Growth</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>In 2024, Bring Playlists Down to YouTube  The 5 Best Conversion Resources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-exceptional-freefire-content-on-youtube-platforms/"><u>[New] 2024 Approved  Crafting Exceptional FreeFire Content on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-dissecting-digital-dynamics-comparative-channel-analysis/"><u>2024 Approved  Dissecting Digital Dynamics  Comparative Channel Analysis</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elite-font-generators-tailored-for-discord-mobile/"><u>Elite Font Generators  Tailored for Discord (Mobile)</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-honor-90-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-stock-savvy-streams-discover-the-top-video-resources/"><u>[New] In 2024, Stock Savvy Streams  Discover the Top Video Resources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omposing-correspondents-curtains/"><u>[New] Composing Correspondents' Curtains</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-navigating-the-financial-frontier-of-youtube-creators/"><u>[New] 2024 Approved  Navigating the Financial Frontier of YouTube Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ranking-reign-supreme-with-these-11-video-seo-techniques-on-youtube/"><u>[New] In 2024, Ranking Reign Supreme with These 11 Video SEO Techniques on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-intersection-of-law-copyright-and-media-on-platforms-like-fb/"><u>The Intersection of Law, Copyright, and Media on Platforms Like FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ultimate-guide-7-preferred-android-ad-blocking-tools/"><u>[Updated] 2024 Approved  Ultimate Guide  7 Preferred Android Ad Blocking Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-premier-choices-8-linux-editing-tools/"><u>2024 Approved  Premier Choices  8 Linux Editing Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unraveling-youtubes-monetization-shifts/"><u>[Updated] 2024 Approved  Unraveling YouTube's Monetization Shifts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-premium-access-to-the-best-6-vids/"><u>[New] In 2024, Premium Access to the Best 6 Vids</u></a></li>
+</ul></div>

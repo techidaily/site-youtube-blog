@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Synergy of Data and Imagination  Ideas From Google Trends\""
-date: 2024-06-25T20:40:35.397Z
-updated: 2024-06-26T20:40:35.397Z
+date: 2024-07-13T14:21:36.749Z
+updated: 2024-07-14T14:21:36.749Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,8 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
-## Part 1: Seeing The Big Picture ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
+## Part 1: Seeing The Big Picture
+![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
 
@@ -90,6 +91,9 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
@@ -147,3 +151,44 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-mastering-nikon-footage-a-step-by-step-guide-to-video-editing-for-2024/"><u>New Mastering Nikon Footage A Step-by-Step Guide to Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-maintaining-morale-amidst-online-adversity/"><u>[New] In 2024, Maintaining Morale Amidst Online Adversity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-vimeo-vs-youtube-vs-dailymotion-which-video-platform-is-right-for-you-in-2024/"><u>[Updated] Vimeo vs YouTube vs Dailymotion  Which Video Platform Is Right for You, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] 2024 Approved  Securely Growing Your Channel's Popularity  A One-Million Goal Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/the-pack-with-these-top-7-android-tools-against-ads-for-2024/"><u>Lead the Pack with These Top 7 Android Tools Against Ads for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-tapping-into-youtubes-earnings-how-much-do-you-make-from-adsense-per-kv-in-2024/"><u>[Updated] Tapping Into Youtube's Earnings  How Much Do You Make From AdSense Per KV, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-expert-advice-on-lighting-your-youtube-content-perfectly/"><u>2024 Approved  Expert Advice on Lighting Your YouTube Content Perfectly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-rated-best-webcam-mounting-solutions/"><u>Top-Rated  Best Webcam Mounting Solutions</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-journey-into-vtuber-life-origins-and-opportunities/"><u>2024 Approved  Journey Into Vtuber Life  Origins & Opportunities?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximize-youtube-visibility-with-11-proven-seo-techniques/"><u>[New] Maximize YouTube Visibility with 11 Proven SEO Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-from-couch-to-camera-earning-through-personal-vlogging/"><u>In 2024, From Couch-to-Camera  Earning Through Personal Vlogging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-authentic-audience-growth-tricks-for-sustainable-views/"><u>[New] 2024 Approved  Authentic Audience Growth  Tricks for Sustainable Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unlocking-video-dominance-hashtag-hacks-exposed/"><u>2024 Approved  Unlocking Video Dominance  Hashtag Hacks Exposed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-best-smartphone-camera-accessories-for-vloggers-for-2024/"><u>The 9 Best Smartphone Camera Accessories for Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/igital-decibels-the-leading-youtube-voices/"><u>[New] Digital Decibels  The Leading YouTube Voices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-for-educators-maximizing-its-classroom-potential-for-2024/"><u>[Updated] YouTube for Educators  Maximizing Its Classroom Potential for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-delving-into-the-world-of-googles-digital-podcast-service/"><u>In 2024, Delving Into the World of Googles Digital Podcast Service</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remium-changing-voices-technology-for-youtube-artists-for-2024/"><u>[New] Premium Changing Voices Technology for YouTube Artists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/5-youtube-movies-channels-for-you-to-kill-time/"><u>Top 15 YouTube Movies Channels for You to Kill Time</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-max-power-reimagined-selecting-mac-and-wins-best-srt-converters/"><u>2024 Approved  Max Power Reimagined  Selecting Mac & Win's Best SRT Converters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ideal-steadicams-to-enhance-dslr-video-production-quality-for-2024/"><u>Ideal Steadicams to Enhance DSLR Video Production Quality for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ting-the-perfect-online-source-15-best-royalty-free-music-urls/"><u>Selecting the Perfect Online Source  15 Best Royalty-Free Music URLs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ators-guide-to-understanding-youtube-policies/"><u>A Creator’s Guide to Understanding YouTube Policies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-list-of-ten-soaring-youtube-creations-with-speed-and-purpose/"><u>[New] 2024 Approved  A List of Ten Soaring YouTube Creations with Speed and Purpose</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-swift-strategies-randomize-your-video-playlist-quickly/"><u>2024 Approved  Swift Strategies  Randomize Your Video Playlist Quickly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-9-free-youtube-logo-makers-for-2024/"><u>[Updated] Best 9 Free YouTube Logo Makers for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-downloading-and-installing-windows-11-arm-from-iso/"><u>Step by Step: Downloading and Installing Windows 11 ARM From ISO</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pixelpioneer-8-version-visual-conjurer/"><u>2024 Approved  PixelPioneer  8-Version Visual Conjurer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-navigating-the-complexities-of-youtube-copyright-claims/"><u>2024 Approved  Navigating the Complexities of YouTube Copyright Claims</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-lava-yuva-3-pro-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Lava Yuva 3 Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aking-youtube-intros-interesting-without-costing-a-dime-for-2024/"><u>[New] Making YouTube Intros Interesting Without Costing a Dime for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/legal-framework-of-instagram-tunes/"><u>Legal Framework of Instagram Tunes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-contrasting-youtubes-ownership-norms-with-cc-ideals/"><u>[Updated] 2024 Approved  Contrasting YouTube's Ownership Norms with CC Ideals</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-audio-visual-connection-top-music-picks-that-elevate-your-diverse-video-projects/"><u>New The Audio-Visual Connection Top Music Picks That Elevate Your Diverse Video Projects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-complete-guide-to-youtube-ad-free-viewing-chrome-and-safari/"><u>[New] In 2024, The Complete Guide to YouTube Ad-Free Viewing (Chrome & Safari)</u></a></li>
+</ul></div>

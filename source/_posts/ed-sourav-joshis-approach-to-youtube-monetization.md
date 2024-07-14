@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Sourav Joshi's Approach to YouTube Monetization"
-date: 2024-06-25T20:21:56.103Z
-updated: 2024-06-26T20:21:56.103Z
+date: 2024-07-13T13:59:39.475Z
+updated: 2024-07-14T13:59:39.475Z
 tags:
   - ai video
   - ai youtube
@@ -90,13 +90,15 @@ With two successful channels, net worth in million, luxury cars, and collaborati
 
 The reasons for his success and popularity are:
 
-### Exclusive Personality ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
+### Exclusive Personality
+![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
 
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-### Engaging and Interactive Content ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
+### Engaging and Interactive Content
+![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
 
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
@@ -136,19 +138,23 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 
 [Wondershare Filmora](https://www.wondershare.com/?%5Fgl=1%2A3w9lvu%2A%5Fga%2AMTA1Njc4NjEyLjE2NDEzMDcyMTI.%2A%5Fga%5F24WTSJBD5B%2AMTY2MzM0OTI4MS4zMS4xLjE2NjMzNDk0MTIuOC4wLjA.&%5Fga=2.110806337.554158081.1663349281-105678612.1641307212) is an intuitive software that offers a series of features and templates, so you can edit and make your videos impressive, following only a few simple steps which can help you do the right job.
 
-##### Step1 Import your Footage ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
+##### Step1 Import your Footage
+![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
 
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
-##### Step2 Drag your Footage to Timeline ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+##### Step2 Drag your Footage to Timeline
+![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
-##### Step3 Work on Speed and Duration Settings ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
+##### Step3 Work on Speed and Duration Settings
+![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
-##### Step4 Fix Size and Positioning of your Video ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
+##### Step4 Fix Size and Positioning of your Video
+![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
@@ -188,7 +194,8 @@ _Transitions_ ![transitions](https://images.wondershare.com/filmora/article-imag
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
-##### Step7 Save and Export your Footage ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
+##### Step7 Save and Export your Footage
+![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
@@ -266,13 +273,15 @@ With two successful channels, net worth in million, luxury cars, and collaborati
 
 The reasons for his success and popularity are:
 
-### Exclusive Personality ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
+### Exclusive Personality
+![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
 
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-### Engaging and Interactive Content ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
+### Engaging and Interactive Content
+![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
 
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
@@ -282,6 +291,18 @@ More so, on his vlog channel, he created daily-life vlogs which most people can 
 
 As an artist, Sourav has created some stunning portraits of popular people. But one video where he drew hair got the most views.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
 
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
@@ -312,19 +333,23 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 
 [Wondershare Filmora](https://www.wondershare.com/?%5Fgl=1%2A3w9lvu%2A%5Fga%2AMTA1Njc4NjEyLjE2NDEzMDcyMTI.%2A%5Fga%5F24WTSJBD5B%2AMTY2MzM0OTI4MS4zMS4xLjE2NjMzNDk0MTIuOC4wLjA.&%5Fga=2.110806337.554158081.1663349281-105678612.1641307212) is an intuitive software that offers a series of features and templates, so you can edit and make your videos impressive, following only a few simple steps which can help you do the right job.
 
-##### Step1 Import your Footage ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
+##### Step1 Import your Footage
+![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
 
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
-##### Step2 Drag your Footage to Timeline ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
+##### Step2 Drag your Footage to Timeline
+![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
-##### Step3 Work on Speed and Duration Settings ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
+##### Step3 Work on Speed and Duration Settings
+![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
-##### Step4 Fix Size and Positioning of your Video ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
+##### Step4 Fix Size and Positioning of your Video
+![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
@@ -364,7 +389,8 @@ _Transitions_ ![transitions](https://images.wondershare.com/filmora/article-imag
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
-##### Step7 Save and Export your Footage ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
+##### Step7 Save and Export your Footage
+![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
@@ -402,3 +428,38 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/-rated-free-mobile-apps-for-video-downloads/"><u>7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-five-ideas-of-winter-youtube-background-to-warm-up-your-videos/"><u>[New] 2024 Approved  Five Ideas of Winter YouTube Background to Warm Up Your Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-a-complete-guide-about-wav-converter-lets-dive-into-detailed-facts-and-benefits-of-wav-audio-format/"><u>2024 Approved A Complete Guide About WAV Converter! Lets Dive Into Detailed Facts and Benefits of WAV Audio Format</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essential-steps-for-seamlessly-clearing-youtube-feedback/"><u>[New] 2024 Approved  Essential Steps for Seamlessly Clearing YouTube Feedback</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-success-stories-maximizing-income-with-youtube-adsense/"><u>Video Success Stories  Maximizing Income with YouTube AdSense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-boost-engagement-top-8-youtube-video-trackers-unveiled/"><u>[New] 2024 Approved  Boost Engagement - Top 8 YouTube Video Trackers Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-youtube-music-rippers-for-android-and-ios-for-2024/"><u>[New] 10 YouTube Music Rippers for Android and iOS for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-a-deep-dive-into-the-world-of-youtubes-minis-for-2024/"><u>[New] A Deep Dive Into the World of Youtube's Minis for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-strategies-to-make-money-on-youtube-shorts-easily-for-2024/"><u>[New] 10 Strategies to Make Money on YouTube Shorts Easily for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-step-by-step-guide-to-your-profit-share-in-youtube-shorts/"><u>[New] A Step-by-Step Guide to Your Profit Share in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[New] 2024 Approved  Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-guide-to-top-8-fb-movies-to-download/"><u>The Ultimate Guide to Top 8 FB Movies to Download</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-13-pro-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 Pro To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-customizing-youtube-viewing-policies-for-your-content/"><u>[New] 2024 Approved  Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essential-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>[New] 2024 Approved  Essential Guide  The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/proven-methods-to-elevate-patient-testimonial-videos/"><u>Proven Methods to Elevate Patient Testimonial Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dissecting-youtubes-user-commentary/"><u>[New] 2024 Approved  Dissecting YouTubes' User Commentary</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-strategies-for-randomizing-youtube-tracks-across-media-for-2024/"><u>Quick Strategies for Randomizing YouTube Tracks Across Media for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-simplify-your-workflow-incorporating-luts-into-pscc-projects/"><u>In 2024, Simplify Your Workflow  Incorporating LUTs Into PSCC Projects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets/"><u>[New] 2024 Approved  Elevate Your Shots  Vlogger's Guide to the 9 Finest Camera Gadgets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-10-online-tools-to-retrieve-youtube-graphics/"><u>[New] 2024 Approved  10 Online Tools to Retrieve YouTube Graphics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-s18-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo S18 Device SIM</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-prodigys-riches-soar-in-digital-world-fame/"><u>Young Prodigy's Riches Soar in Digital World Fame</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-instagram-4-pro-tips-for-looped-video-content/"><u>[New] 2024 Approved  Mastering Instagram  4 Pro Tips for Looped Video Content</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-beyond-fcpx-10-video-editing-solutions-for-every-budget/"><u>In 2024, Beyond FCPX 10 Video Editing Solutions for Every Budget</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-realme-11x-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Realme 11X 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-a-profitable-channel-in-your-first-youtube-steps/"><u>[New] 2024 Approved  Crafting a Profitable Channel in Your First Youtube Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-youtube-rank-tracker-to-track-your-video-for-2024/"><u>Top 8 YouTube Rank Tracker to Track Your Video for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-professional-text-design-in-10-minutes-or-less-ae-style-for-2024/"><u>[Updated] Professional Text Design in 10 Minutes or Less (AE Style) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-overview-of-colour-difference-filming/"><u>Quick Overview of Colour Difference Filming</u></a></li>
+</ul></div>

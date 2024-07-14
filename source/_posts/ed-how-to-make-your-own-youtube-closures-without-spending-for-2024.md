@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make Your Own YouTube Closures Without Spending for 2024"
-date: 2024-06-25T21:16:52.908Z
-updated: 2024-06-26T21:16:52.908Z
+date: 2024-07-13T15:04:22.496Z
+updated: 2024-07-14T15:04:22.496Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,11 @@ thumbnail: https://thmb.techidaily.com/e04a9e5f3764ad02106bedbd9d5d7455103ba0386
 
 ## How to Make Your Own YouTube Closures Without Spending
 
-# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -38,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/e04a9e5f3764ad02106bedbd9d5d7455103ba0386
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -108,6 +115,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -133,3 +143,42 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-behind-the-screen-essential-post-vidcon-gatherings/"><u>[New] 2024 Approved  Behind the Screen  Essential Post-VidCon Gatherings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enter-immersive-realms-top-10-youtubes-most-captivating-vr-videos/"><u>[New] 2024 Approved  Enter Immersive Realms  Top 10 YouTube's Most Captivating VR Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-oppo-a58-4g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-compelling-end-screens-in-youtube-videos/"><u>[New] 2024 Approved  Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-decoding-the-revised-youtube-earnings-criteria/"><u>[New] 2024 Approved  Decoding the Revised YouTube Earnings Criteria</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-closing-with-panache-free-youtubes-1-six/"><u>[New] 2024 Approved  Closing with Panache  Free YouTube's #1 Six!</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/is-your-channels-income-regular-via-youtube-in-2024/"><u>Is Your Channel's Income Regular via YouTube, In 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-symphony-selecting-superior-dj-templates-for-download/"><u>Synth Symphony  Selecting Superior DJ Templates for Download</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-steps-to-crafting-engaging-cost-effective-youtube-ads-for-2024/"><u>[New] 5 Steps to Crafting Engaging, Cost-Effective YouTube Ads for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essential-youtube-rules-for-content-creators/"><u>[New] 2024 Approved  Essential YouTube Rules for Content Creators</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-ai-driven-video-title-strategy-for-maximum-impact/"><u>In 2024, AI-Driven Video Title Strategy for Maximum Impact</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-picks-top-1-cookie-cutter-list-of-10-apps-for-basketball-and-rugby-streaming/"><u>In 2024, Expert Picks  Top 1 Cookie Cutter List of 10 Apps for Basketball and Rugby Streaming</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-your-guide-to-retracing-fbs-most-watched-videos-now-for-2024/"><u>[Updated] Your Guide to Retracing FB’s Most-Watched Videos, Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-video-watchlist-activate-av1-on-youtube/"><u>[New] 2024 Approved  Elevate Your Video Watchlist - Activate AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-step-by-step-guide-to-youtube-shorts-excellence-for-2024/"><u>[New] A Step-by-Step Guide to YouTube Shorts Excellence for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/avoiding-pitfalls-common-mistakes-in-instagram-filmmaking-for-2024/"><u>Avoiding Pitfalls  Common Mistakes in Instagram Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-biz-game-youtube-channels-that-succeeded/"><u>[New] 2024 Approved  Elevate Your Biz Game  YouTube Channels That Succeeded</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-the-full-potential-of-your-instagram-story-with-multiple-images-for-2024/"><u>[Updated] Unlocking the Full Potential of Your Instagram Story with Multiple Images for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-designing-news-outro-sequences/"><u>[New] 2024 Approved  Designing News Outro Sequences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-achieve-perfect-youtube-broadcasts-with-superior-webcams/"><u>[New] 2024 Approved  Achieve Perfect YouTube Broadcasts with Superior Webcams</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-7-hydro-resistant-camcorders-explored/"><u>[New] Top 7 Hydro-Resistant Camcorders Explored</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-titan-tags-the-list-that-elevates-your-youtube-shorts-to-fame-for-2024/"><u>Trend Titan Tags  The List That Elevates Your YouTube Shorts to Fame for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-10-best-intro-maker-apps-for-iphone-and-android/"><u>[New] 2024 Approved  10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-comprehensive-list-of-8-authentic-propagation-tools/"><u>[New] 2024 Approved  A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>[New] 2024 Approved  A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-football-film-study-premier-insights-infographic/"><u>[New] 2024 Approved  Football Film Study  Premier Insights Infographic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-thorough-scrutiny-bublcams-panoramic-innovation/"><u>[New] Thorough Scrutiny  Bublcam's Panoramic Innovation</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quietude-in-a-click-the-ultimate-calm-list/"><u>Quietude in a Click  The Ultimate Calm List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enhance-video-magic-find-your-favorite-mobile-edit-apps/"><u>[New] 2024 Approved  Enhance Video Magic  Find Your Favorite Mobile Edit Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-musical-notes-understanding-youtube-shorts/"><u>Quick Musical Notes  Understanding YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-your-online-presence-by-mastering-video-editing-in-sony-vegas/"><u>Boost Your Online Presence by Mastering Video Editing in Sony Vegas</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/prime-selection-8-best-free-mobile-mp3-downloaders-for-2024/"><u>Prime Selection - 8 Best Free Mobile MP3 Downloaders for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Next-Gen Streaming  Enable AV1 Codec on YouTube\""
-date: 2024-06-25T20:36:24.229Z
-updated: 2024-06-26T20:36:24.229Z
+date: 2024-07-13T14:16:41.847Z
+updated: 2024-07-14T14:16:41.847Z
 tags:
   - ai video
   - ai youtube
@@ -24,13 +24,15 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance
+![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video
+![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -80,6 +82,9 @@ After that, you can export your video to any device you want, such as iPhone, iP
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: FAQ: Does YouTube use AV1 or VP9?
 
 For today, YouTube encodes all the videos with the VP9 codec, but for some reason displays for low view count videos. AV1 usage also had been pushed to very low view counts. When it comes to cost or quality tradeoffs, AV1 took about 18 times longer to encode than x264.
@@ -112,3 +117,39 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-oppo-a1-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Oppo A1 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-8-best-tools-for-youtube-to-avi-conversion/"><u>[Updated] Unveiling 8 Best Tools for YouTube to AVI Conversion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtubes-most-followed-fashionistas-and-cosmetic-experts/"><u>[Updated] In 2024, YouTube's Most-Followed Fashionistas & Cosmetic Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovations-to-enhance-your-short-video-experience/"><u>[Updated] Innovations to Enhance Your Short Video Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-hot-yt-videos-best-music-dance-and-responses-23/"><u>[Updated] Hot YT Videos  Best Music Dance & Responses '23</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-voices-for-change-highlighting-influential-ladies-on-youtube-for-2024/"><u>[Updated] Voices for Change  Highlighting Influential Ladies on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enhancing-winter-vlogs-with-five-heartwarming-backdrops/"><u>[New] 2024 Approved  Enhancing Winter Vlogs with Five Heartwarming Backdrops</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-untapped-utility-zoom-in-on-minecraft/"><u>[Updated] Unlocking Untapped Utility  Zoom in on Minecraft</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-personalize-your-screen-time-with-these-top-6-creator-identifying-questions/"><u>[Updated] In 2024, Personalize Your Screen Time with These Top 6 Creator-Identifying Questions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-creative-potential-in-asmr-content-advanced-techniques-for-2024/"><u>[Updated] Unlocking Creative Potential in ASMR Content – Advanced Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pinnacle-of-amusement-select-15-laughing-out-loud-channels-for-2024/"><u>[Updated] The Pinnacle of Amusement  Select 15 Laughing-Out-Loud Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-perfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem-for-2024/"><u>[Updated] Perfecting Your Playlists  Adapting Spotify to the YouTube Music Ecosystem for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-advanced-techniques-for-proximity-viewing-in-roblox/"><u>2024 Approved  Advanced Techniques for Proximity Viewing in Roblox</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-internets-icons-global-youtuber-subscriber-winners/"><u>2024 Approved  Internet's Icons  Global YouTuber Subscriber Winners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-simplified-techniques-for-reordering-yt-videos/"><u>[Updated] Simplified Techniques for Reordering YT Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-unveiling-irecorders-top-screen-capabilities/"><u>In 2024, Unveiling iRecorder's Top Screen Capabilities</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/pinnacle-platforms-alternatives-to-the-oldest-birdcalls-for-2024/"><u>Pinnacle Platforms  Alternatives to the Oldest Birdcalls for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mini-mic-marvels-affordable-sound-for-youtube-creators/"><u>[Updated] Mini-Mic Marvels  Affordable Sound for YouTube Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-effective-color-difference-filters-in-film-making/"><u>2024 Approved  Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximizing-video-game-channel-revenue/"><u>[Updated] In 2024, Maximizing Video Game Channel Revenue</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-science-spheres-pinnacle-channels-top-15-yt-lists/"><u>2024 Approved  Science Sphere's Pinnacle Channels  Top 15 YT Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sonic-sweepstakes-top-tunes-for-viral-youtube-short-videos/"><u>[Updated] Sonic Sweepstakes  Top Tunes for Viral YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-landscape-a-beginners-primer/"><u>[Updated] Navigating YouTube's Landscape  A Beginner's Primer</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-best-of-the-brainless-top-zombie-game-sweepstakes/"><u>[Updated] In 2024, The Best of the Brainless  Top Zombie Game Sweepstakes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-captivate-convince-and-connect-explore-the-top-20-tiktok-caption-tricks/"><u>In 2024, Captivate, Convince, and Connect  Explore the Top 20 TikTok Caption Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/d-the-scenes-of-carminatis-youtube-earnings-for-2024/"><u>Behind the Scenes of Carminati’s YouTube Earnings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamlining-your-monetization-mastering-youtube-adsense/"><u>[Updated] Streamlining Your Monetization  Mastering YouTube AdSense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-video-formats-for-maximum-youtube-engagement/"><u>[Updated] Top Video Formats for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://windows11.techidaily.com/strike-balance-not-conflict-choose-one-antivirus-on-your-windows-pc/"><u>Strike Balance, Not Conflict: Choose One Antivirus on Your Windows PC</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-professionals-guide-to-the-top-vocal-dampening-software-for-musicians-and-producers/"><u>Updated 2024 Approved Professionals Guide to the Top Vocal Dampening Software for Musicians and Producers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-visionary-vittles-steps-to-craft-food-films/"><u>[Updated] 2024 Approved  Visionary Vittles  Steps to Craft Food Films</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unrestricted-creativity-the-ultimate-android-editing-selection-for-2024/"><u>[Updated] Unrestricted Creativity  The Ultimate Android Editing Selection for 2024</u></a></li>
+</ul></div>

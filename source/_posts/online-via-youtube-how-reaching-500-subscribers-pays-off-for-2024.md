@@ -1,7 +1,7 @@
 ---
 title: "\"Earn Online via YouTube  How Reaching 500 Subscribers Pays Off for 2024\""
-date: 2024-06-25T20:26:58.018Z
-updated: 2024-06-26T20:26:58.018Z
+date: 2024-07-13T14:05:34.029Z
+updated: 2024-07-14T14:05:34.029Z
 tags:
   - ai video
   - ai youtube
@@ -22,6 +22,9 @@ For small creators on YouTube, getting monetized seemed like an uphill task. You
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1.** **YouTube Monetization Revamp: 500 Subscribers Minimum Threshold Unveiled**
 
 The recent update in YouTube monetization requirements has made it easier than ever for small creators to make money on the platform. The YPP program changed and reduced the number of subscribers needed to be eligible. It has also reduced the amount of watch time needed. Let’s have a look at what the new eligibility criteria look like:
@@ -64,13 +67,17 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 #### **On Computer/Desktop**
 
-##### Step 1Sign in to YouTube Studio on your computer or desktop ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
+##### Step 1Sign in to YouTube Studio on your computer or desktop
+![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
-##### Step 2Click Earn in the left menu ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
+##### Step 2Click Earn in the left menu
+![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
 
-##### Step 3Click Apply Now to review and Accept the base terms ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
+##### Step 3Click Apply Now to review and Accept the base terms
+![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
-##### Step 4Click Start to set up an AdSense account ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
+##### Step 4Click Start to set up an AdSense account
+![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
 
 #### **On Android, iPhone and iPad**
 
@@ -156,3 +163,41 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/elevating-your-youtube-presence-with-effective-tags/"><u>Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-legally-access-game-music-without-spending-money-for-2024/"><u>How to Legally Access Game Music Without Spending Money for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-breakdown-fundamental-aspects-of-asmr-videos/"><u>[Updated] Breakdown  Fundamental Aspects of ASMR Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-videography-on-fb-horizontal-or-vertical-placement/"><u>[New] 2024 Approved  Videography on FB  Horizontal or Vertical Placement?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-master-emoji-artistry-with-these-tools-on-discord/"><u>[New] 2024 Approved  Master Emoji Artistry with These Tools on Discord</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/5-non-youtube-editing-tools-for-vids/"><u>Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-maximizing-impact-the-best-instagram-hashtag-list/"><u>[New] Maximizing Impact  The Best Instagram Hashtag List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-video-extraction-techniques-for-pc-and-mac-for-2024/"><u>FB Video Extraction Techniques for PC & Mac for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ct-timekeeping-a-guide-to-adding-timestamps-in-youtube-links/"><u>Perfect Timekeeping  A Guide to Adding Timestamps in YouTube Links</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-does-youtube-count-views-its-not-as-simple-as-you-think/"><u>[Updated] In 2024, How Does YouTube Count Views? It's Not as Simple as You Think</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-insightful-comparisons-top-android-applications-for-youtube-download/"><u>2024 Approved  Insightful Comparisons  Top Android Applications for YouTube Download</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-speed-masterclass-turning-images-into-attention-grabbing-youtube-thumbnails/"><u>2024 Approved  Speed Masterclass  Turning Images Into Attention-Grabbing YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-humor-highway-tailored-joke-routes-for-each-occasion/"><u>2024 Approved  Humor Highway  Tailored Joke Routes for Each Occasion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-comprehensive-look-at-decelerating-youtube-video-speed-50-chars/"><u>[Updated] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-new-youtube-earning-rules-unveiled/"><u>2024 Approved  New YouTube Earning Rules Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-combat-common-youtube-short-obstacles-for-2024/"><u>[Updated] Combat Common YouTube Short Obstacles for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-uncover-the-wolfs-distant-bellowing-effect/"><u>New In 2024, Uncover the Wolfs Distant Bellowing Effect</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-refine-and-revamp-your-youtube-clips-using-wm-maker/"><u>[Updated] 2024 Approved  Refine and Revamp Your YouTube Clips Using WM Maker</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-immerse-in-pixel-worlds-the-best-pc-vr-playback-titles-compared-for-2024/"><u>[Updated] Immerse in Pixel Worlds  The Best PC VR Playback Titles Compared for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-champion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture-for-2024/"><u>[Updated] Champion of Chiseled Cheeks  Starting Your YouTube Aesthetic Venture for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-enhancing-youtube-content-via-finalcut-pro-techniques/"><u>2024 Approved  Enhancing YouTube Content via FinalCut Pro Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-jumpstart-your-channel-with-these-top-10-video-editing-tips/"><u>2024 Approved  Jumpstart Your Channel with These Top 10 Video Editing Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-content-seo-mastery-starts-here/"><u>2024 Approved  Elevate Your Content  SEO Mastery Starts Here</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-turn-video-soundtracks-into-audible-files/"><u>2024 Approved  How to Turn Video Soundtracks Into Audible Files</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/leading-voice-modification-tools-at-zero-cost-an-in-depth-filmora-video-voice-editing-handbook-for-2024/"><u>Leading Voice Modification Tools at Zero Cost An In-Depth Filmora Video Voice Editing Handbook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-expert-director-of-visuals-and-music-for-2024/"><u>[Updated] Expert Director of Visuals and Music for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-methodology-creating-life-changing-video-guides/"><u>In 2024, Methodology  Creating Life-Changing Video Guides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-editors-codex-innovations-in-youtube-video-formatting/"><u>In 2024, The Editor's Codex  Innovations in Youtube Video Formatting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-social-media-live-war-fb-live-and-yt-live-vs-twitter-spaces/"><u>In 2024, Social Media Live War  FB LIVE & YT Live Vs. Twitter Spaces</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-guide-to-growth-and-glitter-in-video-ventures/"><u>[Updated] 2024 Approved  The Ultimate Guide to Growth & Glitter in Video Ventures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-tagging-made-easy-with-these-high-impact-instagram-hashtags/"><u>[New] Tagging Made Easy with These High-Impact Instagram Hashtags</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-most-reliable-platforms-to-gather-video-intro-templates/"><u>In 2024, Most Reliable Platforms to Gather Video Intro Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ecoding-youtubes-clandestine-content-with-orderliness-for-2024/"><u>[New] Decoding YouTube's Clandestine Content with Orderliness for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-free-youtube-sound-ripper-collection-top-17-extractors-revealed/"><u>[Updated] Free YouTube Sound Ripper Collection  Top 17 Extractors Revealed</u></a></li>
+</ul></div>

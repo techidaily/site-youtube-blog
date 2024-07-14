@@ -1,7 +1,7 @@
 ---
 title: "How to Find Your Comments on YouTube?"
-date: 2024-06-25T20:22:11.382Z
-updated: 2024-06-26T20:22:11.382Z
+date: 2024-07-13T13:59:57.104Z
+updated: 2024-07-14T13:59:57.104Z
 tags:
   - ai video
   - ai youtube
@@ -143,6 +143,9 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 **Note:** Unfortunately, you cannot hold the comments for approval using the YT Studio app. As a workaround, you can follow the procedure given earlier to access the desktop version of YouTube on your smartphone, and then use the method explained in the previous section to get this done. However, it is recommended that you do all such sensitive tasks on a laptop or desktop computer to avoid any errors.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
 ## Part 3: Find Someone’s YouTube Comments by User Name
@@ -244,3 +247,59 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovation-at-play-the-best-professional-360-degree-cameras-2023-update/"><u>In 2024, Innovation at Play  The Best Professional 360-Degree Cameras - 2023 Update</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-engaging-gamers-banners-using-pre-made-themes/"><u>[New] 2024 Approved  Crafting Engaging Gamers' Banners  Using Pre-Made Themes</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/2024-approved-the-ultimate-guide-to-soundcloud-mp3-conversion/"><u>2024 Approved The Ultimate Guide to Soundcloud MP3 Conversion</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-apple-iphone-8-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your Apple iPhone 8</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essential-insights-into-youtube-live-image-crafting/"><u>[New] 2024 Approved  Essential Insights Into YouTube Live Image Crafting</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamless-transition-from-skype-to-zoom-quick-tips/"><u>[Updated] Seamless Transition From Skype to Zoom  Quick Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-professionalism-the-best-practices-for-post-upload-editing/"><u>[New] 2024 Approved  Crafting Professionalism  The Best Practices for Post-Upload Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[New] 6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-the-art-of-bio-storytelling-on-social-media-platforms/"><u>[New] 2024 Approved  The Art of Bio Storytelling on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-prodigy-ryan-kaji-dominates-youtube-revenue-race-for-2024/"><u>Child Prodigy  Ryan Kaji Dominates YouTube Revenue Race for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-discovering-video-producers-digital-command-center/"><u>In 2024, Discovering Video Producers' Digital Command Center</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-free-mobile-apps-for-downloading-youtube-playlists-for-2024/"><u>Top 20 Free Mobile Apps for Downloading YouTube Playlists for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-uncomplicated-video-logging-tool-w10/"><u>[New] 2024 Approved  Uncomplicated Video Logging Tool  W10</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-accelerated-video-capture-device-and-voice-commentary-feature/"><u>[Updated] Accelerated Video Capture Device & Voice Commentary Feature</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-extracting-image-files-from-youtube-browser-based-os-techniques/"><u>[New] 2024 Approved  Extracting Image Files From Youtube  Browser-Based, OS Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-realme-narzo-60-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-effective-legal-strategies-for-content-visibility/"><u>[New] 2024 Approved  Effective, Legal Strategies for Content Visibility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dodging-account-penaltinas-on-youtube/"><u>[New] 2024 Approved  Dodging Account Penaltinas on Youtube</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-podcasting-made-simple-your-step-by-step-guide-to-effortless-production/"><u>Updated 2024 Approved Podcasting Made Simple Your Step-by-Step Guide to Effortless Production</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-best-of-free-and-paid-8-ranked-android-videomosaic-apps-explored/"><u>The Best of Free & Paid  #8 Ranked Android Videomosaic Apps Explored</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-samsung-galaxy-a14-4g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Samsung Galaxy A14 4G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-expert-tips-for-streamlining-youtube-audio-into-imovie/"><u>[New] 2024 Approved  Expert Tips for Streamlining YouTube Audio Into iMovie</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>In 2024, The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-real-time-vocal-alteration-a-deep-dive-into-the-leading-5-innovative-software-solutions/"><u>New Real-Time Vocal Alteration A Deep Dive Into the Leading 5 Innovative Software Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-next-generation-of-vr-innovations-reviewed/"><u>[New] 2024 Approved  The Next Generation of VR  Innovations Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-download-youtube-icons-quickly-web-os-specific-options-explained/"><u>[New] 2024 Approved  Download YouTube Icons Quickly  Web, OS-Specific Options Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>[Updated] Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-building-a-captivating-virtual-persona-with-discords-pfps/"><u>2024 Approved  Building a Captivating Virtual Persona with Discord's Pfps</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-samsung-galaxy-s24-ultra-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-motorola-razr-40-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Motorola Razr 40 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>[New] 2024 Approved  12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/full-spectrum-analysis-the-complete-logitech-4k-webcam-review-for-2024/"><u>Full Spectrum Analysis  The Complete Logitech 4K Webcam Review for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[New] 2024 Approved  Audio Matters  Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-earning-potential-steps-to-join-the-youtube-premium-club/"><u>[New] 2024 Approved  Earning Potential  Steps to Join the YouTube Premium Club</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-beginners-guide-top-10-youtube-editing-tricks/"><u>[New] 2024 Approved  Beginner's Guide  Top 10 YouTube Editing Tricks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audio-ambiance-assembler-selecting-background-scores-for-2024/"><u>Audio Ambiance Assembler  Selecting Background Scores for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-calculating-the-comfort-zone-for-podcast-duration/"><u>[New] Calculating the Comfort Zone for Podcast Duration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-time-streamers-unite-learn-obs-and-broadcast-to-youtube-for-2024/"><u>First-Time Streamers Unite  Learn OBS & Broadcast to Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-viewers-off-their-feet-templates-that-work-wonders/"><u>Sweep Viewers Off Their Feet  Templates That Work Wonders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>[New] 2024 Approved  Charting Success  Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-guide-to-gathering-creative-themes-using-google-trends/"><u>[New] 2024 Approved  A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/a-tweet-to-snap-showcase-video-posting-techniques-for-2024/"><u>A Tweet-to-Snap Showcase  Video Posting Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-to-fine-tune-youtube-videos-for-efficient-consumption/"><u>Learn to Fine-Tune YouTube Videos for Efficient Consumption</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-out-as-an-elite-gamer-on-youtube-for-2024/"><u>Stand Out as an Elite Gamer on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-screener-tech-perfect-for-creating-viral-youtube-moments/"><u>[New] 2024 Approved  Best Screener Tech  Perfect for Creating Viral YouTube Moments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] 2024 Approved  A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://video-capture.techidaily.com/simplifying-tasks-with-ez-grabber-techniques/"><u>Simplifying Tasks with EZ Grabber Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-view-count-boosters-top-8-thumbnails-tactics-for-2024/"><u>Video View Count Boosters  Top 8 Thumbnails Tactics for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-rethink-your-feed-6-innovative-video-platforms-on-mobile-devices/"><u>[New] Rethink Your Feed  6 Innovative Video Platforms on Mobile Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-free-thumbnail-extract-from-youtube-videos-today/"><u>[New] 2024 Approved  Free Thumbnail Extract From YouTube Videos Today</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-channel-charisma-strategies-to-skyrocket-your-youtube-visibility/"><u>[New] 2024 Approved  Channel Charisma  Strategies to Skyrocket Your YouTube Visibility</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-ultimate-playstation-4-guide-to-perfect-gameplay-recording/"><u>[Updated] In 2024, The Ultimate PlayStation 4 Guide to Perfect Gameplay Recording</u></a></li>
+</ul></div>

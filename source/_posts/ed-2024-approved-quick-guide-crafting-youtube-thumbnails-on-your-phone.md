@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Guide  Crafting YouTube Thumbnails on Your Phone\""
-date: 2024-06-25T20:44:19.513Z
-updated: 2024-06-26T20:44:19.513Z
+date: 2024-07-13T14:26:01.324Z
+updated: 2024-07-14T14:26:01.324Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,9 @@ Step1 Open the Photos app and find the image you want to use as your thumbnail. 
 
 Step2 Tap the **Edit** button in the top right corner of the screen. Use the **crop and rotate tools** to adjust the perspective and the aspect ratio of 16:9.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios photo edit](https://images.wondershare.com/filmora/article-images/ios-photo-edit.JPG)
 
 Step3 Tap the **Filters** button to access the filter effects. **Scroll** through the available filters and **tap** on one to apply it to your thumbnail image.
@@ -379,3 +382,60 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/unboxing-titans-of-youtube-the-most-popular/"><u>Unboxing Titans of YouTube - The Most Popular</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aried-and-eye-catching-vlog-discussion-points/"><u>[New] Varied and Eye-Catching Vlog Discussion Points</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-strategies-for-discovering-personal-style-identity/"><u>[New] 2024 Approved  Strategies for Discovering Personal Style Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-hasty-guide-from-raw-images-to-high-quality-youtube-thumbnail-art/"><u>[Updated] Hasty Guide  From Raw Images to High-Quality YouTube Thumbnail Art</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-add-youtube-annotations-and-cards/"><u>How to Add YouTube Annotations and Cards?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[Updated] In 2024, Audio Conversion Made Simple  YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] In 2024, Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-jumpstart-your-youtube-venture-top-equipment-choices/"><u>[Updated] Jumpstart Your YouTube Venture  Top Equipment Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-achieve-impact-innovative-imovie-techniques-for-youtube-startups/"><u>2024 Approved  Achieve Impact  Innovative iMovie Techniques for YouTube Startups</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ting-your-youtube-comments-with-emoji-skills-for-2024/"><u>Elevating Your YouTube Comments with Emoji Skills for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-v27frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo V27FRP Lock</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-listensmart-beyond-dacast-choices/"><u>[New] ListenSmart  Beyond DaCast Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-achieving-excellent-illumination-on-youtube-videos/"><u>[New] 2024 Approved  Achieving Excellent Illumination on YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-leveraging-seo-in-youtube-a-title-and-tags-guidebook/"><u>[Updated] In 2024, Leveraging SEO in Youtube  A Title & Tags Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-effortless-sound-transformation-from-youtube-to-wav-format-for-2024/"><u>[Updated] Effortless Sound Transformation From YouTube to WAV Format for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[New] Top 10 Gaming PC Graphics  For Ultimate YouTube Viewing Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-finding-the-central-node-of-youtube-video-management-for-2024/"><u>[Updated] Finding the Central Node of YouTube Video Management for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streamline-your-income-youtubes-new-rules/"><u>[Updated] 2024 Approved  Streamline Your Income  YouTube's New Rules</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-8-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone 8? How to Fix</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge/"><u>[New] 2024 Approved  Unlock the Power of Partnerships  YouTube Ads with a FameBit Edge</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-access-a-world-of-content-anywhere-anyplace-with-the-leading-6-best-and-cost-free-tools-to-download-youtubes-short-videos/"><u>[Updated] In 2024, Access a World of Content Anywhere, Anyplace with the Leading 6 Best and Cost-Free Tools to Download YouTubes' Short Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/asy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[New] Easy Transition From Local to Global  Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-faster-more-effective-vocal-alterations-for-pubg-players/"><u>In 2024, Unlocking Faster, More Effective Vocal Alterations for PUBG Players</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-millions-watch-but-how-much-do-they-earn-for-2024/"><u>[Updated] Millions Watch, But How Much Do They Earn for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aging-youtubes-ecosystem-for-financial-gain-for-2024/"><u>Leveraging YouTube's Ecosystem for Financial Gain for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pickup-vs-competitors-an-incisive-review-of-androids-top-editor/"><u>PickUp Vs. Competitors  An Incisive Review of Android's Top Editor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-experts-approach-to-inserting-subtitlescc-on-youtube-videos/"><u>[New] 2024 Approved  The Expert's Approach to Inserting Subtitles/CC on YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamlined-system-for-scrutinizing-youtube-subscriber-profits-3-step-guide-for-2024/"><u>A Streamlined System for Scrutinizing YouTube Subscriber Profits  3-Step Guide for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-poco-m6-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Poco M6 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-audiovisual-enhancements-for-video-producers/"><u>[New] Top Audiovisual Enhancements for Video Producers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-joint-creative-endeavors-between-brands-and-youtube/"><u>2024 Approved  Joint Creative Endeavors Between Brands & YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-the-craft-of-youtubers-music-reaction-videos-essentials/"><u>[Updated] In 2024, Mastering the Craft of Youtubers  Music Reaction Videos Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unique-stories-crafting-powerful-yt-narratives/"><u>[New] In 2024, Unique Stories  Crafting Powerful YT Narratives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximize-youtube-traffic-top-viewing-times/"><u>[Updated] Maximize YouTube Traffic  Top Viewing Times</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mini-media-magic-which-social-site-captures-the-crowd-faster-in-2024-youtubes-or-tiktoks/"><u>[Updated] Mini-Media Magic  Which Social Site Captures the Crowd Faster, In 2024 YouTubes or TikToks?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-latest-tricks-for-ios-screenshots-and-recording-for-2024/"><u>[Updated] Latest Tricks for iOS Screenshots & Recording for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-infinix-smart-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-vivo-v27e-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Vivo V27e Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[Updated] In 2024, Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-uncover-the-most-stellar-yt-gamers-intros-no-cost-high-quality/"><u>[Updated] In 2024, Uncover the Most Stellar YT Gamers' Intros  No Cost, High Quality?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-step-by-step-conquering-tiktok-edit-mastery/"><u>In 2024, Step-by-Step  Conquering TikTok Edit Mastery</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-upgrading-your-cinematic-story-with-video-edges/"><u>[Updated] Upgrading Your Cinematic Story with Video Edges</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ary-returns-for-one-million-youtube-watchers-for-2024/"><u>Monetary Returns for One Million YouTube Watchers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ayered-comfort-selecting-snug-winter-themes-for-filming/"><u>[New] Layered Comfort  Selecting Snug Winter Themes for Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-the-ideal-12-vlogging-cameras-with-seamless-screen-control/"><u>[New] In 2024, Unveiling the Ideal 12 Vlogging Cameras with Seamless Screen Control</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inspiring-podcast-artwork-essential-design-insights/"><u>[New] Inspiring Podcast Artwork  Essential Design Insights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-achieving-financial-freedom-joshis-youtube-tactics-for-2024/"><u>[Updated] Achieving Financial Freedom  Joshi’s YouTube Tactics for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-through-digital-profit-landscapes-for-2024/"><u>[Updated] Navigating Through Digital Profit Landscapes for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-epicurean-elites-top-food-vloggers-you-cant-miss/"><u>[New] 2024 Approved  Epicurean Elites  Top Food Vloggers You Can't Miss</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-s18-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo S18 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+</ul></div>
