@@ -1,0 +1,179 @@
+---
+title: "\"[Updated] Top Tips  How to Avoid the 8 Deadliest YouTube Dos and Don'ts for Newbies\""
+date: 2024-08-08T16:24:20.984Z
+updated: 2024-08-09T16:24:20.984Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Top Tips: How to Avoid the 8 Deadliest YouTube Dos and Don'ts for Newbies\""
+excerpt: "\"This Article Describes [Updated] Top Tips: How to Avoid the 8 Deadliest YouTube Dos and Don'ts for Newbies\""
+keywords: "Youtube Beginner Guide,Video Creation Do's & Don'ts,Safe YouTube Practices,Effective YouTubing Tips,Newbie YouTube Strategies,Avoiding Channel Pitfalls,Optimizing YouTube Content"
+thumbnail: https://thmb.techidaily.com/bbc14b435660c967866cf3c17d84e88db2c1688390de1d8678d61e0a94d5c4d0.png
+---
+
+## Top Tips: How to Avoid the 8 Deadliest YouTube Dos and Don'ts for Newbies
+
+# 8 Mistakes People Should Avoid as a New YouTuber
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I learned from those mistakes and have helped many new YouTubers start their own channels. Here is a list of eight common mistakes that new YouTubers should avoid, along with tips to do things in a better way.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
+
+###  
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+### 1\. Failing to have a long-term vision
+
+One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
+
+If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
+
+### 2\. Choosing an ineffective custom URL
+
+Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
+
+Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
+### 3\. Coming up with titles that won't get searched
+
+Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
+
+Big YouTubers can take advantage of non-searched, curiosity evoking titles like “You won’t believe what just happened…” because they already have a huge following. Their channels aren’t depending on getting discovered through search. But yours is. So come up with titles that people are actually searching.
+
+As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
+
+### 4\. Failing to have a thumbnail strategy
+
+New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
+
+Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 5\. Making weak intros
+
+After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
+
+New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
+
+To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+### 6\. Forgetting to engage with subscribers
+
+An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
+
+Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 7\. Not promoting with social media
+
+YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
+
+New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+### 8\. Spamming comments
+
+Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
+
+But rather than leaving interesting comments that are related to the video, rather than adding to the conversation, some new YouTubers desperate to get more subscribers make the mistake of spamming videos with “check out my YouTube channel!” comments.
+
+Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>[New] 2024 Approved  A Treasure Trove  Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-essence-of-timelessness-instagrams-slow-motion-guide/"><u>[New] 2024 Approved  The Essence of Timelessness  Instagram's Slow-Motion Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-free-online-video-communication-tools-rated-best-for-2024/"><u>[New] Free Online Video Communication Tools Rated Best for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-guide-to-youtube-thumbnail-sizes/"><u>[New] The Ultimate Guide to YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unseen-reader-fb-moments-watcher/"><u>[New] Unseen Reader  FB Moments Watcher</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-edit-youtube-videos-in-sony-vegas/"><u>[Updated] 2024 Approved  How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-instagram-concealing-tags-efficiently/"><u>[Updated] 2024 Approved  Mastering Instagram  Concealing Tags Efficiently</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-tactics-for-making-youtube-videos-go-viral/"><u>[Updated] 2024 Approved  Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-first-steps-on-the-path-equipment-for-beginners-for-2024/"><u>[Updated] First Steps on the Path  Equipment for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximize-impact-with-customized-youtube-end-screen-templates/"><u>[Updated] In 2024, Maximize Impact with Customized YouTube End Screen Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-step-up-your-content-learn-how-to-make-captivating-youtube-shorts/"><u>[Updated] In 2024, Step Up Your Content  Learn How to Make Captivating YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-investigating-spotlighted-comments-online-for-2024/"><u>[Updated] Investigating Spotlighted Comments Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-is-rapid-subscription-truly-effective-for-youtube-users-in-2024/"><u>[Updated] Is Rapid Subscription Truly Effective for YouTube Users, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximize-youtube-traffic-top-viewing-times-for-2024/"><u>[Updated] Maximize YouTube Traffic  Top Viewing Times for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-premier-producer-a-choreography-of-colors-and-tones/"><u>[Updated] Premier Producer  A Choreography of Colors & Tones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-validating-your-online-identity-on-youtube-for-2024/"><u>[Updated] Step by Step  Validating Your Online Identity on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-storyline-secret-to-youtube-triumph/"><u>[Updated] The Storyline Secret to YouTube Triumph</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-the-role-of-emotions-in-executive-choices-a-neuroscientific-perspective-for-2024/"><u>[Updated] Unveiling the Role of Emotions in Executive Choices  A Neuroscientific Perspective for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-whats-the-best-voice-changer-for-youtubers-for-2024/"><u>[Updated] What’s the Best Voice Changer for YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>2024 Approved  Break Free From The Norms  Crafting Your Own Streamer Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-essential-video-stock-investment-guides/"><u>2024 Approved  Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-simple-steps-for-extracting-video-audio-as-mp3/"><u>2024 Approved  Simple Steps for Extracting Video Audio as MP3</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/cross-device-iptv-broadcasting/"><u>Cross-Device IPTV Broadcasting</u></a></li>
+<li><a href="https://video-capture.techidaily.com/easy-to-follow-guide-recording-non-root-android-sounds/"><u>Easy-to-Follow Guide  Recording Non-Root Android Sounds</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effective-techniques-to-overcome-microsofts-acpi-compliant-battery-driver-challenges/"><u>Effective Techniques to Overcome Microsoft’s ACPI-Compliant Battery Driver Challenges</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722967733549-free-logitech-g602-mouse-drivers-for-windows-pcs-download-now/"><u>Free Logitech G602 Mouse Drivers for Windows PCs - Download Now!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/dull-scenes-to-dynamic-sports-highlights-for-2024/"><u>From Dull Scenes to Dynamic Sports Highlights for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-f14-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy F14 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dissecting-digital-dynamics-comparative-channel-analysis/"><u>In 2024, Dissecting Digital Dynamics  Comparative Channel Analysis</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-expert-techniques-for-smooth-screen-casting/"><u>In 2024, Expert Techniques for Smooth Screen Casting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-from-passive-to-active-a-3-step-framework-to-evaluate-your-youtube-financials/"><u>In 2024, From Passive to Active  A 3-Step Framework to Evaluate Your YouTube Financials</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-xr-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone XR when Phone is Broken?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-earning-potential-with-youtube-shorts-crucial-elements-possible-returns/"><u>In 2024, Unlocking Earning Potential with Youtube Shorts  Crucial Elements, Possible Returns</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-xiaomi-redmi-note-12-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Xiaomi Redmi Note 12 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egies-for-selective-success-in-the-youtube-realm/"><u>Strategies for Selective Success in the YouTube Realm</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-channels-growth-optimizing-viewership-with-collaborative-videos/"><u>Swift Channels Growth  Optimizing Viewership with Collaborative Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-t2-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo T2 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/upgrade-your-channels-visual-appeal/"><u>Upgrade Your Channel's Visual Appeal</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/comprehensible-guide-to-economical-webinars-on-youtube/"><u>Your Comprehensible Guide to Economical Webinars on YouTube</u></a></li>
+</ul></div>
