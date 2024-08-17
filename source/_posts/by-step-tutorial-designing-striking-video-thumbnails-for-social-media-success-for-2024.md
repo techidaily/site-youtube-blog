@@ -1,0 +1,163 @@
+---
+title: "\"Step-by-Step Tutorial  Designing Striking Video Thumbnails for Social Media Success for 2024\""
+date: 2024-08-16T05:50:57.191Z
+updated: 2024-08-17T05:50:57.191Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Step-by-Step Tutorial: Designing Striking Video Thumbnails for Social Media Success for 2024\""
+excerpt: "\"This Article Describes Step-by-Step Tutorial: Designing Striking Video Thumbnails for Social Media Success for 2024\""
+keywords: "Social Media Thumbnails,Video Thumbnail Design,Effective Video Titles,Engaging Thumbnail Tutorials,Thumbnail Marketing Strategies,Maximizing Video Visibility,Enhance Video Perception"
+thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf0188fbbf3a215fd35680a08.JPG
+---
+
+## Step-by-Step Tutorial: Designing Striking Video Thumbnails for Social Media Success
+
+# How to Make Video Thumbnails for YouTube
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-achieving-excellent-illumination-on-youtube-videos/"><u>[New] 2024 Approved  Achieving Excellent Illumination on YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-conserve-space-not-time-youtube-video-length-adjustment/"><u>[New] 2024 Approved  Conserve Space, Not Time  YouTube Video Length Adjustment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/asy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[New] Easy Transition From Local to Global  Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximize-engagement-the-ultimate-list-of-youtube-growth-tactics/"><u>[New] In 2024, Maximize Engagement  The Ultimate List of YouTube Growth Tactics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-step-wise-technique-turn-video-upside-down-in-vlc-media-player/"><u>[New] In 2024, Step-Wise Technique  Turn Video Upside Down in VLC Media Player</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-selecting-from-the-top-9-free-youtube-tools/"><u>[New] In 2024, The Ultimate Guide to Selecting From the Top 9 FREE YouTube Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-understanding-youtubes-privacy-options-for-viewers/"><u>[New] In 2024, Understanding YouTube's Privacy Options for Viewers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ayered-comfort-selecting-snug-winter-themes-for-filming/"><u>[New] Layered Comfort  Selecting Snug Winter Themes for Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/earn-to-add-youtube-videos-for-richer-google-slate-decks-for-2024/"><u>[New] Learn to Add YouTube Videos for Richer Google Slate Decks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/isky-business-buying-non-real-youtube-supporters/"><u>[New] Risky Business  Buying Non-Real YouTube Supporters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hats-your-payout-per-view-on-sponsored-content-in-youtube/"><u>[New] What's Your Payout Per View on Sponsored Content in Youtube?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-your-free-guide-to-android-device-screenshots/"><u>[New] Your FREE Guide to Android Device Screenshots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unveiling-30-preferred-steadicam-models-for-high-quality-dslr-projects/"><u>[Updated] 2024 Approved  Unveiling 30 Preferred Steadicam Models for High-Quality DSLR Projects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-achieving-financial-freedom-joshis-youtube-tactics-for-2024/"><u>[Updated] Achieving Financial Freedom  Joshi’s YouTube Tactics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[Updated] In 2024, Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-leveraging-seo-in-youtube-a-title-and-tags-guidebook/"><u>[Updated] In 2024, Leveraging SEO in Youtube  A Title & Tags Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] In 2024, Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-uncover-the-most-stellar-yt-gamers-intros-no-cost-high-quality/"><u>[Updated] In 2024, Uncover the Most Stellar YT Gamers' Intros  No Cost, High Quality?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-millions-watch-but-how-much-do-they-earn-for-2024/"><u>[Updated] Millions Watch, But How Much Do They Earn for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-professional-pilots-guide-to-best-5-drones/"><u>[Updated] Professional Pilot’s Guide to Best 5 Drones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-tips-for-discarding-unwanted-youtube-files/"><u>[Updated] The Essential Tips for Discarding Unwanted YouTube Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-transition-to-non-stop-browsing-set-up-youtube-autoplay-on-fb/"><u>[Updated] Transition to Non-Stop Browsing  Set Up YouTube Autoplay on FB</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/exploring-vimeo-digital-content-hub/"><u>Exploring Vimeo  Digital Content Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hands-on-exploration-of-the-revolutionary-iphone-15-pro-from-apple-inc/"><u>Hands-On Exploration of the Revolutionary iPhone 15 Pro From Apple Inc.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-influencer-tip-crafting-irresistible-templated-content-in-youtube-descriptions/"><u>In 2024, Influencer Tip  Crafting Irresistible Templated Content in YouTube Descriptions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-xiaomi-civi-3-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Xiaomi Civi 3 FRP Without Computer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-transforming-skincare-secrets-into-social-stardom/"><u>In 2024, Transforming Skincare Secrets Into Social Stardom</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aging-youtubes-ecosystem-for-financial-gain-for-2024/"><u>Leveraging YouTube's Ecosystem for Financial Gain for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-google-pixel-8-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Google Pixel 8 has been deleted.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tips-swiftly-sending-videos-as-shorts-on-digital-platforms/"><u>Tech Tips  Swiftly Sending Videos as Shorts on Digital Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-channel-finale-strategy-plus-best-templates-and-makers/"><u>The Ultimate Channel Finale Strategy + Best Templates & Makers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unraveling-freeze-frames-in-photobooth-recordings-for-2024/"><u>Unraveling Freeze Frames in Photobooth Recordings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/visionary-dialogue-writer/"><u>Visionary Dialogue Writer</u></a></li>
+</ul></div>
