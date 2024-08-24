@@ -1,0 +1,194 @@
+---
+title: "\"[New] Daily Deeds for Digital Diaries  Tips on Virtual Journeys\""
+date: 2024-08-23T09:30:05.909Z
+updated: 2024-08-24T09:30:05.909Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] Daily Deeds for Digital Diaries: Tips on Virtual Journeys\""
+excerpt: "\"This Article Describes [New] Daily Deeds for Digital Diaries: Tips on Virtual Journeys\""
+keywords: "Daily Deeds Guide,Digital Diary Planning,Virtual Travel Advice,Online Journaling Hacks,Diary Enhancement Tips,Journey Tracking Strategies,Digital Chronicle Management"
+thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163bbbccbbc666c03d517f249c.jpg
+---
+
+## Daily Deeds for Digital Diaries: Tips on Virtual Journeys
+
+# The Dos and Don'ts of Daily Vlogging
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+If you are making videos on YouTube, you’ll have come to a point where you feel daring enough to take on the ultimate challenge: daily vlogging.
+
+You might have been inspired by other creators on YouTube or you might have heard of VEDA: Vlog every day April (or August). You might have also watched some videos from influencers telling you that the ruthless YouTube algorithm demands daily content if you aspire to grow an audience.
+
+There are many reasons why you may want to try your hand at becoming a daily vlogger, but here are 3 motivating reasons to [conquer your vlogging fears](https://tools.techidaily.com/wondershare/filmora/download/) and get started.
+
+## Bonus Tip-The Best Daily Vlog Maker- Wondershare Filmora
+
+Vlogging is an art and people use vlogging to upload videos daily to their YouTube channel. This is natural if you are recording videos daily, you will need a tool like Wondershare Filmora to edit your videos with precision. To make your task easy, Wondershare Filmora has all the features and effects that are required to edit a daily vlog video that you can upload directly from Filmora itself. You can make use of features like add text, background music, filters & effects, etc if you are a daily vlogger as it would help you a lot in making the video look professional in less time.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Why Daily Vlog Anyways?**
+
+ **Build discipline**: Like exercising and eating healthy, you have to commit to it and do it regularly in order to see any lasting results. Vlogging is the same. However, if you’re a creator, making videos whenever you feel like it and want to give yourself a kick in the behind, daily vlogging is a practice that will keep you accountable. You have to do it every day. No excuses.
+
+**Practice more**: How do the best become the best? They practice… every day. If what you want to do is become the greatest video creator you can be, make the best videos you can make, and build the largest following that you can, then let daily vlogging be your boot camp to reach those goals.
+
+**Please the YouTube algorithm**: It’s true, YouTube wants to see that you are consistently posting fresh content. Every new video you upload will have a day or two to impress the algorithm, this metric is often referred to as [view velocity](https://youtu.be/Kj7L%5FfXhifw). YouTube will give your video a lift, suggesting it to new viewers, if they see that it is being enjoyed. By publishing daily, you increase your chances of attracting more viewers.
+
+Now that you know the benefits, how should you approach it?
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+## **The Dos and Don’ts of Daily Vlogging**
+
+#### **1\. Do Get Some Experience First**
+
+If you are starting out on YouTube, as in, you made one or two videos make sure you can vlog weekly for a few months before moving to daily. You wouldn’t run a marathon without training; you can hurt yourself if you do. Have an idea of what you are getting yourself into, otherwise, it can burn you out and ruin the joy of video creation for you completely.
+
+#### **2\. Don’t Film Everything**
+
+Having a daily vlog does not mean always having the camera on. Every minute you film is a minute of footage you will have to watch later, a minute you will have to decide whether to cut from your final video. Every second of recorded footage is multiplied in the editing room and it would be impossible for you to meet your daily deadline if you have too much. The key is to start editing as you film, that way, you only film what you need. It doesn’t hurt to have extra footage, but being excessive can waste your time and add little to the final product.
+
+#### **3\. Do Plan Out Your Day (Not Your Night)**
+
+Knowing where you need to go, who you are going to see and talk to, where you are going to have lunch, which route you are going to take home, and any other occurrences that can happen during the day will greatly increase your chances of success. A day is long and can be made longer when you have a video on your mind. Wouldn’t it be nice to save some of your decision making energy by having it all planned out? And if you are worried that over planning will reduce serendipitous moments that you want, don’t, your day won’t always go as planned… that’s just life.
+
+Additionally, avoid filming at night. It will become a major stress to your health. Filming at night means pulling all-nighters to publish the next day, and then repeating that daily (nightly).
+
+#### **4\. Don’t Spend too Long On a Script… Or Your Video**
+
+The beauty of daily vlog is to speak your mind and show your personality, not to perform a Shakespearean sonnet by heart. You shouldn’t try to memorize a whole script every day. That would be brutal! What you can have is an outline of the key points you want to hit, certain things you want to say, convey, or record to tell your story, knowing where you want certain cuts to happen helps too, but don’t workshop it too long, because tomorrow will be another show and done is better than perfect.
+
+#### **5\. Do Use Templates, Presets, Hotkeys, and Shortcuts**
+
+Any chance you have to cut down on your editing time, use it. This means creating and properly storing templates of visuals you want to incorporate into your video. This means adding presets for effects that you feel you would use again. This means learning the editing hotkeys so you can streamline your process. Here are [Filmora’s hotkeys](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### **6\. Don’t Forget to Label Your Content**
+
+Staying organized is so important, especially as you begin to accumulate more and more footage. It might seem tedious initially, but this good habit can save you a lot of wasted hours later on when you need to find that specific shot that you swore you had…
+
+#### **7\. Do Have A Goal**
+
+Have an idea of how long you are going to be going daily. Will it be one month, two months, or a year? Or will it be until you reach a certain amount of views, subscribers, or watch time? While it might feel liberating to venture into the great unknown without a clear destination, having a goal will allow you to keep motivated even when times are hard. After all, once you’ve hit your goal and still feel like there is more fuel in you, keep daily vlogging. There is no better feeling than exceeding your own expectations.
+
+#### **8\. Don’t Worry About Equipment (But Be Aware of Bad Audio)**
+
+You’ve heard it before: you don’t need anything fancy to be a vlogger. If you are looking to increase your toolbox, we have a helpful [YouTube gear starter guide](https://tools.techidaily.com/wondershare/filmora/download/) for you. But look at it this way, there will be days when you realized that you forgot to charge the battery on your camera or that you left your tripod at home. Don’t abandon the whole project simply because you don’t have what you need.
+
+The important thing is to film, tell a story, edit, and upload. You can do all that on your smartphone or computer webcam if you have to, so don’t let your equipment or lack thereof break your streak. If there is one thing you should put attention on is audio, if you don’t have excellent gear, try to avoid filming in loud places, such as construction sites, dance halls, or highway overpasses.
+
+#### **9\. Do Bring a Camera With You Everywhere**
+
+Although you shouldn’t worry about your equipment, it is still a good habit to carry your camera with you everywhere. From the moment you wake up to the moment you go to sleep you are a daily vlogger, you never know when something will happen. Always be prepared. Your camera is to you, as a gun is to a soldier. It’s what sets you apart from all the civilians, so keep it close at hand.
+
+#### **10\. Don’t Neglect Your Health**
+
+Earlier I compared daily vlogging to running a marathon, and like a marathon, there is a point where you need to be aware of yourself. You want to push yourself, but you don’t want to overdo it to a point where you damage your physical or mental health. Only you know when you have gone too far. If you feel like daily vlogging is ruining your life and the goal you set for yourself isn’t something you desire anymore, ask yourself: can I take a week off and decide if video creating is something I want to continue?
+
+#### **11\. Do Watch Other Daily Vloggers**
+
+By seeing how other YouTubers have done daily vlogs, you can get ideas, see what aspect of their videos you like or dislike, and learn from their presentation, content, and community engagement. By watching daily vloggers, you can also start interacting with their content as well. It is always easier to stay motivated when you have support. By watching and reaching out to the daily vloggers you enjoy, you can build a network of people who are going through the same journey as you.
+
+#### **12\. Don’t Forget About Your Audience**
+
+Remember that in the end, you are creating videos for someone else to enjoy. Even though you might be doing the daily vlog for yourself, if you want your viewers to return every day, you have to have an overall mission for your project. Is your message one that is aimed to motivate or do you want to document a journey? Don’t create your content in a vacuum, ask your viewers for feedback so you know how to improve.
+  
+Embarking on your daily vlogging adventure is not one to take lightly, but after 1 month, 1 season, or 1 year, you will be able to look back and see all that you have accomplished and feel proud. With the advice from this article, you can properly prepare yourself and enjoy each step of the process. Don’t overthink it, have fun!
+
+_Are you thinking of starting your daily vlog? Let us know what’s stopping you from the comments._
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/esthetic-alignment-for-online-glamour-content-for-2024/"><u>[New] Aesthetic Alignment for Online Glamour Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/utting-edge-excellence-top-editors-for-videos/"><u>[New] Cutting Edge Excellence  Top Editors for Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ilmoras-recipe-for-captivating-youtube-trailers-for-2024/"><u>[New] Filmora’s Recipe for Captivating YouTube Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-best-gif-creation-tools-reviewed-by-industry-vets/"><u>[New] In 2024, Best GIF Creation Tools Reviewed by Industry Vets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-kazam-screen-recorder-features-guide-review/"><u>[New] In 2024, Kazam Screen Recorder Features| Guide| Review</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-thumbnail-design-tips-and-pitfalls/"><u>[New] In 2024, Mastering the Art of Thumbnail Design  Tips and Pitfalls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-10-best-youtube-music-rippers-for-android-and-ios/"><u>[New] In 2024, The 10 Best YouTube Music Rippers for Android and iOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel/"><u>[New] In 2024, The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-the-art-of-aspect-ratios-on-youtube-videosshortsads-for-2024/"><u>[New] Mastering the Art of Aspect Ratios on YouTube Videos/Shorts/Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-crafting-engaging-youtube-screen-closures/"><u>[New] Mastering the Art of Crafting Engaging YouTube Screen Closures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-the-world-of-instagram-story-highlights/"><u>[New] Navigating the World of Instagram Story Highlights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/erfect-your-video-dimensions-on-youtube-for-max-impact/"><u>[New] Perfect Your Video Dimensions on YouTube for Max Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ising-stars-in-streaming-global-youtubes-subs-pantheon-for-2024/"><u>[New] Rising Stars in Streaming  Global YouTube's Subs Pantheon for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/trategies-for-skyrocketing-your-youtube-view-count/"><u>[New] Strategies for Skyrocketing Your YouTube View Count</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ynthesizing-waterway-content-with-impact-for-2024/"><u>[New] Synthesizing Waterway Content with Impact for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ideo-creation-for-all-ages-crafting-your-first-10-youtube-videos/"><u>[New] Video Creation for All Ages  Crafting Your First 10 YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-vidmessenger-extractor-plus/"><u>[New] VidMessenger Extractor Plus</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-12-best-sites-for-downloading-yt-template-videos-for-2024/"><u>[Updated] 12 Best Sites for Downloading YT Template Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-snip-youtube-videos-effortlessly/"><u>[Updated] 2024 Approved  How to Snip YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-leading-websites-for-extracting-youtube-intros/"><u>[Updated] 2024 Approved  Leading Websites for Extracting YouTube Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-navigating-copyright-challenges-on-youtube-shorts/"><u>[Updated] 2024 Approved  Navigating Copyright Challenges on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-collaboration-guide-to-find-partners-and-make-collab-videos/"><u>[Updated] 2024 Approved  YouTube Collaboration Guide to Find Partners and Make Collab Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-from-favorites-to-featured-the-journey-to-a-unique-youtube-list-for-2024/"><u>[Updated] From Favorites to Featured  The Journey to a Unique YouTube List for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-enhance-youtube-livestreams-webcam-selection-mastery/"><u>[Updated] In 2024, Enhance YouTube Livestreams  Webcam Selection Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-epic-playlist-over-a-hundred-top-tier-titles/"><u>[Updated] In 2024, Epic Playlist  Over a Hundred Top-Tier Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-talking-heads-visual-techniques-to-engage-audiences/"><u>[Updated] In 2024, Talking Heads  Visual Techniques to Engage Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[Updated] In 2024, Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-investors-guide-to-best-financial-youtube-sources/"><u>[Updated] Investors' Guide to Best Financial YouTube Sources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-making-youtube-audio-mp3s-easily-for-your-mac-for-2024/"><u>[Updated] Making YouTube Audio MP3s Easily for Your Mac for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-market-masters-essential-stock-youtube-series/"><u>[Updated] Market Masters  Essential Stock YouTube Series</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-skyrocket-engagement-with-youtubes-powerful-featured-channels-strategy-for-2024/"><u>[Updated] Skyrocket Engagement with Youtube’s Powerful Featured Channels Strategy for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-up-your-visual-effects-game-with-free-lessons-from-4-innovative-youtube-channels-for-2024/"><u>[Updated] Step Up Your Visual Effects Game with Free Lessons From 4 Innovative YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-targeted-success-identifying-youtube-niche-demand-for-2024/"><u>[Updated] Targeted Success  Identifying YouTube Niche Demand for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-skincare-secrets-into-social-stardom-for-2024/"><u>[Updated] Transforming Skincare Secrets Into Social Stardom for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ultimate-guide-7-prime-free-video-tag-extractors/"><u>[Updated] Ultimate Guide  7 Prime Free Video Tag Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs-for-2024/"><u>[Updated] Unlocking the Potential of YouTube Partnerships  Tips for Successful Collabs for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-upgrade-your-experience-10-high-performance-drives/"><u>[Updated] Upgrade Your Experience  #10 High-Performance Drives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-discovering-clarity-in-your-craft-our-choice-of-top-12-vlogging-cameras/"><u>2024 Approved  Discovering Clarity in Your Craft  Our Choice of Top 12 Vlogging Cameras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-enhancing-viewer-engagement-with-smart-end-screen-techniques/"><u>2024 Approved  Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-paving-the-way-to-youtube-stardom-through-effective-seo-keywords/"><u>2024 Approved  Paving the Way to YouTube Stardom Through Effective SEO Keywords</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/changing-the-preloaded-browser-how-to-access-alternate-browsers-on-samsung-televisions/"><u>Changing the Preloaded Browser: How to Access Alternate Browsers on Samsung Televisions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-lava-yuva-3-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Lava Yuva 3 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tune-treasure-hunt-finding-the-perfect-audio/"><u>In 2024, Tune Treasure Hunt  Finding the Perfect Audio</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-clearer-visuals-with-iphone-video-focus/"><u>In 2024, Unlock Clearer Visuals with iPhone Video Focus</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-secrets-of-fisheye-imaging/"><u>In 2024, Unveiling the Secrets of Fisheye Imaging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-media-memorable-ends/"><u>Mapping Media Memorable Ends</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastery-of-close-up-engagement-on-the-web-for-2024/"><u>Mastery of Close-Up Engagement on the Web for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ize-reach-the-top-ten-keywords-discovery-platforms-for-youtubers-for-2024/"><u>Maximize Reach  The Top Ten Keywords Discovery Platforms for YouTubers for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-editing-on-the-go-gopro-quik-review-and-pc-alternatives/"><u>New Editing on the Go GoPro Quik Review and PC Alternatives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nt-these-8-key-mishaps-on-your-youtube-journey/"><u>Prevent These 8 Key Mishaps on Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/blazer-in-multimedia-craftsmanship/"><u>Trailblazer in Multimedia Craftsmanship</u></a></li>
+</ul></div>
