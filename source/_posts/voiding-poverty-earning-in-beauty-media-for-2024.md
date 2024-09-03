@@ -1,0 +1,143 @@
+---
+title: "\"[New] Avoiding Poverty  Earning in Beauty Media for 2024\""
+date: 2024-09-02T07:30:27.752Z
+updated: 2024-09-03T07:30:27.752Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] Avoiding Poverty: Earning in Beauty Media for 2024\""
+excerpt: "\"This Article Describes [New] Avoiding Poverty: Earning in Beauty Media for 2024\""
+keywords: "Beauty Media Income,Media Job Opportunities,Skin Care Earnings,Makeup Artist Work,Cosmetology Professionals,Beauty Industry Salary,Aesthetics Career Paths"
+thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea60d5a674997e4383f15e6a2.jpg
+---
+
+## Avoiding Poverty: Earning in Beauty Media
+
+# How to Make Money with a Beauty Channel?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+There are a lot of ways you can make money by posting makeup, beauty, or fashion videos on YouTube. These are all industries that understand the value of quality social media content.
+
+ In the video above, [beauty YouTuber](https://tools.techidaily.com/wondershare/filmora/download/) Gena M explains all the ways there are to make money posting makeup and fashion videos on YouTube. Gena’s most important piece of advice for other beauty vloggers is, to be honest. There is nothing wrong with making money from affiliates or sponsors, so long as you only associate with and recommend products you would actually buy.
+
+Here’s more advice on how you can make money from your makeup videos:
+
+## Sponsorships
+
+If you are truly passionate about makeup or fashion then you probably have a few favorite brands. Even if you have never really thought about a brand as your favorite, chances are you purchase one or two types of lip gloss – or any other product – over others on a regular basis.
+
+Wouldn’t it be nice if a company whose product you already love and use in your videos would start paying you just to mention them?
+
+There are sites called influencer marketing platforms – the most popular one is FameBit – where you can find brands that are looking for creators just like you to work with them on marketing campaigns. Brands post what they are looking for, and you send them proposals for what kinds of videos you want to make for them.
+
+Sometimes, creating branded content can be as easy as drawing attention to the brand of the eyeliner you use in a few of your tutorials.
+
+Other times, brands may want you to say specific things or include logos in your videos.
+
+Make sure to incorporate any brand messages or product placement you agree to do in ways that will feel natural to your viewers. You should let them know that you have a sponsor, and then incorporate the branded content in ways that do not take away from their enjoyment of your videos.
+
+## Ad Revenue
+
+Monetizing your videos and earning ad revenue is one of the primary ways beauty vloggers, and all other YouTubers, make money. It takes a long time to earn more than the pocket change from ads, but so long as you keep growing your audience your revenue will keep going up.
+
+Pay attention to the estimated revenue reports to see which of your videos are earning the most money from ads (they won’t always be your most popular videos). By making more videos on similar topics you will be able to make more money.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+## Affiliate Links
+
+By becoming an Amazon affiliate, or joining the affiliate program of another online store, you can make money by including links to products in the descriptions of your video or in your related blog posts.
+
+For example, if you talk about your new curling iron in a hair tutorial then you can include a special link to it on Amazon. If any of your viewers follow that link and buy it, you earn a percentage of the purchase.
+
+Even better – if that person keeps shopping, or even skips the curling iron and buys something else, you earn a percentage of any purchase they make on Amazon for a certain period of time.
+
+Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## Gifts
+
+Sometimes companies might just give you stuff.
+
+As your following gets bigger, brands might start sending you samples of their products in the hopes that you will fall in love with them and mention, review, or use them in your videos. This is not the same as a sponsorship because the brand is not paying you for a specific kind of message.
+
+Receiving these kinds of gifts is not the same as getting paid, but it can certainly save you money on makeup.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unleash-popularity-potential-climb-a-million-followers-by-months-end/"><u>[New] 2024 Approved  Unleash Popularity Potential  Climb a Million Followers by Month's End</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/fficient-tricks-to-scramble-youtube-playlists-pcphonetv/"><u>[New] Efficient Tricks to Scramble YouTube Playlists (PC/Phone/TV)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ffortless-webm-creation-10-best-youtube-video-transformers/"><u>[New] Effortless WebM Creation  10 Best YouTube Video Transformers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/alt-autoplay-youtube-recommendations/"><u>[New] Halt Autoplay YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-art-and-science-behind-effective-youtube-shorts-templates/"><u>[New] In 2024, The Art & Science Behind Effective YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transforming-your-favorite-tunes-the-best-spotify-playlists-tools-for-youtube/"><u>[New] In 2024, Transforming Your Favorite Tunes  The Best Spotify Playlists Tools for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-your-creations-uploading-imovie-videos-to-youtube/"><u>[New] Maximizing Your Creations  Uploading IMovie Videos to YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-best-of-the-best-crafting-a-top-5-racing-game-selection/"><u>[New] The Best of the Best  Crafting a Top 5 Racing Game Selection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-pc-video-magic-discovering-apowersofts-recorder/"><u>[Updated] 2024 Approved  PC Video Magic  Discovering Apowersoft’s Recorder</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-surprisingly-good-underrated-movie-hits/"><u>[Updated] 2024 Approved  Surprisingly Good  Underrated Movie Hits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-equitable-technology-review-by-inclusive-gurus/"><u>[Updated] Equitable Technology Review by Inclusive Gurus</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-8-youtube-ranks-expertly-navigating-with-key-tools/"><u>[Updated] In 2024, Top 8 YouTube Ranks  Expertly Navigating with Key Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-your-pathway-to-professional-looking-animated-gifs-online/"><u>[Updated] In 2024, Your Pathway to Professional-Looking Animated GIFs Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-alternatives-round-up-top-3-contenders/"><u>[Updated] In 2024, YouTube Alternatives Round-Up  Top 3 Contenders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-keep-watching-youtube-in-the-background-with-ease/"><u>[Updated] Keep Watching YouTube in the Background with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-positive-persuasion-the-secret-to-attracting-followers-for-2024/"><u>[Updated] Positive Persuasion  The Secret to Attracting Followers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prime-picks-of-youtubes-snackable-shorter-videos-free-for-2024/"><u>[Updated] Prime Picks of YouTube's Snackable Shorter Videos (FREE) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-guide-to-assembling-youtube-music-collections-onlineapp-wise/"><u>[Updated] The Complete Guide to Assembling YouTube Music Collections Online/App-Wise</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-audience-favorites-3-powerful-tales/"><u>[Updated] Unlock Audience Favorites  3 Powerful Tales</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-reliable-methods-to-elevate-your-youtube-presence-without-breaking-trust/"><u>2024 Approved  Reliable Methods to Elevate Your YouTube Presence Without Breaking Trust</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-legal-limits-of-capturing-youtube-video-footage/"><u>2024 Approved  The Legal Limits of Capturing YouTube Video Footage</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/perts-blueprint-for-calculating-your-videos-impact-and-income-for-2024/"><u>An Expert's Blueprint for Calculating Your Video's Impact & Income for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/diablo-4-stability-guide-top-7-troubleshooting-tips-for-pc-ps5-and-xbox-users/"><u>Diablo 4 Stability Guide: Top 7 Troubleshooting Tips for PC, PS5, and Xbox Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/youtube-end-screen-templates-plushow-tos/"><u>Free YouTube End Screen Templates [+How-Tos]</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2022-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2022) to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-4-time-saving-ways-to-perfect-loops-in-your-instagram-videos/"><u>In 2024, 4 Time-Saving Ways to Perfect Loops in Your Instagram Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-audio-dialogue-recorder/"><u>In 2024, Audio Dialogue Recorder</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ultimate-guide-to-youtube-thumbnail-creation-on-mac/"><u>In 2024, Ultimate Guide to YouTube Thumbnail Creation on Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-visual-narratives-instagram-carousel/"><u>In 2024, Visual Narratives  Instagram Carousel</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/next-level-entertainment-the-rise-of-vr-applications/"><u>Next-Level Entertainment  The Rise of VR Applications</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-and-save-how-to-edit-youtube-videos-quickly-for-2024/"><u>Slash and Save  How to Edit YouTube Videos Quickly for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-linking-your-laptop-and-tv-using-an-hdmi-cable/"><u>Step-by-Step Guide: Linking Your Laptop and TV Using an HDMI Cable</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-techniques-with-youtube-a-practical-approach/"><u>Teaching Techniques with YouTube  A Practical Approach</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-complete-guide-to-saving-live-periscope-broadcasts/"><u>The Complete Guide to Saving Live Periscope Broadcasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ant-thumbnails-made-professionally-without-delay-for-2024/"><u>Valorant Thumbnails Made Professionally, Without Delay for 2024</u></a></li>
+</ul></div>
