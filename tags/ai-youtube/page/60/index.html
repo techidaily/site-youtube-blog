@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -248,7 +305,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"youtube-blog.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -591,7 +648,7 @@
         <div class="label text-third-text-color text-sm">Categories</div>
     </div>
     <div class="item tag-count-item flex flex-col justify-center items-center w-20">
-        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">10041</div>
+        <div class="number text-2xl sm:text-xl text-second-text-color font-semibold">10618</div>
         <div class="label text-third-text-color text-sm">Posts</div>
     </div>
 </div>
@@ -629,74 +686,74 @@
               
                 
                     
-                    <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='09-02'>
+                    <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='09-06'>
                 
                     
-                        <a href="/ed-the-frequency-of-monetization-on-youtube-for-2024/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">[Updated] The Frequency of Monetization on YouTube for 2024</span>
+                        <a href="/n-2024-the-essential-youtube-beauty-guides-you-cant-miss/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[New] In 2024, The Essential YouTube Beauty Guides You Can&#39;t Miss</span>
                         </a>
                     
               
                 
                     
-                        <a href="/ng-into-youtube-interactive-threads-for-2024/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Peering Into YouTube Interactive Threads for 2024</span>
+                        <a href="/n-2024-steering-clear-of-the-8-most-frequent-pitfalls-for-first-time-youtubers/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[New] In 2024, Steering Clear of the 8 Most Frequent Pitfalls for First-Time YouTubers</span>
                         </a>
                     
               
                 
                     
-                        <a href="/ed-academic-avenue-leading-educators-on-youtube/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">&#34;[Updated] Academic Avenue  Leading Educators on YouTube&#34;</span>
+                        <a href="/ed-top-tricks-in-sports-video-production-for-2024/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[Updated] Top Tricks in Sports Video Production for 2024</span>
                         </a>
                     
               
                 
                     
-                        <a href="/still-photos-to-dynamic-video-how-to-use-your-cellular-device/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">&#34;From Still Photos to Dynamic Video  How To Use Your Cellular Device&#34;</span>
+                        <a href="/ed-the-art-of-youtube-thumbnails-for-mac-professionals-for-2024/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[Updated] The Art of YouTube Thumbnails for Mac Professionals for 2024</span>
                         </a>
                     
               
                 
                     
-                        <a href="/ptimize-your-channels-an-introduction-to-youtube-statistics/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">&#34;[New] Optimize Your Channels  An Introduction to YouTube Statistics&#34;</span>
+                        <a href="/nvesting-successfully-with-a-makeup-channel/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[New] Investing Successfully with a Makeup Channel</span>
                         </a>
                     
               
                 
                     
-                        <a href="/24-leveraging-influencer-networks-for-video-game-success/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">In 2024, Leveraging Influencer Networks for Video Game Success</span>
+                        <a href="/ed-in-2024-rapid-expansion-youtube-channels-boosting-brainpower/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[Updated] In 2024, Rapid Expansion YouTube Channels Boosting Brainpower</span>
                         </a>
                     
               
                 
                     
-                        <a href="/ed-in-2024-achieving-youtube-apex-with-smart-management-tools/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">[Updated] In 2024, Achieving YouTube Apex with Smart Management Tools</span>
+                        <a href="/hering-how-to-spot-your-video-enthusiasts/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Deciphering How to Spot Your Video Enthusiasts</span>
                         </a>
                     
               
                 
                     
-                        <a href="/approved-master-your-first-impressions-best-free-intro-makers/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">&#34;2024 Approved  Master Your First Impressions  Best Free Intro Makers&#34;</span>
+                        <a href="/ed-mastering-video-edits-essential-mp4-tools-for-mac-users-for-2024/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[Updated] Mastering Video Edits Essential MP4 Tools for Mac Users for 2024</span>
                         </a>
                     
               
                 
                     
-                        <a href="/n-2024-secure-methods-for-youtube-to-mp4-conversion/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">&#34;[New] In 2024, Secure Methods for Youtube-to-MP4 Conversion&#34;</span>
+                        <a href="/ed-the-complete-manual-to-perfect-proportions-in-youtube-videosshortsads-for-2024/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[Updated] The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads for 2024</span>
                         </a>
                     
               
                 
                     
-                        <a href="/24-techniques-in-motivating-viewers-with-lifestyle-vlogs/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">In 2024, Techniques in Motivating Viewers with Lifestyle Vlogs</span>
+                        <a href="/earn-to-convert-youtube-videos-into-text-no-cost/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">[New] Learn to Convert YouTube Videos Into Text – No Cost</span>
                         </a>
                     
               
@@ -710,7 +767,7 @@
 
 <div class="tag-paginator">
 	<div class="paginator">
-    <a class="extend prev" rel="prev" href="/tags/ai-youtube/page/59/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/tags/ai-youtube/">1</a><span class="space">&hellip;</span><a class="page-number" href="/tags/ai-youtube/page/58/">58</a><a class="page-number" href="/tags/ai-youtube/page/59/">59</a><span class="page-number current">60</span><a class="page-number" href="/tags/ai-youtube/page/61/">61</a><a class="page-number" href="/tags/ai-youtube/page/62/">62</a><span class="space">&hellip;</span><a class="page-number" href="/tags/ai-youtube/page/1004/">1004</a><a class="extend next" rel="next" href="/tags/ai-youtube/page/61/"><i class="fa-regular fa-angle-right"></i></a>
+    <a class="extend prev" rel="prev" href="/tags/ai-youtube/page/59/"><i class="fa-regular fa-angle-left"></i></a><a class="page-number" href="/tags/ai-youtube/">1</a><span class="space">&hellip;</span><a class="page-number" href="/tags/ai-youtube/page/58/">58</a><a class="page-number" href="/tags/ai-youtube/page/59/">59</a><span class="page-number current">60</span><a class="page-number" href="/tags/ai-youtube/page/61/">61</a><a class="page-number" href="/tags/ai-youtube/page/62/">62</a><span class="space">&hellip;</span><a class="page-number" href="/tags/ai-youtube/page/1062/">1062</a><a class="extend next" rel="next" href="/tags/ai-youtube/page/61/"><i class="fa-regular fa-angle-right"></i></a>
 </div>
 
 </div>
