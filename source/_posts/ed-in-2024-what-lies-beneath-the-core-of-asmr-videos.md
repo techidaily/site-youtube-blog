@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, What Lies Beneath  The Core of ASMR Videos\""
-date: 2024-09-02T07:33:17.000Z
-updated: 2024-09-03T07:33:17.000Z
+date: 2024-09-06T17:27:53.190Z
+updated: 2024-09-07T17:27:53.190Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/cbf413290d1b7e29d9934e3ea1990c5dc72e7e77a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -28,6 +34,12 @@ Despite their recent popularity, ASMR videos are still surrounded by a cloud of 
 
 Moreover, the visual and audio content that is designed to trigger the ASMR is perceived as unusual which further contributes to the controversy associated with this genre of videos. You are at the right place if you would like to learn more about ASMR because in this article we are going to take you through all the things you need to know about ASMR.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do ASMR Videos Work?
 
 As strange as it may sound, millions of people around the globe are watching videos of someone whispering into a microphone, and apparently, it is helping them deal with stress, anxiety, and insomnia.
@@ -56,6 +68,12 @@ It is still unclear what can trigger an ASMR since scientific research in this f
 
 However, this phenomenon can be triggered by the following stimuli:
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Whispering or a Low Soft Voice
 
 This is by far the most common ASMR trigger. Speaking in a low soft voice will likely create a tingling and pleasant sensation that will ultimately relax the listener. Consequently, the vast majority of ASMR video hosts are whispering or speaking softly into the microphone.
@@ -64,10 +82,6 @@ This is by far the most common ASMR trigger. Speaking in a low soft voice will l
 
 The sounds created while turning the pages of a book, crumpling a piece of paper, or typing on a mechanical keyboard can all be potential ASMR triggers. It seems that the pleasant sensation is associated with the repetitiveness of these sounds, as they create a calming atmosphere.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 3\. Watching someone perform an everyday task
 
 Seeing someone draw, paint, chop up food, or even write on a piece of paper can trigger the ASMR. Some people find the visual aspect of these actions relaxing, which in turn helps them get rid of the stress and sleep better.
@@ -77,12 +91,21 @@ Seeing someone draw, paint, chop up food, or even write on a piece of paper can 
 Chewing food loudly or slurping can generate a tingling sensation at the top of your head that later spreads through the entire body.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 5\. Getting attention
 
 Although almost everyone likes receiving attention, some people have a strong ASMR reaction to being the center of someone’s attention.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Triggering the ASMR without the use of external factors
 
 Some people have the ability to trigger ASMR consciously without having to resort to audio or visual stimuli. However, this is quite rare as most members of the ASMR community rely on video and audio content to trigger the ASMR.
@@ -92,26 +115,35 @@ Some people have the ability to trigger ASMR consciously without having to resor
 Tapping on the surface of a microphone or the surface of plastic or metal objects is yet another common ASMR trigger. The reparative tapping sound initiates a pleasant sensation that relaxes a person.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 8\. A hand touching a face
 
 Tactile stimuli like a hand touching a face are known to be ASMR triggers. Besides touching a face, touching someone’s hand or hair can also trigger ASMR.
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. Hearing a particular genre of music
 
 People who love music often have a physical reaction to it. Hearing your favorite genre of music can produce the ASMR sensation.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Listening to someone exhale into a mic
 
 This ASMR trigger is frequently used in ASMR videos. Like all other audio ASMR triggers, blowing air into a microphone can help a person relax and fall asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Makes ASMR Videos So Popular?
 
 A little over a year ago there were more than 13 million ASMR videos on YouTube, which shows vividly how popular this genre of video has become. Moreover, the videos containing hosts and animals eating different types of food have amassed billions of views.
@@ -119,7 +151,10 @@ A little over a year ago there were more than 13 million ASMR videos on YouTube,
 The stressful lives we all lead, boredom, or simply the need to experience something different are the most common reasons why people watch ASMR videos. In addition, the viewers of these videos suggest that they help them deal with depression, anxiety, and other psychological problems. Over the course of the last decade, the ASMR videos have risen from obscurity to become one of the most popular genres of YouTube videos largely due to their uniqueness and their relaxing nature.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Where to Find ASMR videos?
 
@@ -138,7 +173,10 @@ Hopefully, this article has helped you develop a better understanding of ASMR. I
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 

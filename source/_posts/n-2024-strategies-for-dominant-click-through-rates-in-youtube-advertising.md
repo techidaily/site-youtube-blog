@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Strategies for Dominant Click-Through Rates in YouTube Advertising\""
-date: 2024-07-13T14:55:22.681Z
-updated: 2024-07-14T14:55:22.681Z
+date: 2024-09-06T17:19:57.608Z
+updated: 2024-09-07T17:19:57.608Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,12 @@ Channel art isn't hard. Making video viewers enjoy enough that they click on you
 4. [How to Make Good Channel Art](#tips)
 5. [Channel Art Inspiration](#inspiration)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **YouTube Banner Size and Other Basics**
 
 YouTube channel art should be 2560 x 1440px.
@@ -55,8 +61,26 @@ Here's a visual guide to channel art dimensions:
 
 ![channel-art-cheat-sheet](https://images.wondershare.com/filmora/channel-art-cheat-sheet.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Free YouTube Banner Templates and Other Resources**
 
 There are a lot of free resources online, which can make the process of designing your channel art simple, including [templates](#templates), [stock images](#photos), [backgrounds](#patterns), and [fonts](#fonts).
@@ -91,15 +115,24 @@ There are a lot of beautiful photographs available online, and sites like Stocks
 
 We recommend these two sites for anybody who finds copyright rules confusing because both of these sites allow you to use their photos for free, for any purpose (commercial or personal), without attribution (although they do appreciate attribution).
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![free-youtube-banner-unsplash](https://images.wondershare.com/filmora/free-youtube-banner-unsplash.jpg)
 
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
 ![free-youtube-banner-pexels](https://images.wondershare.com/filmora/free-youtube-banner-pexels.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [**Pexels:**](https://www.pexels.com/) you can find a wide variety of images on Pexels just by using the search bar on the main page, much like Unsplash. There is actually some overlap in the images available on the two sites, but they also each have photos the other doesn't, so it's worth looking at both.
 
 #### **Free Background Patterns for YouTube Banners**
@@ -112,6 +145,12 @@ The patterns on the following two sites are free to use.
 
 ![free-youtube-banner-the-pattern-library](https://images.wondershare.com/filmora/free-youtube-banner-the-pattern-library.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [**The Pattern Library:**](http://thepatternlibrary.com/) this truly is a library, and all the patterns were submitted by real graphic designers. When you first arrive on the site, all you'll see is a randomly selected pattern filling your entire screen. Hovering over the designer's name in the top left will allow you to download it for free.
 
 Often, the download will not be as large as the image you see on the site. It will only be a few tiles (or just one tile), and you will need to copy/paste it a few times to create a background large enough to use as channel art.
@@ -120,6 +159,12 @@ You can use the navigation tools in the top right of the screen to see more patt
 
 ![free-youtube-banner-hero-pattern](https://images.wondershare.com/filmora/free-youtube-banner-hero-pattern.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [**Hero Patterns:**](https://www.heropatterns.com/) the patterns on this site are editable before you download. You choose a foreground color, a background color, and the opacity of the design in the foreground. This means that you can make the pattern as subtle or vibrant as you want, which is a great thing to have control over when you're creating channel art.
 
 When you choose your custom colors and opacity, every pattern preview on the page will update. You can put in the colors you like for your channel first, and then find a pattern that looks good with them.
@@ -138,6 +183,18 @@ Whatever program you use to build your channel art will already have a selection
 
 Once you've got an image or images, and maybe even a font you want to use in your banner, you can create your channel art in either a software like Photoshop or a free banner maker (anchor) like the ones below.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Free Channel Art Makers**
 
 You don't need an expensive program like Adobe Photoshop to make great channel art. There is a lot of photo editing and graphic design programs available for free online, and most of them are a lot easier to use.
@@ -197,6 +254,12 @@ Here are some things you might want to include in your YouTube banner. Not all o
 5. Your face
 6. A tagline ![YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Top 5 Tips for Making Great YouTube Banners**
 
 Besides looking good, your channel art can help convince more of your viewers to become subscribers. Here are our top 5 tips for making channel art that looks impressive and supports the growth of your channel.
@@ -268,6 +331,12 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
 
 This example is light and airy, but you can also create a minimalist look using brighter or darker colors. It just depends on your personality.
@@ -300,6 +369,12 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -327,3 +402,42 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/eyond-tubes-the-ultimate-video-share-sites/"><u>[New] Beyond Tubes The Ultimate Video Share Sites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/xpert-director-sound-and-picture-synthesis/"><u>[New] Expert Director Sound & Picture Synthesis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iscal-horizons-exploring-mr-beasts-income/"><u>[New] Fiscal Horizons Exploring Mr. Beast's Income</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-skyrocket-to-your-youtube-audience-goal-1kplus/"><u>[New] In 2024, Skyrocket to Your YouTube Audience Goal 1K+</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-definitive-guide-to-film-gear-buying-tips/"><u>[New] In 2024, The Definitive Guide to Film Gear Buying Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-youtube-thumbnail-sizes/"><u>[New] In 2024, The Ultimate Guide to YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-10-tools-to-enhance-your-youtube-vocal-recordings/"><u>[New] In 2024, Top 10 Tools to Enhance Your YouTube Vocal Recordings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-ten-youtube-regulations-to-abide-by/"><u>[New] In 2024, Top Ten YouTube Regulations to Abide By</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-wholesome-wisdom-videographically-cooking-up-dishes/"><u>[New] In 2024, Wholesome Wisdom Videographically Cooking Up Dishes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-protocols-and-performance-macos-meets-mixer/"><u>[New] Protocols and Performance MacOS Meets Mixer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>[New] The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-power-of-persuasion-hire-success-stories-1-10/"><u>[New] The Power of Persuasion Hire Success Stories #1-10</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-10-apps-for-creating-spectacular-instagram-reels-for-2024/"><u>[New] Top 10 Apps for Creating Spectacular Instagram Reels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-strategies-to-leverage-youtubes-cc-licensing/"><u>[Updated] 2024 Approved Strategies to Leverage YouTube's CC Licensing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-practices-the-8-truly-effective-promotion-techniques-for-2024/"><u>[Updated] Best Practices The 8 Truly Effective Promotion Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-capture-your-best-side-tips-for-effective-talking-head-shots/"><u>[Updated] Capture Your Best Side Tips for Effective Talking-Head Shots</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-capturing-continuity-a-detailed-manual-for-screen-recordings-on-windows-pcs/"><u>[Updated] Capturing Continuity A Detailed Manual for Screen Recordings on Windows PCs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-static-to-sprightly-bouncing-text-animations/"><u>[Updated] In 2024, From Static to Sprightly Bouncing Text Animations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-redefine-small-screen-experience-explore-these-top-6-freely-available-youtube-shorts-downloader-tools/"><u>[Updated] Redefine Small Screen Experience Explore These Top 6 Freely Available YouTube Shorts Downloader Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-a-distinctive-youtube-channel-url/"><u>[Updated] Step-by-Step Guide to a Distinctive YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-counterplay-creative-ways-to-watch-youtube-in-reverse/"><u>[Updated] The Counterplay Creative Ways to Watch YouTube in Reverse</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-creative-potential-with-these-6-youtube-graphic-sources/"><u>[Updated] Unleashing Creative Potential with These 6 YouTube Graphic Sources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-views-youtube-thumbnail-dimension-strategies/"><u>[Updated] Unlocking Views YouTube Thumbnail Dimension Strategies</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-windows-11-gamers-guide-to-immaculate-game-recording-for-2024/"><u>[Updated] Windows 11 Gamers' Guide to Immaculate Game Recording for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-quick-launch-long-growth-the-10-best-youtube-business-channels/"><u>2024 Approved Quick Launch, Long Growth The 10 Best YouTube Business Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-three-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>2024 Approved Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/vating-crafting-writing-intriguing-youtube-descriptions-with-templates-for-2024/"><u>Captivating Crafting Writing Intriguing Youtube Descriptions with Templates for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/gpu-reveal-understanding-basic-display-adapter-bda/"><u>GPU Reveal: Understanding Basic Display Adapter (BDA)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-fix-msvcrtdll-not-found-or-missing-errors/"><u>How to Fix Msvcrt.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-copy-contacts-from-apple-iphone-se-2020-to-sim-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Copy Contacts from Apple iPhone SE (2020) to SIM? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/screen-saver-secured-step-by-step-for-switch-password-setup/"><u>Screen Saver Secured: Step-by-Step for Switch Password Setup</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/singing-alerts-crafting-and-configuring-customizable-sounds-and-ringtones-on-android-for-2024/"><u>Singing Alerts Crafting and Configuring Customizable Sounds & Ringtones on Android for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-5-emulated-game-boy-advance-games-a-comprehensive-guide-for-pc-users-for-2024/"><u>Top 5 Emulated Game Boy Advance Games - A Comprehensive Guide for PC Users for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/top-5-essentials-preparing-yourself-prior-to-purchasing-a-refurbished-ipad/"><u>Top 5 Essentials: Preparing Yourself Prior to Purchasing a Refurbished iPad</u></a></li>
+</ul></div>

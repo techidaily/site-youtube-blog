@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads for 2024"
-date: 2024-09-02T07:29:41.154Z
-updated: 2024-09-03T07:29:41.154Z
+date: 2024-09-06T17:27:57.179Z
+updated: 2024-09-07T17:27:57.179Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "YouTube Video Proportion Guide,Shortform Content Balance Tips,Ad Desi
 thumbnail: https://thmb.techidaily.com/96d4e4e3696a3d428399dbec4c54090942565cd5b197d0762ff7457e8ce649a0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads
 
 Yes, you are right. Social media is the platform that no one can refrain from in the current world of technology, news, events, and friends. One such platform gained so much popularity in the last few years. That is YouTube, a platform that is used worldwide for a multitude of purposes. Such as watching videos, uploading or sharing videos, tutorials, trends, series, coaching, serials, shorts videos, news, events, displaying ads, and lots more. No doubt, the list is endless.
@@ -58,6 +64,12 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
 
 ## Part 2 YouTube Shorts Aspect Ratio
@@ -66,6 +78,12 @@ The world is moving swiftly, and with day passing, people want to complete their
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
 **Aspect Ratio:** Vertical format standard ratio is 9:16 (That fill up the entire screen vertically)
@@ -76,18 +94,12 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Part 3 Aspect Ratios for YouTube Ads
 
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
 
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
 
 YouTube Video Aspect ratio and Proportions: 19:9 (640X360), 4:3 (480X360)
@@ -99,7 +111,10 @@ Sponsor Card Ads Ratio: 1:1
 True View Discovery Ads Ratio: 16:9 or 4:3
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4 Think More about YouTube Aspect Ratio
 
@@ -124,23 +139,43 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 **●** So guys, finally, I hope now you are pretty sure about what is YouTube video ratio, its importance while dealing with videos, shorts, or posting any ads to promote your business. YouTube file size is something that is changing its dimensions as per the user experience and needs. In the last few years, the user base shifted from TV, desktop to phone, laptops, and smart devices. As a result, the aspect ratio also gets changed with time. Thus, having a proper understanding of adjusting the width and height of YouTube Videos to bring the dynamic vision to the video will create a real difference. Also, using Wondershare Filmora will open the door of options to modify your YouTube file size and many editing options along with.

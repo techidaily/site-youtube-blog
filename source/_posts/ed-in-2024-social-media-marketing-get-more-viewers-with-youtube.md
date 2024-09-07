@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Social Media Marketing  Get More Viewers with YouTube\""
-date: 2024-09-02T07:35:54.149Z
-updated: 2024-09-03T07:35:54.149Z
+date: 2024-09-06T17:27:50.595Z
+updated: 2024-09-07T17:27:50.595Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "YouTube Traffic Boost,Social Media Growth,Video Marketing Strategies,
 thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d17bc893106f7883eb3c1b7e3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Social Media Marketing: Get More Viewers with YouTube
 
 # Get More Viewers with Social Media Marketing for YouTube
@@ -64,6 +70,12 @@ In this post, we will go through the best practices of sharing and engaging with
 
 ![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Instagram for YouTube Channel Marketing
 
 There is a lot of content today and therefore, audiences are more selective about how they choose to spend their time.
@@ -118,6 +130,18 @@ Here’s Liza Koshy’s Instagram feed. As you can see, she has a clear style an
 
 ![Instagram Feed sample](https://images.wondershare.com/filmora/article-images/instagram-feed-liza-koshy.jpg)_Instagram: Liza Koshy_
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This will be a good place to post a teaser of your latest video, upload an inspiring image, or share an interesting piece of content that shows the world what you are all about.
 
 Have a different type of content lined up. You don’t want someone to end up on your Instagram page and only see selfies or inspiring quotes.
@@ -134,6 +158,12 @@ While Instagram is a great engagement platform, it hasn’t been the best channe
 
 However, once you’ve gained a large following (10K) you will be able to [attached links](https://www.socialmediaexaminer.com/how-to-add-a-link-to-your-instagram-stories/) in Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How YouTubers Should on Post Instagram Story </h3 >
 
 Instagram Story allows you to post a series of images and videos over the course of 24 hours. After that, the collection of content — or “story” — from that day disappears.
@@ -145,7 +175,10 @@ There is a feature called “Highlight” which archives your stories so that yo
 ![Instagram Feed sample 3](https://images.wondershare.com/filmora/article-images/instagram-feed-3.jpg)_Instagram: Marianna Hewitt_
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### 2. Use Instagram Story to Make an Announcement
 
@@ -159,6 +192,18 @@ _Instagram: Jenn Im_
 
 Don’t think of Instagram Story as simply a mean for promoting your video, but a chance to give your loyal viewers an exclusive view into your process, allow them to get familiar with your personality and increase the exposure of your brand as a whole, solidifying your relationship.
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Facebook for YouTube Channel Marketing
 
 Facebook is the world’s most popular social media platform. With that claim, it can help any new YouTuber find and grow their audience. It doesn’t matter if their channel is about fashion or karate, Facebook is an appropriate platform for interacting with the audience, as long as the content you share is relevant and click-worthy.
@@ -177,9 +222,6 @@ Facebook doesn’t make it easy for YouTubers to show their video on Facebook’
 
 ![share YouTube video on Facebook](https://images.wondershare.com/filmora/article-images/share-youtube-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 When you post your video from YouTube directly to Facebook, it’ll look something like the image above. Unremarkable. While your audience can still view the video on the Facebook timeline, your fans scrolling by wouldn’t even notice it.
 
 This is Facebook’s way of encouraging you to post videos directly to Facebook’s platform. Which is something you should consider as well, but as you are currently working to grow your YouTube channel, it’s good to focus on this task first.
@@ -188,11 +230,14 @@ Well, how do you make the post look better? There is a tool called[Thumb Tube](h
 
 ![Share YouTube on Facebook 2](https://images.wondershare.com/filmora/article-images/share-youtube-on-facebook-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Thumb Tube takes your YouTube video link and redirects it so it is now hosted on ThumbTube.com. Yet, anyone viewing the video there is watching on YouTube, not Facebook. This allows you to still capture all the views, likes, and comments on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Managing a Facebook Page for Your YouTube Channel
 
 Know this, Facebook has been around for over a decade, and establishing yourself on the social network in 2018 is not what it was like in the late ‘00s. Hard truths: building a following from scratch is going to be a lot of work.
@@ -269,7 +314,10 @@ In order to be successful on Twitter, you must be ready to jump onto a relevant 
 ![take advantage of Twitter hashtag](https://images.wondershare.com/filmora/article-images/take-advantage-of-trending-hashtags.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 While you should definitely tweet and gain engagement for your YouTube videos, you will also need to tweet out other content.
 
@@ -283,6 +331,12 @@ An effective way for YouTubers to use Twitter is to be active during an event. I
 
 ![Tag brand and influencer](https://images.wondershare.com/filmora/article-images/tag-brand-influencer-twitter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Creators sharing their thoughts on #VidCon_
 
 Connecting with people with a lot of clouts can increase your credibility on the topic you are covering.
@@ -292,7 +346,10 @@ However, in order for these high-influence people to notice your YouTube channel
 If your Twitter account looks amateurish, for example: if you display picture is still an egg, then any attempts at reaching out to these big brands and influencers will be a loss. Stay active and over time you will gain a following to support you.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: Reddit for YouTube Channel Marketing
 
@@ -343,7 +400,10 @@ Here is an example of reddiquettes for r/Cameras:
 ![reddit community guideline sample](https://images.wondershare.com/filmora/article-images/reddit-community-guideline-sample.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 You only have so many strikes with Reddit before your account gets banned. But don’t worry about all that. Be your awesome self.
 
@@ -362,7 +422,16 @@ While there are some subreddits that demand relevant content, some subreddits wi
 Because these subreddits are unfocused and loaded with a variety of content, it’s often tricky to find your specific audience there. Then again, you’ll never know.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 5: Snapchat for YouTube Channel Marketing
 
@@ -386,9 +455,6 @@ Promoting your Snapchat account can be hard if you are not a celebrity. Unlike F
 
 ![promote account to get views](https://images.wondershare.com/filmora/article-images/promote-account-to-get-views.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 _YouTuber, Markiplier tweeting his Snapchat username._
 
 Here are a few quick tips for promoting your Snapchat account.

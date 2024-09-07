@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Lens to Legacy  Building a Lasting Career in Travel Blogging\""
-date: 2024-09-02T07:32:28.170Z
-updated: 2024-09-03T07:32:28.170Z
+date: 2024-09-06T17:27:54.055Z
+updated: 2024-09-07T17:27:54.055Z
 tags:
   - ai video
   - ai youtube
@@ -43,15 +43,18 @@ Wondershare FilmoraX is a video editing application that offers a lot of editing
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## PART 1: TRAVEL VLOGGING EQUIPMENT
 
 In order to make travel videos, you’re going to need camera equipment. Below, I’ve prepared a comprehensive list of cameras and accessories that would be good for travel vlogging.  
   
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/filmora-and-filmstock.jpg)](https://filmstock.wondershare.com/creative-theme-tourism?spm=rs.filmora%5Fweb&source%5Fchannel=seo%5Farticle)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### 1.1 Travel Vlogging Cameras  
   
 #### How To Choose A Vlogging Camera
@@ -80,39 +83,54 @@ Considering my list on what to look for in a travel vlogging camera, I’ve prep
 | -------------------------- | ------------------------------------------------------------------------------------------------- | ------------- | ------------- | ----------------- | ------- | ----- |
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-eos1.png)                | February2018  | Mirrorless    | Fully Articulated | **Yes** | $-   |
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/panasonic-lumix2.png)     | January2018   | Mirrorless    | Fully Articulated | **Yes** | $$$ |
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503"><img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="" width="1456" height="180"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | GoProHero6 Black           | ![GoPro Hero6](https://images.wondershare.com/filmora/article-images/gopro-hero3.png)             | September2017 | Action Camera | **No**            | **Yes** | $-    |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-eos4.png)               | August2017    | Mirrorless    | Flip-Up           | **No**  | $    |
 | CanonEOS6D Mark II         | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/canon-eos5.png)         | June2017      | Mid-size SLR  | Fully Articulated | **Yes** | $$  |
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-eos6.png)                | June2017      | Compact SLR   | Fully Articulated | **Yes** | $    |
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-eos7.png)                | February2017  | Mid-size SLR  | Fully Articulated | **Yes** | $-   |
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/canon-eos8.png)                 | February2017  | Mirrorless    | Flip-Up           | **Yes** | $    |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/sony-cyber-shot9.png)       | October2016   | Compact       | Flip-Up           | **No**  | $-   |
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 | PanasonicLumix DMCG85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/panasonic-lumix10.png)     | September2016 | Mirrorless    | Fully Articulated | **Yes** | $-   |
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | PanasonicLumix DMCLX10     | ![Panasonic LX10](https://images.wondershare.com/filmora/article-images/panasonic-lumix11.png)    | September2016 | Compact       | Flip-Up           | **No**  | $    |
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-eos12.png)               | February2016  | Mid-size SLR  | Fully Articulated | **Yes** | $$   |
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/canon-powershot13.png) | February2016  | Compact       | Flip-Up           | **No**  | $    |
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ####
 
 Lenses That Are Good For Travel Vlogging
@@ -129,6 +147,12 @@ If most of your travel video shooting will be done handheld, you should also def
 
 Check out my [Best Camera Lens for YouTube](https://tools.techidaily.com/wondershare/filmora/download/) to gain a more in-depth understanding of lenses and how they work.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1.2 Travel Vlogging Accessories  
   
 **Camera Accessories That Are Good For Travel Vlogging**
@@ -136,18 +160,48 @@ Check out my [Best Camera Lens for YouTube](https://tools.techidaily.com/wonders
 | ![Travel Tripod](https://images.wondershare.com/filmora/article-images/tripod1.jpg)                    | **1\. Tripod** Record stabilized shots and timelapse footage with a tripod.                                                                                                                                                                                                                                                                                                                          |
 | ------------------------------------------------------------------------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 | ![GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/gorilla-pod2.jpg)         | **2\. GorillaPod SLR-Zoom with Ballhead** Wrap your camera around structures that your regular tripod can't stay on. You can also hold out your camera further away from you using the GorillaPod as a selfie stick to fit in more of your background into your selfie shot.                                                                                                                         |
 | ![Stabilizing Gimbal](https://images.wondershare.com/filmora/article-images/stablizing-gimbal3.jpg)    | **3\. Stabilizing Gimbal** Get super-smooth shots with a stabilizing gimbal.                                                                                                                                                                                                                                                                                                                         |
 | ![Travel LED Light](https://images.wondershare.com/filmora/article-images/camera-led4.jpg)             | **4\. On-Camera LED Light** Is there not enough light? Add an LED light to your camera's hot/cold shoe.                                                                                                                                                                                                                                                                                              |
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | ![ND Filters](https://images.wondershare.com/filmora/article-images/neutral-density-filters5.jpg)      | **5\. Neutral Density (ND) Filters** Is it too bright outside to have your [aperture](https://tools.techidaily.com/wondershare/filmora/download/) wide open but you still want to get that [cinematic look](https://tools.techidaily.com/wondershare/filmora/download/)? You can add ND filters to your lenses so that you can do just that in very bright conditions. |
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | ![Camera Cleaning Kit](https://images.wondershare.com/filmora/article-images/camera-cleaning-kit6.jpg) | **6\. Camera Cleaning Kit** While traveling, you can get all kinds of unwanted substances on your lens and in your camera like dust, dirt, fingerprints, raindrops, snow, and sand, to name a few. If you bring along a portable camera cleaning kit with you on your travels, you can remove those things immediately so that your shots won't be affected.                                         |
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | ![Drone](https://images.wondershare.com/filmora/article-images/drone7.jpg)                             | **7\. Drone** When it comes to travel vlogging, wide shots that establish the scene and setting are important. Drones are great for taking these kinds of wide shots from high places that you would not be able to get to by foot.                                                                                                                                                                  |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ####
 
 Smartphone Accessories That Are Good For Travel Vlogging
@@ -171,11 +225,10 @@ Read more about each one of these items in my post [The 9 Best Smartphone Camera
 | ![RODE VideoMic Go](https://images.wondershare.com/filmora/article-images/rode-videomic-go1.jpg) | ![Shure VP83](https://images.wondershare.com/filmora/article-images/shure-vp2.jpg) | ![RODE VideoMic Pro+](https://images.wondershare.com/filmora/article-images/rode-videomic-pro3.jpg) | ![Sennheiser MKE 440](https://images.wondershare.com/filmora/article-images/sennheiser4.jpg) |
 | ------------------------------------------------------------------------------------------------ | ---------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------- | -------------------------------------------------------------------------------------------- |
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 These four shotgun microphones can mount directly onto your camera’s hot/cold shoe:
@@ -262,7 +315,10 @@ After you’ve done a lot of travel vlogging and learned so much along the way, 
 In the above video, Andrew Santos teaches how to make a travel video, all while hilariously poking fun at many of the cliché trends in the travel genre.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## PART 3: TRAVEL VIDEO EDITING  
   
@@ -305,7 +361,10 @@ Music is an important component of a lot of travel videos. Here’s where you ca
 7. [Zapsplat](https://www.zapsplat.com/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## PART 4: TRAVEL VLOGGING TIPS  
   
@@ -389,6 +448,12 @@ Check out [10 Recording Tips to Get The Best Sound From Your Microphone](https:/
 
 * Choose a title that people will search for. Keep your target keywords at the beginning of your title. “S01E01: My Summer Backpacking Trip” is not an effective title. Instead, a title like “Going Up The Eiffel Tower… Beautiful View of Paris!” would be better.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ready to Become a Travel Vlogger?
 
 Here in this article, I shared travel vlogging cameras &accessories, travel video ideas& resources, and travel vlogging tips. Did you get more hints to become a travel vlogger? Stay tuned and start your own travel vlog! Leave your comments below if you have any suggestions about this travel vlogger guide.
@@ -400,7 +465,10 @@ Here in this article, I shared travel vlogging cameras &accessories, travel vide
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 

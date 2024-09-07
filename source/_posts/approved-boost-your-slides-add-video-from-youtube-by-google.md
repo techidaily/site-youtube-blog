@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Boost Your Slides  Add Video From YouTube, by Google\""
-date: 2024-09-02T07:34:36.803Z
-updated: 2024-09-03T07:34:36.803Z
+date: 2024-09-06T17:27:51.963Z
+updated: 2024-09-07T17:27:51.963Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,12 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### In this article
 
 01 [Why should we add a video to Google Slides?](#part1)
@@ -56,6 +62,12 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -76,6 +88,12 @@ Step 4\. Then select the video you want to embed, and you'll see it appear on th
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
 #### Method 2\. Embed YouTube video to Google Slide by direct link
@@ -86,6 +104,12 @@ Step 1\. Get the URL of the specific YouTube video that you want to use.
 
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
 
 Step 3\. Next, open the "Presentation" slide to put your video to.
@@ -160,7 +184,10 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -176,6 +203,12 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### In this article
 
 01 [Why should we add a video to Google Slides?](#part1)
@@ -184,9 +217,6 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 03 [How to choose the right video for your Slides?](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Why should we add a video to Google Slides?
 
 There is a great impact of adding video to Google Slides.
@@ -203,6 +233,12 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -223,51 +259,57 @@ Step 4\. Then select the video you want to embed, and you'll see it appear on th
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
 
+Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
+
+#### Method 2\. Embed YouTube video to Google Slide by direct link
+
+You can engage this method if you want to include the entire video.
+
+Step 1\. Get the URL of the specific YouTube video that you want to use.
+
+![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
+
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
+
+Step 3\. Next, open the "Presentation" slide to put your video to.
+
+Step 4\. Choose the "Insert" tab from the menu bar.
+
+Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
+
+Step 6\. A new window will open automatically. Choose the "By URL" tab.
+
+Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
+
+![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
+
+Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
-
-#### Method 2\. Embed YouTube video to Google Slide by direct link
-
-You can engage this method if you want to include the entire video.
-
-Step 1\. Get the URL of the specific YouTube video that you want to use.
-
-![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
-
-Step 3\. Next, open the "Presentation" slide to put your video to.
-
-Step 4\. Choose the "Insert" tab from the menu bar.
-
-Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
-
-Step 6\. A new window will open automatically. Choose the "By URL" tab.
-
-Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
-
-![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
-
-Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
-
-Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to choose the right video for your Slides?
 
@@ -325,12 +367,10 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -355,7 +395,16 @@ More so, it is the best way to provide a break for both the audience and the cre
 03 [How to choose the right video for your Slides?](#part3)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why should we add a video to Google Slides?
 
@@ -374,7 +423,10 @@ A picture is worth a thousand words. There is a way that an added video will hel
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
@@ -390,6 +442,12 @@ Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" o
 
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
@@ -406,6 +464,12 @@ Step 1\. Get the URL of the specific YouTube video that you want to use.
 
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
 
 Step 3\. Next, open the "Presentation" slide to put your video to.
@@ -424,9 +488,6 @@ Step 8\. Wait for the video file to load and press the "Select" option. The vide
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## How to choose the right video for your Slides?
 
 Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
@@ -482,9 +543,6 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -499,9 +557,6 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### In this article
 
 01 [Why should we add a video to Google Slides?](#part1)
@@ -526,9 +581,6 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -549,6 +601,18 @@ Step 4\. Then select the video you want to embed, and you'll see it appear on th
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
 #### Method 2\. Embed YouTube video to Google Slide by direct link
@@ -559,6 +623,12 @@ Step 1\. Get the URL of the specific YouTube video that you want to use.
 
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
 
 Step 3\. Next, open the "Presentation" slide to put your video to.
@@ -573,15 +643,15 @@ Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar se
 
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to choose the right video for your Slides?
 
@@ -598,7 +668,10 @@ Not all videos will make an impact on your Google Slide. You need to use the bes
 **Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Create an eye-catching video for your Slides with Filmora
 
