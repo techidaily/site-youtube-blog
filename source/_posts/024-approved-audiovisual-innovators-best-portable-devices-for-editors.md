@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Audiovisual Innovators  Best Portable Devices for Editors\""
-date: 2024-07-13T14:42:30.000Z
-updated: 2024-07-14T14:42:30.000Z
+date: 2024-09-11T10:55:15.961Z
+updated: 2024-09-12T10:55:15.961Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,13 @@ Whether you’re an industry professional or an avid YouTuber, you know how impo
 The quality of the videos you create will depend on your creativity, the editing software you use, and the hardware that software is installed on. And as you probably know, it can be tough to work fast and get good results when your hardware or laptop isn’t strong enough to power your software properly and allow you to work at the pace you want.
 
 The best laptops for video editing in 2018 have three things in common. First, they have top-of-the-line display technology for color accuracy, color depth, and clarity. Next, they have discrete (dedicated) Graphic Processing Units (GPUs) with accompanying RAM to enable them to handle video processing fast without compromising other system functions. And finally, they have Intel core i7 CPU processors and Solid-State Drives (SSD) for faster overall performance.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## THE TOP 3 LAPTOPS FOR EDITING VIDEO IN 2018
 
@@ -77,11 +84,22 @@ Working with large 4K video files is much easier with the MacBook Pro. It’s fi
 
 Unfortunately, if you need a variety of ports like most videographers, working with the MacBook Pro could be a challenge as it only has Thunderbolt 3 ports. If this is the laptop you prefer, you’ll need to buy additional connection hardware to work with different input devices. And while this laptop impresses in many ways, it’s also quite expensive. There are certainly other laptops on the market which can give you similar performance at a lower cost.
 
-### 2\. DELL XPS 15
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### 2\. DELL XPS 15
 ![Dell XPS 15](https://images.wondershare.com/filmora/article-images/dell-xps-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **PRICE:** $999 - $1300
 
@@ -114,6 +132,13 @@ The Dell XPS 15 is one laptop that hits the sweet spot for many videographers. I
 The Dell XPS 15 is certainly more affordable, while still delivering excellent graphics performance. It features an Intel i7 processor and the NVIDIA GeForce GTX 1050 graphics processor. This makes it remarkably fast for video editing, as well as energy-efficient. People who work with different input devices will also like that this laptop has legacy adapters (USB, HDMI, ethernet) alongside a USB type C port.
 
 The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. It feels awkward and can be an inconvenience to use since you’ll have to adjust your position significantly while making video calls or recording for your YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. MICROSOFT SURFACE BOOK 2
 ![Microsoft Surface Book](https://images.wondershare.com/filmora/article-images/microsoft-surface-book.jpg)
@@ -151,6 +176,13 @@ Surface Book 2 also has the right combination of power and storage capacity that
 
 On the downside, this laptop is undoubtedly very expensive. Compared to the function and power you can get from the DELL XPS 15, it’s hard to justify paying nearly $2500 for the Surface Book 2\. Its detachable screen, supported by a fulcrum hinge, also comes at a price. It makes the laptop a bit bulky at one end when it’s folded. This in turn can make day-to-day handling a bit more tricky than it has to be.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## CONCLUSION
 
 If you’re searching for a good laptop to help you improve the quality of your videos in 2018, look no further than these 3\. They have all the power, function, and storage capacity you need to handle any project with ease. Just be mindful of your budget and consider which extras are worth the expense. Go for the MacBook Pro with Touch Bar if customizing your workflow is a priority. Opt for the Dell XPS 15 if you want the best combination of display quality and graphics processing. Finally, consider the Surface Book 2 if you need the flexibility of a 2-in-1 device.
@@ -163,20 +195,24 @@ If you’re searching for a good laptop to help you improve the quality of your 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,6 +221,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-addressed-discrepancy-in-shorts-showcase/"><u>[New] In 2024, Addressed Discrepancy in Shorts Showcase</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-effective-method-for-personalizing-fb-page-coverage/"><u>[Updated] 2024 Approved Effective Method for Personalizing FB Page Coverage</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>[Updated] Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-expert-tactics-optimizing-freefire-video-content/"><u>[Updated] In 2024, Expert Tactics Optimizing FreeFire Video Content</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-vision-pro-a-smart-investment-with-4-reasons/"><u>Apple Vision Pro – A Smart Investment with 4 Reasons?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-phantom-v-flip-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Phantom V Flip FRP Bypass</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigate-through-the-top-5-video-extractors-for-fb-on-your-iphoneipad/"><u>In 2024, Navigate Through the Top 5 Video Extractors for FB on Your iPhone/iPad</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-xiaomi-14-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Xiaomi 14</u></a></li>
+</ul></div>
 

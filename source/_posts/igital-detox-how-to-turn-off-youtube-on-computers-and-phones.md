@@ -1,0 +1,235 @@
+---
+title: "\"[New] Digital Detox  How to Turn Off Youtube on Computers and Phones\""
+date: 2024-09-11T11:08:28.554Z
+updated: 2024-09-12T11:08:28.554Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] Digital Detox: How to Turn Off Youtube on Computers and Phones\""
+excerpt: "\"This Article Describes [New] Digital Detox: How to Turn Off Youtube on Computers and Phones\""
+keywords: "Digital Detox Tips,Stopping YouTube Traffic,Disconnecting Screen Time,Limit YouTube Access,Reduce Internet Usage,Unplug From Videos,Switch Off Youtube Playback"
+thumbnail: https://thmb.techidaily.com/f451713ef3ee68cbcaf629ea84478de29a15d554b3782063832739ea84db6f9e.jpg
+---
+
+## Digital Detox: How to Turn Off Youtube on Computers and Phones
+
+# How to Block YouTube Channels on Computer and Mobile Phones
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Anyone spending any time online recently might have come across something they regard as deplorable. YouTube consumes more than half of the internet’s users with its whopping 2 billion active monthly users. For all that might seem good on the humongous video sharing platform some of the most divisive of all human interactions happen on YouTube.
+
+ Now the question arises on how you can safeguard yourself and your family from the bad and inadequate content and **how to block YouTube channels** that create the toxic material.
+
+ In this article, we’ll go through how you can block YouTube channels and content creators that you consider will have bad effects on your mental health. You will learn:
+
+* [**Part 1:** **How to block YouTube channels on a computer (Mac & Windows)**](#part1)
+* [**Part 2:** **How to block YouTube channels on Mobile Phones (Android & iPhone)**](#part2)
+* [**Part 3:** **How to block content on YouTube Kids**](#part3)
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Part 1: How to block YouTube channels on a computer (Mac & Windows)**
+
+ Blocking will prevent the user from trolling and bullying you or your channel subscribers. This will effectively prevent them to comment and interact with your video content. However, there is no way for you to prevent the bullies from watching your content you can at least prevent them from damaging your reputation, badmouthing, and inciting your active subscribers.
+
+ The process of blocking YouTube channels on a computer system is fairly simple and will only require a minute if you know the name of the user you want to block. Follow the steps below:
+
+* 1\. Log in to your YouTube account and look out for the account you want to block.
+* 2\. When you’re in the account head over to the **About** section. You can find it in the toolbar beneath the channel art or banner.
+
+![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
+
+* 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
+
+![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
+
+* 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
+
+![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
+
+ One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
+
+* 1\. Sign in to your YouTube account on either YouTube’s Android or iPhone app.
+* 2\. Look around for the account or user you want to block.
+* 3\. Open a particular account that you intend to block and go to their main account page.
+
+![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
+
+* 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
+
+![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Part 3: Block content on YouTube kids**
+
+ YouTube Kids is the alternative version of YouTube’s video service dedicated and designed for kids. It’s entirely for children with all the content curated for kids’ education, family-friendly videos, and channels surrounding kid’s liking. The interface features colorful large images, and icons with five categories to explore from.
+
+ The app filters all the content allowing only safe content and parental control to watch their children’s online activity. The app prevents commenting and any kind of cyber bullying-related issues. YouTube Kids need to be set up by an adult with singing into the app with their Google credentials. Parents can sign in and block channels or videos they don’t see fit for their children. Let us see how to block YouTube channels on YouTube kids.
+
+* 1\. Open the YouTube Kids app and tap on **I’m a parent** to set up the app.
+
+![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* 2\. Sign in with your preferred Google account.
+
+![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
+
+* 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
+* 4\. You’ll get an activation code on your email address.
+* 5\. Come back to the application and enter the code.
+
+ Now as you’re signed in as a parent you can block channels and specific content.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### **I. Block on Home screen**
+
+* 1\. On the Home screen press the dotted menu next to the video
+
+![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* 2\. In the menu list, you will see **Block this video**, tap it.
+* 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
+
+![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### **II. Block from Watch Page**
+
+* 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
+
+![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
+
+* 2\. Press the **Block** option.
+* 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
+
+![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* 4\. Select any of the two options and then press **Block** again.
+* 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
+
+![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
+
+## **Conclusion**
+
+ Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-10-youtube-cameras-from-novices-to-experts/"><u>[New] In 2024, Top 10 YouTube Cameras, From Novices to Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-high-quality-video-playback-with-av1-on-youtube/"><u>[New] In 2024, Unlock High-Quality Video Playback with AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-wrap-up-wisdom-for-media-masters/"><u>[Updated] 2024 Approved Wrap-Up Wisdom for Media Masters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-video-tutorials-into-playable-animated-gifs-online-for-2024/"><u>[Updated] Transforming Video Tutorials Into Playable Animated GIFs Online for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-understanding-permissions-the-key-to-saving-google-meets-for-2024/"><u>[Updated] Understanding Permissions The Key to Saving Google Meets for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/assessing-ais-expertise-in-concocting-delicious-drinks-with-chatgpt/"><u>Assessing AI's Expertise in Concocting Delicious Drinks with ChatGPT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tifying-creator-studio-a-practical-handbook-for-2024/"><u>Demystifying Creator Studio A Practical Handbook for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-14-ios-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 14 iOS System Issues? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-se-2020-to-other-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone SE (2020) to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-learn-cinematic-techniques-with-youtube-veterans-and-novices/"><u>In 2024, Learn Cinematic Techniques with YouTube Veterans and Novices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-meizu-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Meizu Phone? Unlock It Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ative-practices-in-creating-powerful-youtube-summaries/"><u>Innovative Practices in Creating Powerful YouTube Summaries</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online-for-2024/"><u>Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-acquisition-of-polska-skills/"><u>Rapid Acquisition of Polska Skills</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/strategies-for-effective-use-of-classroom-media-for-2024/"><u>Strategies for Effective Use of Classroom Media for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
+</ul></div>
+
