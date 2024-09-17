@@ -1,7 +1,7 @@
 ---
 title: "\"Understanding How YouTube Manages Post-Upload Content\""
-date: 2024-07-13T14:35:00.360Z
-updated: 2024-07-14T14:35:00.360Z
+date: 2024-09-15T16:35:55.406Z
+updated: 2024-09-17T17:22:05.535Z
 tags:
   - ai video
   - ai youtube
@@ -27,9 +27,6 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,16 +37,10 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 #### 2\. Where is Your Video Stored?
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -68,14 +59,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,6 +72,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ringing-the-web-to-reality-embedding-youtube-videos-in-slides/"><u>[New] Bringing the Web to Reality Embedding YouTube Videos in Slides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-your-setup-essential-shooting-accessories/"><u>[New] Mastering Your Setup Essential Shooting Accessories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-screen-recording-hack-for-instagram-stories/"><u>[New] The Ultimate Screen Recording Hack for Instagram Stories</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-elite-5-video-snapshot-recorders/"><u>[Updated] 2024 Approved Elite 5 Video Snapshot Recorders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ranking-the-most-rapidly-expanding-youtube-talks-of-inspiration/"><u>[Updated] 2024 Approved Ranking the Most Rapidly Expanding YouTube Talks of Inspiration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-curating-tunes-a-comprehensive-guide-to-youtube-lists/"><u>[Updated] In 2024, Curating Tunes A Comprehensive Guide to YouTube Lists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-avoidance-of-unplanned-pauses-during-photobooth-sessions/"><u>2024 Approved Avoidance of Unplanned Pauses During Photobooth Sessions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-gear-guide-for-streaming-sensations/"><u>2024 Approved Ultimate Gear Guide for Streaming Sensations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-tutorial-transforming-photos-into-youtube-desktop-thumbnails-for-2024/"><u>Brisk Tutorial Transforming Photos Into YouTube Desktop Thumbnails for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/efficiently-convert-your-videos-from-h2cu-to-h265-preserving-high-quality-and-reducing-size-a-step-by-step-guide/"><u>Efficiently Convert Your Videos From H.2cu to H.265, Preserving High-Quality & Reducing Size - A Step by Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-earning-potential-on-youtubers/"><u>Ensuring Earning Potential on YouTubers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/inside-the-enigma-of-machine-learning-unveiling-the-mechanics-of-ai-black-boxes/"><u>Inside the Enigma of Machine Learning: Unveiling the Mechanics of AI Black Boxes</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

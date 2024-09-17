@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Expert Director of Visuals and Music for 2024"
-date: 2024-07-13T14:34:36.530Z
-updated: 2024-07-14T14:34:36.530Z
+date: 2024-09-15T18:01:49.733Z
+updated: 2024-09-17T18:14:15.845Z
 tags:
   - ai video
   - ai youtube
@@ -173,6 +173,13 @@ Now it is time to add a background music to the entire video. You can drag and d
 
 ![filmora add bgm](https://images.wondershare.com/filmora/article-images/filmora-add-bgm.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 5: Export Your Video
 
 Once you are done adding photos, transitions, and music, you should play the video on Filmora and make adjustments wherever required. Thereafter, click on Export button and save the video file on your hard drive in your desired file format.
@@ -386,31 +393,35 @@ Download and install Wondershare Filmora as per your operating system. Filmora i
 Step 2: Import Photos and Arrange Them in Order
 
 Drag and drop the photos on the timeline as per your sequence you want in your slideshow video. You can change the order of the photos as well as stretch durations of photos in the video from the timeline. You have to arrange the photos side by side without any gap so that there is no black screen in between the transition.
+
+![filmora arrange the photo](https://images.wondershare.com/filmora/article-images/filmora-arrange-the-photo.jpg)
+
+Step 3: Add Transition Effects
+
+After arranging the photos side by side, you have to apply transition effects so that the change from one photo to another is eye-soothing. There are loads of transitions available and you can get them from Transition option located at the top bar.
+
+Go through the different categories of transitions. Drag and drop the transition you want on to the photo after which you want the transition effect to play. Do the same for all photos except the last one. You can apply different transitions effects for different photos as per your preference.
+
+![filmora beautiful transition effects](https://images.wondershare.com/filmora/article-images/filmora-beautiful-transition-effects.jpg)
+
+Step 4: Add Background Music
+
+Now it is time to add a background music to the entire video. You can drag and drop any music file from your hard drive to Filmora Project Media. Thereafter, you can drag and drop the audio file on the audio timeline below the photo timeline. You can also add audio effects from the top bar if required.
+
+![filmora add bgm](https://images.wondershare.com/filmora/article-images/filmora-add-bgm.jpg)
+
+Step 5: Export Your Video
+
+Once you are done adding photos, transitions, and music, you should play the video on Filmora and make adjustments wherever required. Thereafter, click on Export button and save the video file on your hard drive in your desired file format.
+
+![filmora export your video](https://images.wondershare.com/filmora/article-images/filmora-export-your-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-![filmora arrange the photo](https://images.wondershare.com/filmora/article-images/filmora-arrange-the-photo.jpg)
-
-Step 3: Add Transition Effects
-
-After arranging the photos side by side, you have to apply transition effects so that the change from one photo to another is eye-soothing. There are loads of transitions available and you can get them from Transition option located at the top bar.
-
-Go through the different categories of transitions. Drag and drop the transition you want on to the photo after which you want the transition effect to play. Do the same for all photos except the last one. You can apply different transitions effects for different photos as per your preference.
-
-![filmora beautiful transition effects](https://images.wondershare.com/filmora/article-images/filmora-beautiful-transition-effects.jpg)
-
-Step 4: Add Background Music
-
-Now it is time to add a background music to the entire video. You can drag and drop any music file from your hard drive to Filmora Project Media. Thereafter, you can drag and drop the audio file on the audio timeline below the photo timeline. You can also add audio effects from the top bar if required.
-
-![filmora add bgm](https://images.wondershare.com/filmora/article-images/filmora-add-bgm.jpg)
-
-Step 5: Export Your Video
-
-Once you are done adding photos, transitions, and music, you should play the video on Filmora and make adjustments wherever required. Thereafter, click on Export button and save the video file on your hard drive in your desired file format.
-
-![filmora export your video](https://images.wondershare.com/filmora/article-images/filmora-export-your-video.jpg)
 
 ## Part 2\. Popular video makers with photos and music
 
@@ -461,6 +472,20 @@ Besides, there are various transitions available to apply and you can add captio
 
 ![photostage slideshow](https://images.wondershare.com/filmora/article-images/photostage-slideshow.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Clideo video maker
 
 Clideo Video Maker is a free online video maker with song. All you need to do is upload photos from your hard drive and choose a preset depending on the online platform where you want to upload the video. Thereafter, add audio and trim it as per video length. Then add smooth transitions and the video will be ready to export on your hard drive or cloud storage.
@@ -474,6 +499,19 @@ The online video maker supports different video and audio file format for import
 * Suitable for computer and mobile phone users.
 
 ![clideo video maker](https://images.wondershare.com/filmora/article-images/clideo-video-maker.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Movavi Slideshow Maker
 
@@ -504,8 +542,6 @@ If you are making a video from your photos, you can use an online video maker wi
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -514,6 +550,21 @@ If you are making a video from your photos, you can use an online video maker wi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-customize-video-speed-to-match-your-desired-watch-time/"><u>[New] Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/lite-10-volume-augmenters-for-all-os/"><u>[New] Elite 10 Volume Augmenters for All OS</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-irecorder-insights-for-tech-enthusiasts/"><u>[New] In 2024, IRecorder Insights for Tech Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-downloader-apps-youtube-videos-on-android-compared/"><u>[New] In 2024, Top Downloader Apps YouTube Videos on Android Compared</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-gear-for-youtube-beginners-essential-tech-guide/"><u>[New] In 2024, Top Gear for YouTube Beginners Essential Tech Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-2023-checklist-for-camstudio-video-recording/"><u>[New] The Ultimate 2023 Checklist for CamStudio Video Recording</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-steps-to-prevent-thumbnail-absence-on-shorts-videos/"><u>[Updated] 2024 Approved Steps to Prevent Thumbnail Absence on Shorts Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-quick-youtube-video-uploads-and-rendering-secrets/"><u>[Updated] Master Quick YouTube Video Uploads and Rendering Secrets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-to-design-lively-and-uplifting-content-shows-for-2024/"><u>[Updated] Strategies to Design Lively and Uplifting Content Shows for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-simple-guide-making-your-windows-computer-speak-like-a-fish-for-2024/"><u>[Updated] The Simple Guide Making Your Window's Computer Speak Like a Fish for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-optimizing-ad-revenue-on-youtube-with-new-strategies/"><u>2024 Approved Optimizing Ad Revenue on YouTube with New Strategies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-setup-smoothly-share-soon-the-ifunny-meme-adventure-begins/"><u>2024 Approved Setup Smoothly, Share Soon The iFunny Meme Adventure Begins</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/declutter-your-tiktok-drafters-efficient-edit-strategies/"><u>Declutter Your TikTok Drafters Efficient Edit Strategies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/enhanced-google-chats-essential-techniques-4-ways-for-2024/"><u>Enhanced Google Chats Essential Techniques, 4 Ways for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Mastery on the Move  Crafting Impactful Video Thumbnails (Mobile) for 2024\""
-date: 2024-07-13T14:37:29.214Z
-updated: 2024-07-14T14:37:29.214Z
+date: 2024-09-10T17:22:21.458Z
+updated: 2024-09-17T16:47:51.239Z
 tags:
   - ai video
   - ai youtube
@@ -174,6 +174,13 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
@@ -199,6 +206,13 @@ If you're looking for a quick and easy way to create a thumbnail on your mobile 
 The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size balances quality and file size, ensuring that your thumbnail looks sharp and loads quickly. It's also important to note that YouTube thumbnails are displayed at different sizes depending on the device and context in which they are viewed.
 
 For example, a thumbnail may be displayed at a larger size when it's shown as the main thumbnail for a video but smaller when it's shown in a list of related videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q3\. What Thumbnail Gets the Most Clicks?
 
@@ -234,6 +248,13 @@ Step3 Edit the image using the available tools, such as cropping, rotating, and 
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Add text to the image and **customize** it to your liking.
 
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
@@ -245,6 +266,13 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Pros
 
@@ -279,9 +307,6 @@ Step3 Tap on the video and tap the "**Edit**" button in the top right corner of 
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
@@ -317,6 +342,13 @@ Step2 Scale up and reposition the photo.
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
@@ -372,8 +404,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -381,6 +411,18 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-list-of-xsplits-equals/"><u>[New] In 2024, The Ultimate List of Xsplit's Equals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-moviemeld-insights-full-editing-review/"><u>[New] MovieMeld Insights – Full Editing Review</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sizzling-skills-7-keys-for-scrumptious-video-cooking/"><u>[New] Sizzling Skills 7 Keys for Scrumptious Video Cooking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-premium-gaming-intro-ideas-for-youtube-free-vs-paid-models/"><u>[Updated] Premium Gaming Intro Ideas for YouTube Free vs Paid Models</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-content-advanced-youtube-video-editing-strategies-for-2024/"><u>[Updated] Streamline Content Advanced Youtube Video Editing Strategies for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>2024 Approved The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-a15-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Samsung Galaxy A15 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976132622-easy-installation-of-new-wifi-drivers-for-windos-7/"><u>Easy Installation of New WiFi Drivers for WinDos 7!</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-v29-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo V29 Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/silent-symphony-softening-computer-sounds-system-wide/"><u>Silent Symphony Softening Computer Sounds System-Wide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-youtube-shorts-secrets-for-2024/"><u>Unlocking YouTube Shorts Secrets for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Artisan's Guide to Animation Enchantment"
-date: 2024-09-11T11:16:25.510Z
-updated: 2024-09-12T11:16:25.510Z
+date: 2024-09-11T18:30:07.976Z
+updated: 2024-09-17T16:49:48.159Z
 tags:
   - ai video
   - ai youtube
@@ -51,29 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -81,28 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -112,10 +79,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -139,17 +106,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-power-play-joining-a-music-company-network-in-the-age-of-streaming/"><u>[New] 2024 Approved The Power Play Joining a Music Company Network in the Age of Streaming</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elevate-your-phones-alerts-personalizing-ringtones-and-sounds-on-android/"><u>[New] Elevate Your Phone's Alerts Personalizing Ringtones & Sounds on Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-channeling-twitter-vids-seamlessly-to-snapchat/"><u>[Updated] 2024 Approved Channeling Twitter Vids Seamlessly to Snapchat</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-leading-10-competitors-to-zoom-for-pc-and-phone/"><u>[Updated] 2024 Approved The Leading 10 Competitors to Zoom for PC & Phone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-profitable-video-content-starting-and-scaling-up-for-2024/"><u>[Updated] Profitable Video Content Starting and Scaling Up for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-blissful-family-nights-the-top-10-classics-for-summertime/"><u>2024 Approved Blissful Family Nights The Top 10 Classics for Summertime</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-prime-line-up-the-best-9-free-youtube-logo-makers-reviewed/"><u>2024 Approved Prime Line-Up The Best 9 Free YouTube Logo Makers Reviewed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ners-bible-to-your-youtube-audio-visual-arsenal-for-2024/"><u>Beginner's Bible to Your YouTube Audio-Visual Arsenal for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-tecno-camon-30-pro-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Tecno Camon 30 Pro 5G? Try These Fixes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/s-picks-best-recording-software/"><u>Gamers' Picks Best Recording Software</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/the-top-9-reasons-to-favor-pc-computing-over-macos/"><u>The Top 9 Reasons to Favor PC Computing Over MacOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-guide-to-announcing-a-charity-drive-on-fb-for-2024/"><u>[New] A Step-by-Step Guide to Announcing a Charity Drive on FB for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-earnings-on-youtube-the-crucial-number-of-video-views-for-money/"><u>[Updated] 2024 Approved Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-efficient-techniques-ios-screenshots-and-youtube-content-creation/"><u>[Updated] In 2024, Efficient Techniques IOS Screenshots and YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-to-making-money-on-youtube-average-required-views/"><u>[Updated] In 2024, The Ultimate Guide to Making Money on YouTube Average Required Views</u></a></li>
+<li><a href="https://article-files.techidaily.com/best-slide-show-software-selection-on-latest-iphones/"><u>Best Slide Show Software Selection on Latest iPhones</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-oneplus-12-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your OnePlus 12? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-brilliance-unleashed-a-thorough-review-of-the-features-in-apple-iphone-12-mini/"><u>Compact Brilliance Unleashed - A Thorough Review of the Features in Apple iPhone 12 Mini</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-nubia-red-magic-9-proplus-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Nubia Red Magic 9 Pro+ Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mending-directx-downloads-issue-in-os/"><u>Mending DirectX Downloads Issue in OS</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcome-audio-irregularities-and-warping-problems-in-windows-os-117-step-by-step-remedies-available-now/"><u>Overcome Audio Irregularities and Warping Problems in Windows OS (11/7): Step-by-Step Remedies Available Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ule-smarter-the-art-of-youtube-content-timing/"><u>Schedule Smarter The Art of YouTube Content Timing</u></a></li>
 </ul></div>
 

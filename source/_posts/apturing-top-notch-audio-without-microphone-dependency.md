@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing Top-Notch Audio Without Microphone Dependency\""
-date: 2024-07-13T14:33:24.894Z
-updated: 2024-07-14T14:33:24.894Z
+date: 2024-09-11T17:27:30.469Z
+updated: 2024-09-17T18:02:49.657Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -79,6 +86,13 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -86,6 +100,13 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -101,9 +122,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -112,14 +130,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,6 +143,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-watch-instagram-live-anonymously/"><u>[New] How to Watch Instagram Live Anonymously</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-2023s-top-social-moment-infographics/"><u>[New] In 2024, 2023'S Top Social Moment Infographics</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-a-comprehensive-guide-to-profile-picture-perfection-on-discord/"><u>[Updated] A Comprehensive Guide to Profile Picture Perfection on Discord</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevate-video-quality-from-youtube-to-crisp-avis-format/"><u>[Updated] Elevate Video Quality From YouTube to Crisp Avis Format</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-demystifying-syncopated-soundscapes-via-crossfading/"><u>[Updated] In 2024, Demystifying Syncopated Soundscapes via Crossfading</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-tags-in-gaming-videos-for-2024/"><u>[Updated] Mastering the Art of Tags in Gaming Videos for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-refining-shots-with-gopros-advanced-color-tools/"><u>[Updated] Refining Shots with GoPro's Advanced Color Tools</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-7-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 7 Plus How to Bypass?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/htaking-lyric-videos-made-easy-by-lyric-video-maker-for-2024/"><u>Breathtaking Lyric Videos Made Easy by Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-a-course-essential-equipment-for-youtube-enthusiasts-for-2024/"><u>Charting a Course Essential Equipment for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-prime-mac-tools-for-capturing-desktop-activity/"><u>In 2024, Prime Mac Tools for Capturing Desktop Activity</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/pixelpilots-perspective-leading-screen-recording-tools-of-the-year-for-2024/"><u>PixelPilot's Perspective Leading Screen Recording Tools of the Year for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revisiting-my-thoughts-the-shift-in-my-endorsement-of-the-xbox-series-s/"><u>Revisiting My Thoughts: The Shift in My Endorsement of the Xbox Series S</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/scent-of-jake-paul-in-online-video-fame-for-2024/"><u>The Ascent of Jake Paul in Online Video Fame for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eading-titles-in-rapid-online-content-expansion-for-2024/"><u>The Leading Titles in Rapid Online Content Expansion for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/track-and-measure-methods-for-finding-sharers-of-your-facebook-posts/"><u>Track and Measure: Methods for Finding Sharers of Your Facebook Posts</u></a></li>
+</ul></div>
 

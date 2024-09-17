@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality\""
-date: 2024-07-13T14:40:17.386Z
-updated: 2024-07-14T14:40:17.386Z
+date: 2024-09-16T18:00:37.094Z
+updated: 2024-09-17T16:09:21.498Z
 tags:
   - ai video
   - ai youtube
@@ -34,9 +34,6 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
@@ -67,6 +64,13 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
@@ -83,6 +87,13 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -97,6 +108,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -105,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +136,14 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-saving-screen-scenes-pcmac-and-mobile-devices-walkthrough/"><u>[New] In 2024, Saving Screen Scenes PC/Mac & Mobile Devices Walkthrough</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/everage-larger-thumbnails-for-video-success/"><u>[New] Leverage Larger Thumbnails for Video Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-navigating-mobility-in-film-crafting-youtubes-best-thumbnails/"><u>[Updated] In 2024, Navigating Mobility in Film Crafting YouTubes' Best Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-live-audience-score-keeper-apps/"><u>[Updated] Live Audience Score Keeper Apps</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-solved-dead-obs-camera-for-2024/"><u>[Updated] Solved Dead OBS Camera for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-plan-to-grow-your-subscriber-base-for-2024/"><u>[Updated] The Ultimate Plan to Grow Your Subscriber Base for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hdr-mastery-the-complete-sdr-to-hdr-transformation/"><u>2024 Approved HDR Mastery The Complete SDR-to-HDR Transformation</u></a></li>
+</ul></div>
 

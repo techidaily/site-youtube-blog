@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-09-11T11:17:17.041Z
-updated: 2024-09-12T11:17:17.041Z
+date: 2024-09-14T17:26:28.390Z
+updated: 2024-09-17T16:17:15.265Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -81,29 +74,9 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -125,13 +98,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -145,10 +111,10 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
@@ -178,16 +144,16 @@ Now that you know how to make a good YouTube banner, what will you do next?
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -213,19 +179,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ecode-youtube-shorts-a-complete-breakdown-for-2024/"><u>[New] Decode YouTube Shorts A Complete Breakdown for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-foremost-virtual-environments-providers/"><u>[New] Foremost Virtual Environments Providers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-enhance-your-livestream-going-beyond-obs/"><u>[New] In 2024, Enhance Your Livestream Going Beyond OBS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/apid-audience-expansion-without-breaking-the-bank-for-2024/"><u>[New] Rapid Audience Expansion Without Breaking the Bank for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-soundscape-integration-for-statements-for-2024/"><u>[New] Soundscape Integration for Statements for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigate-the-clouds-and-crowd-fb-livestreams-via-dji/"><u>[Updated] Navigate the Clouds and Crowd FB Livestreams via DJI</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/20plus-laughs-no-boundaries-crafting-memes-across-metaverse-realms-for-2024/"><u>20+ Laughs, No Boundaries Crafting Memes Across Metaverse Realms for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-sjcam-sj6-legend-vs-xiaomi-yi-4k/"><u>2024 Approved SJCam SJ6 Legend VS Xiaomi Yi 4K</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-unveiling-techniques-to-extract-fb-content/"><u>2024 Approved Unveiling Techniques to Extract FB Content</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-top-tier-usb-network-adapters-your-ultimate-comparison-guide/"><u>2024'S Top-Tier USB Network Adapters: Your Ultimate Comparison Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/practices-for-organizing-online-video-stories-for-2024/"><u>Best Practices for Organizing Online Video Stories for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essential-music-video-watching-apps-for-android/"><u>Essential Music Video Watching Apps for Android</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/inating-success-brightening-up-your-youtube-videos-for-2024/"><u>Illuminating Success Brightening Up Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-how-to-edit-youtube-videos-in-sony-vegas/"><u>In 2024, How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-insta-popularity-on-youtube-jake-pauls-story-unfolded/"><u>[Updated] 2024 Approved Insta-Popularity on Youtube Jake Paul’s Story Unfolded</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-structuring-inspirational-lifestyle-content-for-audiences/"><u>[Updated] Structuring Inspirational Lifestyle Content for Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-novices-route-to-revenue-in-the-youtube-realm/"><u>[Updated] The Novice's Route to Revenue in the YouTube Realm</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-investigating-unmodified-audio-from-ffmpeg-output/"><u>2024 Approved Investigating Unmodified Audio From FFmpeg Output</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/honorable-highlights-elite-endorsements-for-snapping-alert-songs-for-2024/"><u>Honorable Highlights Elite Endorsements for Snapping Alert Songs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-artists-playground-the-prime-6-platforms-for-nft-creation/"><u>In 2024, Artists' Playground The Prime 6 Platforms for NFT Creation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/remedies-for-dim-or-flickering-surveillance-video/"><u>Remedies for Dim or Flickering Surveillance Video</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-subscriber-boost4-simplest-tricks-to-grow-your-channel-for-2024/"><u>YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel for 2024</u></a></li>
 </ul></div>
 

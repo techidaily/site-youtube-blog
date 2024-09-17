@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Thumbnail Design Journey Today"
-date: 2024-09-11T11:15:56.164Z
-updated: 2024-09-12T11:15:56.164Z
+date: 2024-09-12T16:48:51.401Z
+updated: 2024-09-17T18:30:57.056Z
 tags:
   - ai video
   - ai youtube
@@ -51,13 +51,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -65,13 +58,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -81,29 +67,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -117,23 +83,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -142,13 +94,6 @@ This is how your Youtube thumbnail will look like after applying all the above-m
 This article on making a thumbnail for your Youtube is just an idea for you, and you can use your creativity to create amazing thumbnails using other features of Filmora. These cool thumbnails will help you attract more viewers and click, which will ultimately help you grow your Youtube Channel. Unlike all other articles and tutorials that show you how to make a thumbnail for Youtube, this method is free and doesn't need any technical skills to be implemented.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -173,19 +118,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-crafting-perfect-youtube-short-content-lessons/"><u>[New] In 2024, Crafting Perfect YouTube Short Content Lessons</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-from-lens-to-legacy-building-a-lasting-career-in-travel-blogging/"><u>[New] In 2024, From Lens to Legacy Building a Lasting Career in Travel Blogging</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-youtube-videos-in-windows-movie-maker/"><u>[New] In 2024, Streamline Your YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unlocking-the-full-screen-potential-of-fb-videos-for-2024/"><u>[New] Unlocking the Full Screen Potential of FB Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-design-channels-get-free-visuals-now/"><u>[Updated] 2024 Approved Design Channels - Get Free Visuals Now</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-6-completely-different-places-to-get-youtube-icons-and-logos/"><u>[Updated] 6 Completely Different Places to Get YouTube Icons and Logos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elites-free-guide-to-10-caption-download-tools-for-2024/"><u>[Updated] Elite's Free Guide to 10 Caption Download Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-essential-tips-for-youtube-shorts-success/"><u>[Updated] Essential Tips for YouTube Shorts Success</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unheard-vocal-verifiers-6-stealthy-smartphone-recordings/"><u>[Updated] In 2024, Unheard Vocal Verifiers 6 Stealthy Smartphone Recordings</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>2024 Approved Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo X90S? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-latest-guide-on-ipad-23-and-iphone-se-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Latest Guide on iPad 2/3 and iPhone SE iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/er-filmmaking-for-channel-expansion-and-engagement-for-2024/"><u>Partner Filmmaking for Channel Expansion & Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevating-your-youtube-presence-with-customized-subtitles-for-2024/"><u>[Updated] Elevating Your YouTube Presence with Customized Subtitles for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-captivating-valorant-video-thumbnails-on-youtube/"><u>[Updated] The Art of Captivating Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-king-of-commercial-success/"><u>[Updated] YouTube King of Commercial Success</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-strategies-to-resolve-gtfo-application-freezing/"><u>Effective Strategies to Resolve GTFO Application Freezing</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-nubia-red-magic-9-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/master-these-7-tactics-to-prevent-frequent-windows-explorer-failures/"><u>Master These 7 Tactics To Prevent Frequent Windows Explorer Failures</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

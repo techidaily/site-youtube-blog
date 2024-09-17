@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tackling Negative Comments  A Content Creator's Mantra\""
-date: 2024-09-11T11:15:34.134Z
-updated: 2024-09-12T11:15:34.134Z
+date: 2024-09-10T16:32:31.713Z
+updated: 2024-09-17T18:21:27.870Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -89,12 +75,27 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-perfecting-youtube-shorts-step-by-step-video-production-tips/"><u>[New] In 2024, Perfecting YouTube Shorts Step-by-Step Video Production Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-blueprint-for-success-livestreaming-ultra-wide-video-content-on-youtube/"><u>[New] In 2024, The Blueprint for Success Livestreaming Ultra-Wide Video Content on YouTube</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-quick-fixes-to-keep-your-photos-app-fixed-on-win-11/"><u>[New] Quick Fixes to Keep Your Photos App Fixed on Win 11</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-instagram-adding-borders-to-your-photos/"><u>[Updated] 2024 Approved Mastering Instagram Adding Borders to Your Photos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-audience-expansion-masterclass-skyrocketing-your-youtube-numbers/"><u>2024 Approved Audience Expansion Masterclass Skyrocketing Your Youtube Numbers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-tecno-pova-6-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Tecno Pova 6 Pro 5G Devices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigating-to-facebook-video-streams-on-your-apple-tv/"><u>In 2024, Navigating to Facebook Video Streams on Your Apple TV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-edit-youtube-videos/"><u>[New] How To Edit YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-moolah-on-youtube-a-creators-handbook/"><u>[New] In 2024, Maximizing Moolah on YouTube A Creator's Handbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-craft-stellar-channels-best-10-apps-for-artistic-banner-design/"><u>[Updated] 2024 Approved Craft Stellar Channels Best 10 Apps for Artistic Banner Design</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ios-and-android-youtube-autoplay-tricks/"><u>[Updated] 2024 Approved IOS & Android YouTube AutoPlay Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-superior-fb-extra-tools-video-grabs-firefox-version/"><u>[Updated] 2024 Approved Superior FB Extra Tools Video Grabs, Firefox Version</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-master-the-art-of-uploading-vimeo-to-instagram-for-2024/"><u>[Updated] Master the Art of Uploading Vimeo to Instagram for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-youtube-thumbnail-crafting-mac-for-2024/"><u>[Updated] The Essential Guide to YouTube Thumbnail Crafting (Mac) for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-lava-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Lava</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/best-toolbox-to-translate-youtube-videos-to-english-subtitles/"><u>Best Toolbox to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-videos-best-editing-apps-for-android-pc-users-for-2024/"><u>Boost Your Videos Best Editing Apps for Android, PC Users for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/building-an-online-empire-through-effective-marketing/"><u>Building an Online Empire Through Effective Marketing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-oneplus-nord-3-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any OnePlus Nord 3 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-potential-your-ultimate-youtube-facebook-transition-guide/"><u>In 2024, Unlocking Potential Your Ultimate YouTube-Facebook Transition Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unveiling-youtube-video-mastery-through-finalcut-pro-methods/"><u>In 2024, Unveiling YouTube Video Mastery Through FinalCut Pro Methods</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-unbiased-review-of-vn-video-editor-apk-worth-your-time-in-2024/"><u>New Unbiased Review of VN Video Editor APK Worth Your Time, In 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

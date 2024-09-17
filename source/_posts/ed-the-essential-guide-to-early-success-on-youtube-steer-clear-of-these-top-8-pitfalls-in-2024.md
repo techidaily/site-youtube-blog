@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls, In 2024\""
-date: 2024-07-13T14:36:34.550Z
-updated: 2024-07-14T14:36:34.550Z
+date: 2024-09-11T17:52:45.958Z
+updated: 2024-09-17T18:24:19.337Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -56,6 +63,13 @@ As an example, let's suppose you vlogged your time backpacking around Europe las
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -85,10 +99,20 @@ But rather than leaving interesting comments that are related to the video, rath
 
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -96,14 +120,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,6 +133,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-control-over-your-ig-content-exposure-for-2024/"><u>[New] Control Over Your IG Content Exposure for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-creating-personalized-whatsapp-soundtracks/"><u>[New] In 2024, Step-by-Step Creating Personalized WhatsApp Soundtracks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-soil-spinners-finding-the-next-stardew-title/"><u>[New] Soil Spinners Finding the Next Stardew Title</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-first-impressions-a-deep-dive-into-3d-printing-alone/"><u>[Updated] First Impressions A Deep Dive Into 3D Printing Alone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-audio-to-action-mp3-to-youtube-conversion-journey/"><u>[Updated] In 2024, From Audio to Action MP3-to-YouTube Conversion Journey</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-evaluating-virtual-realms-pros-and-cons/"><u>2024 Approved Evaluating Virtual Realms Pros and Cons</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-masterclass-on-minimizing-video-footage-in-youtube/"><u>2024 Approved Masterclass on Minimizing Video Footage in YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-your-content-anytime-anywhere-choose-from-these-best-free-and-online-downloads/"><u>2024 Approved Your Content, Anytime, Anywhere Choose From These Best Free & Online Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-videos-best-music-dance-and-responses-23/"><u>Hot YT Videos Best Music Dance & Responses '23</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-and-straightforward-techniques-for-mirroring-your-ipad-display-onto-a-pc-mac-or-television/"><u>Quick and Straightforward Techniques for Mirroring Your iPad Display Onto a PC, Mac or Television</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-learn-video-editing-fast-top-beginner-friendly-software/"><u>Updated 2024 Approved Learn Video Editing Fast Top Beginner-Friendly Software</u></a></li>
+</ul></div>
 

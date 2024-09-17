@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Comprehensive Strategies for Swiftly Clearing Feedback\""
-date: 2024-09-11T11:13:14.481Z
-updated: 2024-09-12T11:13:14.481Z
+date: 2024-09-16T18:28:17.063Z
+updated: 2024-09-17T18:08:41.929Z
 tags:
   - ai video
   - ai youtube
@@ -88,13 +88,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -116,10 +109,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -132,33 +125,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -169,16 +148,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -202,15 +175,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-crafting-perfect-youtube-short-content-lessons/"><u>[New] In 2024, Crafting Perfect YouTube Short Content Lessons</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-youtube-videos-in-windows-movie-maker/"><u>[New] In 2024, Streamline Your YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-vocal-paintbrush-free-applications-to-color-your-soundscapes-creatively/"><u>[Updated] 2024 Approved Vocal Paintbrush Free Applications to Color Your Soundscapes Creatively</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elites-free-guide-to-10-caption-download-tools-for-2024/"><u>[Updated] Elite's Free Guide to 10 Caption Download Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-essential-tips-for-youtube-shorts-success/"><u>[Updated] Essential Tips for YouTube Shorts Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[Updated] In 2024, Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
-<li><a href="https://techtrends.techidaily.com/choose-the-optimal-combo-of-cable-modem-and-wifi-router-2024-edition/"><u>Choose the Optimal Combo of Cable Modem & WiFi Router – 2024 Edition</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-oppo-a2-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Oppo A2</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ny-times-connection-puzzles-unlocking-answers-on-aug-21st-issue-437-dive-in/"><u>NY Times Connection Puzzles: Unlocking Answers on Aug 21St, Issue #437 - Dive In!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-why-is-valorant-continuously-crashing-on-pc/"><u>Troubleshooting Steps: Why Is Valorant Continuously Crashing on PC?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-secrets-revealed-how-to-capture-your-facebook-sessions/"><u>[New] In 2024, Secrets Revealed How to Capture Your Facebook Sessions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-simplified-video-transferring-techniques-for-youtube-enthusiasts/"><u>[New] In 2024, Simplified Video Transferring Techniques for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-new-horizines-youtube-video-uploads-to-facebook/"><u>[Updated] Navigating New Horizines YouTube Video Uploads to Facebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-straightforward-tips-for-mastering-simple-hdr-photography/"><u>[Updated] Straightforward Tips for Mastering Simple HDR Photography</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-ultimate-list-of-no-cost-video-recording-apps-top-5-choices-for-your-needs/"><u>Discover the Ultimate List of No-Cost Video Recording Apps – Top 5 Choices for Your Needs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revamp-iphone-photos-effective-red-eye-removal-for-free/"><u>In 2024, Revamp iPhone Photos Effective Red-Eye Removal for FREE</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-oppo-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Oppo</u></a></li>
+<li><a href="https://techtrends.techidaily.com/wininetdll-missing-heres-how-to-correctly-restore-it/"><u>Wininet.dll Missing? Here's How to Correctly Restore It!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-best-short-videos-download-now-free/"><u>World's Best Short Videos – Download Now! (Free)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Smartphone Skills  Producing Engaging YouTube Thumbnails\""
-date: 2024-07-13T14:40:04.625Z
-updated: 2024-07-14T14:40:04.625Z
+date: 2024-09-16T17:50:24.318Z
+updated: 2024-09-17T16:39:58.041Z
 tags:
   - ai video
   - ai youtube
@@ -164,9 +164,6 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 Step2 Scale up and reposition the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
@@ -191,6 +188,13 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
 There are many different apps and tools that YouTubers use to create thumbnails for their videos. The best app for creating YouTube thumbnails will depend on your needs and skill level.
@@ -202,6 +206,13 @@ If you're looking for a quick and easy way to create a thumbnail on your mobile 
 The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size balances quality and file size, ensuring that your thumbnail looks sharp and loads quickly. It's also important to note that YouTube thumbnails are displayed at different sizes depending on the device and context in which they are viewed.
 
 For example, a thumbnail may be displayed at a larger size when it's shown as the main thumbnail for a video but smaller when it's shown in a list of related videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q3\. What Thumbnail Gets the Most Clicks?
 
@@ -272,6 +283,13 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -287,6 +305,13 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
@@ -321,6 +346,13 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Locate the thumbnail in your local drive.
 
@@ -372,8 +404,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -381,6 +411,20 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-obs-vs-shadowplay-which-to-choose/"><u>[New] In 2024, OBS vs ShadowPlay - Which to Choose</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-seamless-visual-storytelling-through-advanced-chroma-techniques/"><u>[New] In 2024, Seamless Visual Storytelling Through Advanced Chroma Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-windows-11-tips-for-effective-sound-recording/"><u>[New] Windows 11 Tips for Effective Sound Recording</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>[Updated] Seamless Playlist Transfer Migrating From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-framework-for-captivating-streams-on-youtube-for-2024/"><u>[Updated] The Ultimate Framework for Captivating Streams on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-path-to-your-youtube-comments-on-devices-for-2024/"><u>[Updated] Unveiling the Path to Your YouTube Comments on Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>2024 Approved Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-meme-tacular-iphone-hacks/"><u>2024 Approved Meme-Tacular iPhone Hacks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-channels-with-flair-unveiling-10-innovative-design-platforms-for-2024/"><u>Craft Channels with Flair Unveiling 10 Innovative Design Platforms for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-samsung-printer-setup-on-windows-with-easy-installation-files/"><u>Get Your Samsung Printer Setup on Windows with Easy Installation Files!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-vivo-s18-pro-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Vivo S18 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rful-descriptions-for-youtube-success/"><u>Masterful Descriptions for YouTube Success</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-poco-c55-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Poco C55 | Dr.fone</u></a></li>
+</ul></div>
 

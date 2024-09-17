@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Learn How To Create Compelling YouTube Closures Economically for 2024"
-date: 2024-07-13T14:36:26.870Z
-updated: 2024-07-14T14:36:26.870Z
+date: 2024-09-14T17:12:31.209Z
+updated: 2024-09-17T18:07:14.068Z
 tags:
   - ai video
   - ai youtube
@@ -39,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,18 +65,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -124,9 +109,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -135,14 +117,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,6 +130,30 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-downloader-apps-youtube-videos-on-android-compared/"><u>[New] In 2024, Top Downloader Apps YouTube Videos on Android Compared</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-gear-for-youtube-beginners-essential-tech-guide/"><u>[New] In 2024, Top Gear for YouTube Beginners Essential Tech Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-list-of-online-video-ripper-tools/"><u>[Updated] The Essential List of Online Video Ripper Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726026857424-3/"><u>「リージョンコード3映像ディスク再生方法・対策：視聴不可解決のためのガイダンス」</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/adding-captions-and-text-a-guide-for-photo-titles-in-microsoft-photos/"><u>Adding Captions and Text A Guide for Photo Titles in Microsoft Photos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-8-pitfalls-of-relying-solely-on-artificer-bots-for-content-writing/"><u>Exploring the 8 Pitfalls of Relying Solely on Artificer Bots for Content Writing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-v30-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme V30 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/understanding-your-twitter-archives-potential/"><u>Understanding Your Twitter Archive's Potential</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlock-creativity-with-these-5-reasons-for-acquiring-a-3d-printer-on-black-friday/"><u>Unlock Creativity with These 5 Reasons for Acquiring a 3D Printer on Black Friday</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/everyone-must-know-about-creating-short-form-videos/"><u>What Everyone Must Know About Creating Short-Form Videos</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

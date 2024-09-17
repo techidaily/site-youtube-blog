@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Precision Cinematography  Ideal Lenses for Digital Storytellers\""
-date: 2024-09-11T11:12:52.430Z
-updated: 2024-09-12T11:12:52.430Z
+date: 2024-09-12T17:37:30.256Z
+updated: 2024-09-17T16:28:49.070Z
 tags:
   - ai video
   - ai youtube
@@ -31,19 +31,6 @@ A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to cus
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -51,13 +38,6 @@ There are two main categories of camera lenses: ‘zoom’ – lenses that allow
 We have explained the differences between Fixed lens and Zoom lens and advantages of using each lens, check this article: [Zoom Lens vs. Fixed Lenses: Which one is best for YouTuber?](https://tools.techidaily.com/wondershare/filmora/download/) for the detailed information.
 
 Before we get into the recommendations here is a little background information on lenses in general:
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
 
@@ -76,13 +56,6 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -109,10 +82,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -152,13 +125,6 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -172,10 +138,10 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -199,18 +165,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unlicensed-legal-tracks-downloads-for-gaming/"><u>[New] 2024 Approved Unlicensed Legal Tracks Downloads for Gaming</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/opyright-rules-for-screenshotting-and-archiving-youtube-videos/"><u>[New] Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/gnite-engagement-how-to-employ-youtubes-featured-channel-spotlighting-strategies-for-2024/"><u>[New] Ignite Engagement How to Employ YouTube’s Featured Channel Spotlighting Strategies for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagrams-best-practices-for-sensational-video-loops-for-2024/"><u>[Updated] Instagram's Best Practices for Sensational Video Loops for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-starting-free-youtube-ad-campaigns-a-step-by-step-tutorial-for-2024/"><u>[Updated] Starting Free YouTube Ad Campaigns A Step-by-Step Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-the-secrets-to-thriving-with-youtube-adsense/"><u>[Updated] Unveiling the Secrets to Thriving With YouTube AdSense</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-unraveling-youtubes-monetization-policy-overhaul/"><u>2024 Approved Unraveling YouTube’s Monetization Policy Overhaul</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-vivo-s17t-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Vivo S17t to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-itel-a60s-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Itel A60s to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Lenovo ThinkPhone? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-navigating-the-obscured-realm-of-youtube-a-methodical-approach/"><u>In 2024, Navigating the Obscured Realm of YouTube A Methodical Approach</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-vn-video-editor-for-computer-a-concise-review-and-guide/"><u>Updated VN Video Editor for Computer A Concise Review and Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-4k-with-the-new-nikon-d500-camera/"><u>[New] Mastering 4K with the New Nikon D500 Camera</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-new-wave-of-youtube-channel-titles-perfect-for-vloggers-limited-to-156-characters-for-2024/"><u>[New] The New Wave of YouTube Channel Titles Perfect for Vloggers (Limited to 156 Characters) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-dissecting-screencapturex-pros-latest-recording-capabilities/"><u>[Updated] 2024 Approved Dissecting ScreenCaptureX Pro's Latest Recording Capabilities</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-planets-favorites-youtube-sensations-and-their-view-counts/"><u>[Updated] 2024 Approved Planet's Favorites YouTube Sensations and Their View Counts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-from-youtube-to-avi-perfect-conversion-tools-revealed/"><u>[Updated] From YouTube to AVI Perfect Conversion Tools Revealed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[Updated] In 2024, Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-vlogging-tech-our-ranking-of-top-12-video-cameras-for-2024/"><u>[Updated] Pioneering Vlogging Tech Our Ranking of Top 12 Video Cameras for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-transitions-smooth-editing-techniques-for-youtube-content/"><u>[Updated] Seamless Transitions Smooth Editing Techniques for YouTube Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-stealthy-editing-blur-faces-with-picsart/"><u>2024 Approved Stealthy Editing Blur Faces With Picsart</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/a-celebs-brief-appearance-scrutiny-for-2024/"><u>A Celeb’s Brief Appearance Scrutiny for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/convenient-installation-of-asus-usb-bt-drivers-windows-8plus/"><u>Convenient Installation of Asus USB-BT Drivers Windows 8+</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-impress-youtube-video-editing-made-simple/"><u>Cut to Impress YouTube Video Editing Made Simple</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/optimal-audio-bridge-for-podcasters-for-2024/"><u>Optimal Audio Bridge for Podcasters for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-obstacle-unsaved-display-settings-issue-fixed/"><u>Overcoming Obstacle: Unsaved Display Settings Issue Fixed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/music-masterpiece-awaits-step-by-step-to-youtube-playlist-perfection-webmobile/"><u>Your Music Masterpiece Awaits Step-by-Step to YouTube Playlist Perfection (Web/Mobile)</u></a></li>
 </ul></div>
 

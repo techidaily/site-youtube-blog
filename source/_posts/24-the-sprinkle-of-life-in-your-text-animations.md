@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Sprinkle of Life in Your Text Animations"
-date: 2024-09-11T11:13:00.235Z
-updated: 2024-09-12T11:13:00.235Z
+date: 2024-09-14T17:53:54.670Z
+updated: 2024-09-17T17:27:26.293Z
 tags:
   - ai video
   - ai youtube
@@ -31,13 +31,6 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -58,31 +51,11 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
@@ -93,13 +66,6 @@ You can customize the default effect by double-clicking the shake filter in the 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -120,13 +86,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -153,13 +112,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 **Step 2: Customize the Text and Choose Animation Effect**
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -196,21 +148,28 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/levating-business-and-personal-visibility-with-youtube-mobile-edition/"><u>[New] Elevating Business & Personal Visibility with YouTube, Mobile Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/njoy-premium-video-artwork-download-at-no-cost-today/"><u>[New] Enjoy Premium Video Artwork - Download at No Cost Today!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-video-potential-leading-youtube-seo-tools/"><u>[New] In 2024, Unleash Video Potential - Leading YouTube SEO Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-propel-participation-through-tailored-story-inquiry-designs-for-2024/"><u>[New] Propel Participation Through Tailored Story Inquiry Designs for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/op-earners-on-youtube/"><u>[New] Top Earners on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-facebook-live-vs-youtube-live-vs-twitter-periscope/"><u>[Updated] In 2024, Facebook Live Vs YouTube Live Vs Twitter Periscope</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-infographic-premier-fifa-videos-popularity-spotlight-for-2024/"><u>[Updated] Infographic Premier FIFA Videos Popularity Spotlight for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-path-to-a-thriving-instagram-community-for-2024/"><u>[Updated] The Ultimate Path to a Thriving Instagram Community for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-expert-recommended-5-top-drones-on-market/"><u>2024 Approved Expert-Recommended 5 Top Drones on Market</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjust-facebook-friend-views-privacy-control/"><u>Adjust Facebook Friend Views Privacy Control</u></a></li>
-<li><a href="https://os-tips.techidaily.com/comprehensive-troubleshooting-how-to-perform-a-regular-or-hard-restart-on-iphone-devices/"><u>Comprehensive Troubleshooting: How to Perform a Regular or Hard Restart on iPhone Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-play-7t-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Play 7T Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-apple-iphone-8-activation-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 8 Activation Lock</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-achieving-excellence-in-recorded-gaming-experiences/"><u>In 2024, Achieving Excellence in Recorded Gaming Experiences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ize-youtube-savvy-unified-streams-for-enthusiasts-for-2024/"><u>Maximize YouTube Savvy Unified Streams for Enthusiasts for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725284975284-winxvideo-ai/"><u>WinxVideo AI：強化您的影片獲得出色結果的方法</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/harting-financial-success-the-tale-of-ajey-carryminati-and-youtube/"><u>[New] Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-curtail-unrequested-youtube-content-streams/"><u>[New] In 2024, Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nveiling-aspect-ratios-your-pathway-to-youtube-excellence/"><u>[New] Unveiling Aspect Ratios Your Pathway to YouTube Excellence</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-filmmaking-fundamentals-for-the-modern-tiktoker-quick-effective-tips/"><u>[Updated] 2024 Approved Filmmaking Fundamentals for the Modern TikToker Quick, Effective Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-upload-made-easy-your-device-based-guide-for-youtube-shorts/"><u>[Updated] 2024 Approved Upload Made Easy Your Device-Based Guide for YouTube Shorts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-high-quality-6-video-transcription-services/"><u>[Updated] High-Quality 6 Video Transcription Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-image-marketing-dos-vs-donts-explained/"><u>[Updated] YouTube Image Marketing Dos vs Don'ts Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023s-leading-covert-video-download-apps-1-8-for-2024/"><u>2023'S Leading Covert Video Download Apps #1-8 for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instant-access-to-12-high-quality-livestreams/"><u>2024 Approved Instant Access to 12 High-Quality Livestreams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mastering-the-art-of-channel-creation-on-youtube/"><u>2024 Approved Mastering the Art of Channel Creation on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-soundscapes-and-visuals-essentials-for-innovative-asmr-videos-for-2024/"><u>Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-samsung-galaxy-m14-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Samsung Galaxy M14 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-essential-list-7-cost-free-video-tags-extractors-on-youtube/"><u>In 2024, Essential List 7 Cost-Free Video Tags Extractors on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-itel-p55-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Itel P55 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/s-most-popular-video-resume-builders-templates-and-tools-inside-for-2024/"><u>S Most Popular Video Resume Builders Templates and Tools Inside for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-nokia-xr21-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Nokia XR21 with and without jailbreak | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking YouTube Sounds Through Screen Capture\""
-date: 2024-07-13T14:35:14.788Z
-updated: 2024-07-14T14:35:14.788Z
+date: 2024-09-14T18:24:27.376Z
+updated: 2024-09-17T16:00:20.673Z
 tags:
   - ai video
   - ai youtube
@@ -79,14 +79,18 @@ In case if you are interested to record yourself or want to capture just a small
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
 * This file can be exported and saved to a device with the MP3 file format.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 3: Recording Sound with Streaming Audio Recorder
 
@@ -115,6 +119,13 @@ If you want to edit the record audio further, like adjust the audio pitch, remov
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -123,14 +134,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,6 +147,14 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pinnacle-of-presence-a-strategic-approach-for-live-video-graphics/"><u>[New] In 2024, Pinnacle of Presence A Strategic Approach for Live Video Graphics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-revenue-building-for-youtube-creators-for-2024/"><u>[New] Step-by-Step Revenue Building for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-views-velocity-harnessing-powerful-hashtags-for-video-popularity/"><u>[Updated] Views Velocity Harnessing Powerful Hashtags for Video Popularity</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beginners-vlogging-toolkit-gear-and-software-for-2024/"><u>Beginner's Vlogging Toolkit Gear and Software for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/easy-entree-straightforward-screen-capture-methods-dell-for-2024/"><u>Easy Entrée Straightforward Screen Capture Methods (Dell) for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-civi-3-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Xiaomi Civi 3 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/investigating-new-horizons-past-manycams-realm-for-2024/"><u>Investigating New Horizons Past ManyCam's Realm for 2024</u></a></li>
+</ul></div>
 

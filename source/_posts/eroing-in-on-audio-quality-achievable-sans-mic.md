@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Zeroing in on Audio Quality  Achievable Sans Mic\""
-date: 2024-09-11T11:10:27.219Z
-updated: 2024-09-12T11:10:27.219Z
+date: 2024-09-16T18:28:39.291Z
+updated: 2024-09-17T17:29:02.326Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -58,19 +51,6 @@ The biggest problem with the mic built into any camera or phone is just that, si
 For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
 
@@ -85,6 +65,13 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -104,19 +91,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -126,10 +100,10 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
@@ -146,20 +120,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -183,18 +150,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-direct-youtube-to-dazzling-gif-creation-with-no-downloads/"><u>[New] In 2024, Direct YouTube to Dazzling Gif Creation with No Downloads</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-9plus-essential-guides-to-mastering-the-art-of-online-cricket-viewership/"><u>[Updated] 9+ Essential Guides to Mastering the Art of Online Cricket Viewership</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-vlogging-nuances-with-confidence-and-clarity-for-2024/"><u>[Updated] Navigating Vlogging Nuances with Confidence and Clarity for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-starting-free-youtube-ad-campaigns-a-step-by-step-tutorial/"><u>[Updated] Starting Free YouTube Ad Campaigns A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-vanished-videos-watching-youtubes-forgotten-gems-online/"><u>[Updated] Unlocking Vanished Videos Watching YouTube's Forgotten Gems Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/complete-guide-to-transferring-data-from-iphone-x-to-iphone-8-or-plus/"><u>Complete Guide to Transferring Data From iPhone X to iPhone 8 or Plus</u></a></li>
-<li><a href="https://driver-error.techidaily.com/device-event-code-219-wudfrd-loading-issue-detected/"><u>Device Event Code 219: WudfRd Loading Issue Detected</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-youtube-videos-proper-lighting-methods-for-2024/"><u>Enhancing YouTube Videos Proper Lighting Methods for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-says-it-isnt-dying-heres-why/"><u>Facebook Says It Isn't Dying: Here's Why</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-increasing-youtube-shorts-views-effective-tactics/"><u>In 2024, Increasing YouTube Shorts Views Effective Tactics</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigating-iphone-bluetooth-pairing-for-beginners-a-simple-guide/"><u>Navigating iPhone Bluetooth Pairing for Beginners - A Simple Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-itel-p55plus-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Itel P55+? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-role-of-analytics-in-achieving-igtv-viral-status/"><u>The Role of Analytics in Achieving IGTV Viral Status</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/voiding-malpractice-how-to-safely-grow-a-million-fanbase/"><u>[New] Avoiding Malpractice How to Safely Grow a Million Fanbase</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nteractive-elements-crafting-effective-youtube-annotations-for-2024/"><u>[New] Interactive Elements Crafting Effective YouTube Annotations for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/onetizing-carryminati-journey-to-2023-income-for-2024/"><u>[New] Monetizing CarryMinati Journey to 2023 Income for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtubes-best-love-stories-perfectly-captured-weddings/"><u>[Updated] 2024 Approved YouTube's Best Love Stories Perfectly Captured Weddings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-youtube-experience-through-a-subscription/"><u>[Updated] Maximizing YouTube Experience Through a Subscription</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-for-discovering-personal-style-identity/"><u>[Updated] Strategies for Discovering Personal Style Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ideal-screen-re-recorders-for-youtube-performances/"><u>2024 Approved Ideal Screen Re-Recorders for YouTube Performances</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-practices-in-finding-quality-photo-and-video-banners-for-2024/"><u>Best Practices in Finding Quality Photo & Video Banners for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-hp-chromebook-11-analysis-ideal-device-for-academics-professionals-and-gamers/"><u>Comprehensive HP Chromebook 11 Analysis: Ideal Device for Academics, Professionals & Gamers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enhance-your-video-understanding-windows-hdr-for-2024/"><u>Enhance Your Video Understanding Windows HDR for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-xs-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone XS Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-13-mini-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 13 mini in the Best Ways</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-audio-gear-for-streamers-for-2024/"><u>Perfect Audio Gear for Streamers for 2024</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-poco-c51-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Poco C51</u></a></li>
 </ul></div>
 

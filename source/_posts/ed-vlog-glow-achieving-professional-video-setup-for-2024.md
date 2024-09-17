@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vlog Glow  Achieving Professional Video Setup for 2024\""
-date: 2024-09-11T11:17:38.294Z
-updated: 2024-09-12T11:17:38.294Z
+date: 2024-09-15T17:40:09.111Z
+updated: 2024-09-17T16:47:59.363Z
 tags:
   - ai video
   - ai youtube
@@ -33,23 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -63,27 +49,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -111,37 +77,11 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -170,18 +110,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>[New] In 2024, Audio Clarity 10 Pro Tips for High-Quality Recordings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-smooth-integration-of-youtube-playlists-via-web-tech/"><u>[New] In 2024, Smooth Integration of YouTube Playlists via Web Tech</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-bite-sized-beatstories-role-and-tune-fusion/"><u>[Updated] 2024 Approved Bite-Sized Beatstories Role & Tune Fusion</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-5-inspirational-winter-bgs-to-heat-your-videos-for-2024/"><u>[Updated] 5 Inspirational Winter Bgs to Heat Your Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-access-8-top-fb-link-extractors/"><u>[Updated] Exclusive Access 8 Top FB Link Extractors</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expedite-your-file-format-journey-from-srt-to-txt/"><u>[Updated] Expedite Your File Format Journey From SRT to TXT</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-compelling-videos-the-instagram-editors-playbook/"><u>[Updated] In 2024, Crafting Compelling Videos The Instagram Editor's Playbook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-to-the-best-10-affordable-online-channels-for-graphic-design/"><u>[Updated] Navigating to the Best 10 Affordable Online Channels for Graphic Design</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-voice-modification-tools-the-ultimate-guide-for-youtubers/"><u>[Updated] Voice Modification Tools – The Ultimate Guide for YouTubers</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-samsung-galaxy-f04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/enhance-online-presence-discover-manycam-the-leading-virtual-camera-for-seamless-live-video-production/"><u>Enhance Online Presence: Discover ManyCam, the Leading Virtual Camera for Seamless Live Video Production</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-poco-c50-by-drfone-android/"><u>How to Bypass FRP on Poco C50?</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-vivo-v27e-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-crafting-compelling-end-screens-in-youtube-videos/"><u>[New] In 2024, Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-8-pitfalls-for-novice-youtube-creators/"><u>[New] In 2024, Top 8 Pitfalls for Novice YouTube Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevating-video-discoverability-with-strategic-tagging-on-youtube-for-2024/"><u>[Updated] Elevating Video Discoverability with Strategic Tagging on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-free-access-worlds-biggest-youtube-short-downloaders/"><u>[Updated] In 2024, Free Access World’s Biggest YouTube Short Downloaders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-twisting-the-tale-a-comprehensively-dual-angled-approach-for-insta-posts/"><u>[Updated] Twisting the Tale A Comprehensively Dual-Angled Approach for Insta Posts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/curated-selection-prime-uk-dramas-and-comedies-streaming-now-on-netflix/"><u>Curated Selection: Prime UK Dramas and Comedies Streaming Now on Netflix</u></a></li>
+<li><a href="https://fox-info.techidaily.com/from-raw-footage-to-final-product-using-windows-10-for-editing-success/"><u>From Raw Footage to Final Product Using Windows 10 for Editing Success</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/nfc-capabilities-on-your-android-device-understanding-and-applications/"><u>NFC Capabilities on Your Android Device - Understanding & Applications</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-lava-storm-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Lava Storm 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleashing-potential-remote-firmware-sync-up-tactics/"><u>Unleashing Potential: Remote Firmware Sync-Up Tactics</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

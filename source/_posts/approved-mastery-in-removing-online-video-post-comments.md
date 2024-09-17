@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastery in Removing Online Video Post-Comments\""
-date: 2024-07-13T14:36:09.003Z
-updated: 2024-07-14T14:36:09.003Z
+date: 2024-09-13T18:29:35.609Z
+updated: 2024-09-17T17:38:51.870Z
 tags:
   - ai video
   - ai youtube
@@ -111,15 +111,32 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -130,20 +147,30 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +179,15 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>[New] Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/onetizing-carryminati-journey-to-2023-income-for-2024/"><u>[New] Monetizing CarryMinati Journey to 2023 Income for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-reimagining-mobile-photoshopping-iphone-x-insights-for-2024/"><u>[New] Reimagining Mobile Photoshopping IPhone X Insights for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtubes-best-love-stories-perfectly-captured-weddings/"><u>[Updated] 2024 Approved YouTube's Best Love Stories Perfectly Captured Weddings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-vitas-editing-world-complete-review-and-tutorial/"><u>[Updated] Navigating Vita's Editing World Complete Review & Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-entry-level-equipment-checklist-for-youtube-success-for-2024/"><u>[Updated] Your Entry-Level Equipment Checklist for YouTube Success for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-lava-yuva-2-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Lava Yuva 2 Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-the-secret-how-to-display-youtube-playlists-on-websites-for-2024/"><u>Unlocking the Secret How to Display YouTube Playlists on Websites for 2024</u></a></li>
+</ul></div>
 

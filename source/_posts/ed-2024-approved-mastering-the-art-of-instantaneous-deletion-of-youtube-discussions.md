@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering the Art of Instantaneous Deletion of YouTube Discussions\""
-date: 2024-07-13T14:38:09.208Z
-updated: 2024-07-14T14:38:09.208Z
+date: 2024-09-15T18:21:47.597Z
+updated: 2024-09-17T16:19:56.718Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -101,6 +108,13 @@ To find your History from your desktop, you need to click on the three horizonta
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -122,8 +136,12 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -136,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +167,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-best-apps-for-keeping-your-linkedin-vids-safe-and-sound/"><u>[New] In 2024, The Best Apps for Keeping Your LinkedIn Vids Safe & Sound</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ios-and-android-asmr-experience-leaders/"><u>[Updated] 2024 Approved IOS and Android ASMR Experience Leaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-practices-choosing-youtubes-most-popular-video-formats-for-2024/"><u>[Updated] Best Practices Choosing YouTube's Most Popular Video Formats for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-cinematic-content-with-precision-ratios/"><u>[Updated] Crafting Cinematic Content with Precision Ratios</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-discover-the-future-of-screens-with-camstudios-2023-review/"><u>[Updated] Discover the Future of Screens with CamStudio's 2023 Review</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-discover-the-most-popular-screen-recorders-free-version-for-2024/"><u>[Updated] Discover the Most Popular Screen Recorders - Free Version for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-earnings-in-beauty-vlogs-for-2024/"><u>[Updated] Maximizing Earnings in Beauty Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-impact-crafting-free-ad-videos-for-youtube/"><u>[Updated] Maximizing Impact Crafting Free Ad Videos for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-secrets-of-effective-free-youtube-video-transcriptions-revealed-for-2024/"><u>[Updated] The Secrets of Effective, FREE YouTube Video Transcriptions Revealed for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-screen-grab-analysis-a-comparative-look-at-leading-software/"><u>2024 Approved Screen Grab Analysis A Comparative Look at Leading Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-power-of-politeness-in-growing-your-audience/"><u>2024 Approved The Power of Politeness in Growing Your Audience</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/effortless-edits-streamlining-your-tiktok-archives-excessive-saves/"><u>Effortless Edits Streamlining Your TikTok Archive's Excessive Saves</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/overcome-distorted-voice-in-virtual-meetings-for-2024/"><u>Overcome Distorted Voice in Virtual Meetings for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-vivo-y28-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Vivo Y28 5G Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-guide-overcoming-torrent-blocks-and-exploring-safe-site-substitutes/"><u>Ultimate Guide: Overcoming Torrent Blocks and Exploring Safe Site Substitutes</u></a></li>
+</ul></div>
 

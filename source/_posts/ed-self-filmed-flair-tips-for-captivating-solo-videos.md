@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Self-Filmed Flair  Tips for Captivating Solo Videos\""
-date: 2024-09-11T11:12:55.032Z
-updated: 2024-09-12T11:12:55.032Z
+date: 2024-09-12T17:48:10.187Z
+updated: 2024-09-17T16:48:21.820Z
 tags:
   - ai video
   - ai youtube
@@ -42,21 +42,7 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -71,13 +57,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -102,10 +81,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -130,26 +109,13 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -173,17 +139,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/levate-your-online-presence-audios-for-your-channel-for-2024/"><u>[New] Elevate Your Online Presence Audios for Your Channel for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-cut-to-perfection-producing-captivating-loop-content-for-instagram/"><u>[Updated] Cut to Perfection Producing Captivating Loop Content for Instagram</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-vimeo-simplified-platform-for-content-creators/"><u>[Updated] In 2024, Vimeo Simplified Platform for Content Creators</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-online-presence-yt-descriptive-insights/"><u>[Updated] Streamline Your Online Presence YT Descriptive Insights</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-checklist-for-growing-youtube-subscribers-for-2024/"><u>[Updated] The Ultimate Checklist for Growing YouTube Subscribers for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-troubleshooting-tips-for-the-mystery-of-hidden-shorts-thumbnails/"><u>[Updated] Troubleshooting Tips for the Mystery of Hidden Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-easy-guide-turning-your-favorite-youtube-videos-into-animated-gifs/"><u>2024 Approved Easy Guide Turning Your Favorite YouTube Videos Into Animated GIFs</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-closes-door-on-instagram-threads/"><u>December Closes Door on Instagram Threads</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-nokia-c12-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-the-multimedia-split-screen-experience-with-sierra-os-for-2024/"><u>Mastering the Multimedia Split-Screen Experience with Sierra OS for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/revolutionize-your-marketing-strategy-with-cookiebot-solutions/"><u>Revolutionize Your Marketing Strategy with Cookiebot Solutions</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-honor-x9a-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Honor X9a Phone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-obs-issue-full-screen-bug-fixed/"><u>[New] In 2024, Obs Issue Full-Screen Bug Fixed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-t-series-youtube-revenue-an-overview/"><u>[New] In 2024, T-Series YouTube Revenue An Overview</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aster-control-over-your-youtube-viewing-rhythm-for-2024/"><u>[New] Master Control Over Your YouTube Viewing Rhythm for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-art-of-instagrams-visual-storytelling/"><u>[Updated] Mastering the Art of Instagram's Visual Storytelling</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-tips-to-develop-engaging-lifestyle-enlightenment-vids/"><u>2024 Approved Tips to Develop Engaging Lifestyle Enlightenment Vids</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/a-deep-dive-into-durecorders-full-range/"><u>A Deep Dive Into DuRecorder's Full Range</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-reno-10-pro-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Oppo Reno 10 Pro 5G</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-securely-download-and-install-nvidias-3d-vision-drivers-for-windows-without-spending-a-penny/"><u>How to Securely Download and Install Nvidia's 3D Vision Drivers for Windows - Without Spending a Penny</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-on-your-apple-iphone-11-pro-max-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled On your Apple iPhone 11 Pro Max? How to Fix</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/is-your-iphone-11-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your iPhone 11 in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/master-the-fixes-for-halo-4-ue4-catastrophic-system-failures-your-comprehensive-guide/"><u>Master the Fixes for Halo 4 UE4 Catastrophic System Failures - Your Comprehensive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-world-trips-with-pals-metaverse-classics/"><u>Virtual World Trips with Pals Metaverse Classics</u></a></li>
 </ul></div>
 

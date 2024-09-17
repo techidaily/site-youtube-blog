@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Self-Filmed Brilliance  Secrets for YouTube Success\""
-date: 2024-07-13T14:39:14.751Z
-updated: 2024-07-14T14:39:14.751Z
+date: 2024-09-16T17:17:00.384Z
+updated: 2024-09-17T16:37:37.073Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -68,6 +65,19 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -101,20 +111,24 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +137,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-promote-your-youtube-channel-with-high-impact-showcase-techniques-for-2024/"><u>[New] How to Promote Your YouTube Channel with High-Impact Showcase Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-your-viewing-experience-on-youtube-with-speed-settings/"><u>[New] In 2024, Optimize Your Viewing Experience on YouTube with Speed Settings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-discovering-the-top-5-smarter-url-lengtheners-for-youtube/"><u>[Updated] 2024 Approved Discovering the Top 5 Smarter URL Lengtheners for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ranking-reign-supreme-with-these-11-video-seo-techniques-on-youtube/"><u>[Updated] 2024 Approved Ranking Reign Supreme with These 11 Video SEO Techniques on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exemplary-audio-enhancing-programs-for-youtube-artists/"><u>[Updated] Exemplary Audio-Enhancing Programs for YouTube Artists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-youtubing-avoiding-the-top-8-newbie-errors/"><u>[Updated] Mastering the Art of YouTubing Avoiding the Top 8 Newbie Errors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-guide-to-smart-video-money-making-on-platforms/"><u>[Updated] The Guide to Smart Video Money-Making on Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-the-ways-for-fee-free-pictorial-clips/"><u>2024 Approved Navigating the Ways for Fee-Free Pictorial Clips</u></a></li>
+<li><a href="https://win11.techidaily.com/altering-output-displays-in-window-based-os/"><u>Altering Output Displays in Window-Based OS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-world-of-spotifys-advertising-landscape-for-2024/"><u>Navigating the World of Spotify's Advertising Landscape for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/sony-fdr-x1000-videography-complete-review-edition-for-2024/"><u>Sony FDR-X1000 Videography - Complete Review Edition for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-installation-of-beta-quadrant-addon-for-kodi-users-seeking-247-streaming-options-tv-channels-and-movies/"><u>Step-by-Step Installation of Beta Quadrant Addon for Kodi Users Seeking 24/7 Streaming Options, TV Channels, and Movies</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-11-pro-max-without-passcode-easily-by-drfone-ios/"><u>Unlock Apple iPhone 11 Pro Max Without Passcode Easily</u></a></li>
+</ul></div>
 

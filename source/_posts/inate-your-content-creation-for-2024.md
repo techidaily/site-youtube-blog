@@ -1,7 +1,7 @@
 ---
 title: "Illuminate Your Content Creation for 2024"
-date: 2024-09-11T11:15:26.364Z
-updated: 2024-09-12T11:15:26.364Z
+date: 2024-09-16T17:18:27.985Z
+updated: 2024-09-17T16:58:11.537Z
 tags:
   - ai video
   - ai youtube
@@ -33,13 +33,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
@@ -56,27 +49,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -104,50 +77,17 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -170,14 +110,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-design-ideas-top-6-mc-village-residences/"><u>[New] 2024 Approved Design Ideas Top 6 MC Village Residences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/levating-your-gameplay-on-youtube-with-these-essential-tags/"><u>[New] Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[Updated] In 2024, Perfecting MP4 Segments Best Tools For Mac Filmmakers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-tactical-video-migration-youtube-to-dailymotion-masterclass/"><u>[Updated] In 2024, Tactical Video Migration YouTube to Dailymotion Masterclass</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-intersection-of-youtube-and-fb-video-posts/"><u>[Updated] Navigating the Intersection of YouTube and FB Video Posts</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ensure-compatibility-insignia-ns-pcy5bma2-driver-download-for-windows-71011/"><u>Ensure Compatibility: Insignia NS-PCY5BMA2 Driver Download for Windows 7/10/11</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-the-art-of-remote-podcast-production/"><u>Mastering the Art of Remote Podcast Production</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-10-music-videos-on-facebook-how-to-make-a-facebook-song-video-in-2024/"><u>Top 10 Music Videos on Facebook | How to Make A Facebook Song Video, In 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unpacking-the-versatile-use-cases-for-chatgpt/"><u>Unpacking the Versatile Use Cases for ChatGPT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-guaranteed-method-to-keep-youtube-shorts-out-of-sight/"><u>[Updated] 2024 Approved Guaranteed Method to Keep YouTube Shorts Out of Sight</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-cross-platform-streaming-techniques-from-youtube-to-30plus-platforms/"><u>[Updated] In 2024, Cross-Platform Streaming Techniques From YouTube to 30+ Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-your-musical-voice-a-compree-play-by-play-guide-for-youtube-playlist-crafting-for-2024/"><u>[Updated] Unleashing Your Musical Voice A Compree Play-by-Play Guide for YouTube Playlist Crafting for 2024</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-tecno-camon-20-premier-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Tecno Camon 20 Premier 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/convenient-procedures-for-recording-screen-chats-for-2024/"><u>Convenient Procedures for Recording Screen Chats for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-unbiased-avs-video-editor-review-is-it-right-for-you/"><u>In 2024, Unbiased AVS Video Editor Review Is It Right for You?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-samsung-un65ru8000fxza-advanced-smart-features-meet-exquisite-design/"><u>In-Depth Look at the Samsung UN65RU8000FXZA: Advanced Smart Features Meet Exquisite Design</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

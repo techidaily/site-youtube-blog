@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Personalizing Public vs Private Settings on YouTube"
-date: 2024-09-11T11:16:22.934Z
-updated: 2024-09-12T11:16:22.934Z
+date: 2024-09-10T17:56:58.432Z
+updated: 2024-09-17T17:38:41.020Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -82,34 +75,13 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -117,38 +89,32 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -172,17 +138,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/oost-views-with-smart-youtube-backlink-tactics-for-2024/"><u>[New] Boost Views with Smart YouTube Backlink Tactics for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-selecting-webcams-for-youtube-live/"><u>[New] In 2024, The Ultimate Guide to Selecting Webcams for YouTube Live</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-foremost-video-starters-the-leading-16-youtube-openers/"><u>[Updated] 2024 Approved Foremost Video Starters The Leading 16 YouTube Openers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-leveraging-regular-content-posts-for-enhanced-youtube-traffic/"><u>[Updated] 2024 Approved Leveraging Regular Content Posts for Enhanced YouTube Traffic</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-precision-editing-unveiled-harnessing-the-potential-of-ps-background-erasure-feature/"><u>[Updated] 2024 Approved Precision Editing Unveiled Harnessing the Potential of PS Background Erasure Feature</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-creating-on-the-side-balancing-employment-with-youtube/"><u>[Updated] In 2024, Creating on the Side Balancing Employment with YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-video-valuation-the-ultimate-guide-to-2024-earnings/"><u>[Updated] Maximizing Video Valuation The Ultimate Guide to 2024 Earnings</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-top-7-budget-pc-screenshot-and-recording-apps-for-2024/"><u>[Updated] Top 7 Budget PC Screenshot & Recording Apps for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-decoding-funimates-downloading-mechanics-easily/"><u>2024 Approved Decoding Funimate's Downloading Mechanics Easily</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-techniques-for-saving-snapchat-videos/"><u>In 2024, Innovative Techniques for Saving Snapchat Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-xiaomi-redmi-note-13-proplus-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Xiaomi Redmi Note 13 Pro+ 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-chatgpt-enterprise-features-benefits-and-unique-selling-points/"><u>Understanding ChatGPT Enterprise: Features, Benefits & Unique Selling Points</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streamline-your-online-listening-experience-with-direct-capture/"><u>[Updated] 2024 Approved Streamline Your Online Listening Experience with Direct Capture</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-monthly-earnings-potential-on-youtube/"><u>[Updated] Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-editors-guide-best-for-youtube-content/"><u>[Updated] The Ultimate Editor's Guide Best for YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-essential-ios-video-editor-apps-top-10-best-to-know/"><u>2024 Approved Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
+<li><a href="https://article-helps.techidaily.com/dynamic-14-visual-expressions-with-text-animation-for-2024/"><u>Dynamic 14 Visual Expressions with Text Animation for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exploring-the-best-of-android-does-pickup-lead-photo-editing-tools/"><u>Exploring the Best of Android Does PickUp Lead Photo Editing Tools?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-honor-play-40c-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Honor Play 40C For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/leading-screen-grabbers-top-picks-for-windows-11-for-2024/"><u>Leading Screen Grabbers Top Picks for Windows 11 for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unveiling-t5s-ability-to-capture-excitement-and-adventure/"><u>Unveiling T5's Ability to Capture Excitement and Adventure</u></a></li>
 </ul></div>
 

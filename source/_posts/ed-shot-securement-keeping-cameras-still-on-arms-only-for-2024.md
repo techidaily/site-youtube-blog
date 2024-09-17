@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shot Securement  Keeping Cameras Still on Arms Only for 2024\""
-date: 2024-07-13T14:34:44.117Z
-updated: 2024-07-14T14:34:44.117Z
+date: 2024-09-16T17:40:33.791Z
+updated: 2024-09-17T17:23:08.976Z
 tags:
   - ai video
   - ai youtube
@@ -57,9 +57,6 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -77,6 +74,19 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -84,6 +94,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -111,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +141,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-universal-approach-how-to-record-any-youtube-stream-on-different-devices-for-2024/"><u>[New] Universal Approach How To Record Any YouTube Stream on Different Devices for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716070074476-updated-from-gameplay-to-legacy-proven-strategies-for-documenting-a-sims-in-game-saga-in-sims-4-for-2024/"><u>[Updated] From Gameplay to Legacy Proven Strategies for Documenting a Sim’s In-Game Saga in Sims 4. For 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/1716469714290-updated-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>[Updated] How to Join Someone’s Live on TikTok as a Guest</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-free-youtube-intros-and-templates-for-2024/"><u>[Updated] The Ultimate Guide to Free YouTube Intros & Templates for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-masterclass-on-minimizing-video-footage-in-youtube/"><u>2024 Approved Masterclass on Minimizing Video Footage in YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-your-content-anytime-anywhere-choose-from-these-best-free-and-online-downloads/"><u>2024 Approved Your Content, Anytime, Anywhere Choose From These Best Free & Online Downloads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/deciphering-the-auto-cut-functionality-in-imovie/"><u>Deciphering the Auto-Cut Functionality in iMovie</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fix-youtube-videos-with-audio-but-no-visuals-a-guide-for-chrome-and-firefox-users/"><u>Fix YouTube Videos with Audio but No Visuals: A Guide for Chrome & Firefox Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-excel-2021-vba-runtime-error-9-subscript-out-of-range-stellar-by-stellar-guide/"><u>Fixed Excel 2021 VBA Runtime Error 9 Subscript Out of Range | Stellar</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-videos-best-music-dance-and-responses-23/"><u>Hot YT Videos Best Music Dance & Responses '23</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-developer-cant-be-verified-on-your-mac-a-step-by-step-guide/"><u>Resolving 'Developer Can't Be Verified' On Your Mac: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

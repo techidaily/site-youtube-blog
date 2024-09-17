@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Narrating Your Journey  Channeling Authenticity Online. For 2024\""
-date: 2024-09-11T11:16:49.717Z
-updated: 2024-09-12T11:16:49.717Z
+date: 2024-09-13T16:49:24.092Z
+updated: 2024-09-17T16:46:21.137Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,6 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
@@ -65,33 +58,27 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
@@ -101,16 +88,22 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -120,19 +113,6 @@ This is probably one of the easiest ways to share things about yourself when sta
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -140,10 +120,10 @@ YouTube live videos are probably the best ways to interact and share your story 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -167,18 +147,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-double-down-on-your-youtube-success-in-a-month/"><u>[New] In 2024, How to Double Down on Your YouTube Success in a Month</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-livestream-landscape-analysis-fb-live-vs-yt-live-and-tweettv/"><u>[New] In 2024, Livestream Landscape Analysis FB LIVE Vs. YT Live & TweetTV</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/astering-quick-youtube-comment-removal-techniques/"><u>[New] Mastering Quick YouTube Comment Removal Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-experts-choice-extracting-youtube-video-intros-online/"><u>[Updated] Expert's Choice Extracting Youtube Video Intros Online</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-navigating-the-world-of-audio-editing-in-audacity-for-mac-devices/"><u>[Updated] In 2024, Navigating the World of Audio Editing in Audacity for Mac Devices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-melody-migration-made-easy-a-guide-to-the-best-free-youtube-downloading-apps/"><u>[Updated] Melody Migration Made Easy A Guide to the Best Free YouTube Downloading Apps</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-tech-savvy-guide-to-excellent-recording-apps-for-2024/"><u>[Updated] Tech-Savvy Guide to Excellent Recording Apps for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unbeatable-online-and-desktop-gif-maker-options-for-2024/"><u>[Updated] Unbeatable Online & Desktop GIF Maker Options for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-world-of-digital-photo-manipulation/"><u>In 2024, Exploring the World of Digital Photo Manipulation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-finding-the-most-skilled-film-capturers/"><u>In 2024, Finding the Most Skilled Film Capturers</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-motion-tracking-for-text-the-top-software-choices/"><u>New Motion Tracking for Text The Top Software Choices</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/speedy-fix-guide-reactivating-silent-dell-systems-with-ease/"><u>Speedy Fix Guide: Reactivating Silent Dell Systems with Ease</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ssential-guide-to-making-youtube-thumbnails-for-mobile-storytellers-for-2024/"><u>The Essential Guide to Making YouTube Thumbnails for Mobile Storytellers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-masterclass-carving-out-your-digital-self/"><u>[Updated] In 2024, YouTube Masterclass Carving Out Your Digital Self</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-is-investing-in-a-monthly-youtube-premium-worthwhile-in-2024/"><u>[Updated] Is Investing in a Monthly YouTube Premium Worthwhile, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>[Updated] Seamless Playlist Transfer Migrating From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-a-beginners-guide-to-instagram-story-feature/"><u>2024 Approved A Beginner's Guide to Instagram Story Feature</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-bridging-social-platforms-a-guide-for-linktree-on-tiktok-profiles/"><u>2024 Approved Bridging Social Platforms A Guide for Linktree on TikTok Profiles</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/accelerate-firefox-performance-instantly-discover-10-tips-for-a-5x-speed-boost/"><u>Accelerate Firefox Performance Instantly: Discover 10 Tips for a 5X Speed Boost</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/calculating-costs-music-video-filming/"><u>Calculating Costs Music Video Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tial-video-marketing-strategies-top-8-verified-services-for-2024/"><u>Essential Video Marketing Strategies Top 8 Verified Services for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-apple-iphone-11-pro-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From Apple iPhone 11 Pro Smoothly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-quintessential-writes-for-diverse-cinematic-fields/"><u>In 2024, Quintessential Writes for Diverse Cinematic Fields</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-playlist-in-10-seconds-youtube-shorts-explained/"><u>In 2024, The Ultimate Playlist in 10 Seconds YouTube Shorts Explained</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-iphones-silent-mode-a-step-by-step-guide/"><u>Solving iPhone's Silent Mode: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-to-fix-the-error-of-absent-libeay32dll-file/"><u>Troubleshooting Tips to Fix the Error of Absent Libeay32.dll File</u></a></li>
 </ul></div>
 

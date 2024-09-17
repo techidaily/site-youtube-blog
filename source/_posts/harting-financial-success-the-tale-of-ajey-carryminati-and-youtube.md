@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Charting Financial Success  The Tale of Ajey (CarryMinati) and YouTube\""
-date: 2024-09-11T11:17:22.218Z
-updated: 2024-09-12T11:17:22.218Z
+date: 2024-09-11T16:23:42.017Z
+updated: 2024-09-17T16:00:06.386Z
 tags:
   - ai video
   - ai youtube
@@ -141,13 +141,6 @@ Step1 Launch the installed software on your system and add the media file to the
 
 ![wondershare filmora ai portrait 1](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-03.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Next, go to Effects > Ai Portrait, and the options of the features can be checked here. Click on the thumbnail and the feature can be viewed in the preview window.
 
 ![wondershare filmora ai portrait 2](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-05.jpg)
@@ -156,33 +149,20 @@ Step3 Drag the selected Portrait to the timeline and from the pop-up window choo
 
 ![wondershare filmora ai portrait 3](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-06.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 If further customization is needed, you can even adjust the AI Portrait settings.
 
 ![wondershare filmora ai portrait 4](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-07.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 When finally, all the settings are done, click on the Export button to save the file.
 
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hot FAQs on CarryMinati
 
@@ -191,13 +171,6 @@ Below we have answered some hot frequently asked questions about CarryMinati.
 ### 1\. Is Carry Minati married?
 
 No, till date, CarryMinati aka Ajay Nagar is not married.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How much CarryMinati earn from 1 video?
 
@@ -210,29 +183,16 @@ Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Hen
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -263,19 +223,6 @@ A major part of Ajay Nagar’s income comes from YouTube videos and in addition 
 | Last 30 Days Views                              | 35 M+                                              |
 
 The statistics related to the views and income about CarryMinati are quite interesting and this makes everyone curious about what makes the channel and this person so popular on YouTube. If you too have been curious about the same, head to our next section.
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Why is Carry Minati trending on YouTube?
 
@@ -309,13 +256,6 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -329,10 +269,10 @@ This video is about the Indian Film Industry and the awards given to the stars. 
 It is an interesting video of around 17 minutes where Ajay Nagar has acted along with other people to create a fun plot based of PUBG game.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus Tip: How to be a YouTuber and Make Videos like Carryminati
@@ -364,22 +304,15 @@ Step1 Launch the installed software on your system and add the media file to the
 ![wondershare filmora ai portrait 1](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-03.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Next, go to Effects > Ai Portrait, and the options of the features can be checked here. Click on the thumbnail and the feature can be viewed in the preview window.
 
 ![wondershare filmora ai portrait 2](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-05.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Drag the selected Portrait to the timeline and from the pop-up window choose to Purchase the additional module. You can check the result by playing the video. If needed multiple AI Portraits can be added to the video.
 
@@ -389,56 +322,23 @@ Step4 If further customization is needed, you can even adjust the AI Portrait se
 
 ![wondershare filmora ai portrait 4](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-07.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 When finally, all the settings are done, click on the Export button to save the file.
 
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Hot FAQs on CarryMinati
 
 Below we have answered some hot frequently asked questions about CarryMinati.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Is Carry Minati married?
 
 No, till date, CarryMinati aka Ajay Nagar is not married.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How much CarryMinati earn from 1 video?
@@ -482,17 +382,14 @@ If you too have got inspired and looking forward to starting with some interesti
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-discovering-the-stars-of-youtubes-best-music-videos-2023/"><u>[New] 2024 Approved Discovering the Stars of YouTube's Best Music Videos, 2023</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-tinyflicker-log-capture-and-competing-tools/"><u>[New] In 2024, TinyFlicker Log Capture & Competing Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visual-storytelling-at-its-best-the-quintessential-5-techniques/"><u>[Updated] Visual Storytelling at Its Best The Quintessential 5 Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-free-video-magic-top-5-effect-tools/"><u>2024 Approved Free Video Magic Top 5 Effect Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-samsung-galaxy-a34-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Samsung Galaxy A34 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-edge-video-tools-opt-for-studio-or-latest-beta-version/"><u>Cutting-Edge Video Tools Opt for Studio or Latest Beta Version</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-resident-evil-village-performance-problems-on-pc-expert-tips-and-solutions/"><u>Fixing Resident Evil Village Performance Problems on PC: Expert Tips & Solutions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-film-grading-a-deep-dive-into-cg-centrals-look-up-tables/"><u>In 2024, Perfecting Film Grading A Deep Dive Into CG Central's Look-Up Tables</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-tech-enthusiasts-review-the-top-10-sdk-enhanced-apps-for-fb-videos-on-android/"><u>In 2024, Tech Enthusiast's Review The Top 10 SDK-Enhanced Apps for FB Videos on Android</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-memes-kinemaster-guide/"><u>Mastering Memes KineMaster Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-tags-the-ultimate-guide-for-video-optimization/"><u>Mastering Tags The Ultimate Guide for Video Optimization</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ms-that-win-top-picks-for-youtube-stream-success-for-2024/"><u>Webcams that Win Top Picks for YouTube Stream Success for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-curtail-unrequested-youtube-content-streams/"><u>[New] In 2024, Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-jump-cuts-to-improve-video-flow/"><u>[New] Leveraging Jump Cuts to Improve Video Flow</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nveiling-aspect-ratios-your-pathway-to-youtube-excellence/"><u>[New] Unveiling Aspect Ratios Your Pathway to YouTube Excellence</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-speedy-shots-for-immersive-narratives/"><u>[Updated] Speedy Shots for Immersive Narratives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-image-marketing-dos-vs-donts-explained/"><u>[Updated] YouTube Image Marketing Dos vs Don'ts Explained</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mastering-the-art-of-channel-creation-on-youtube/"><u>2024 Approved Mastering the Art of Channel Creation on YouTube</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-immediately-force-quit-stalled-window-software-a-step-by-step-walkthrough/"><u>How To Immediately Force Quit Stalled Window Software – A Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mastering-facebook-8-top-movie-downloader-rankings/"><u>Mastering Facebook #8 Top Movie Downloader Rankings</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-sound-glitches-on-windows-11-error-0xc00d36b4/"><u>Tackling Sound Glitches on Windows 11: Error 0XC00D36B4</u></a></li>
 </ul></div>
 
