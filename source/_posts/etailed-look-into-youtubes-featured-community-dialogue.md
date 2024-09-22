@@ -1,7 +1,7 @@
 ---
 title: "[New] Detailed Look Into YouTube's Featured Community Dialogue"
-date: 2024-07-13T14:31:05.850Z
-updated: 2024-07-14T14:31:05.850Z
+date: 2024-09-16T18:38:16.761Z
+updated: 2024-09-22T18:26:29.778Z
 tags:
   - ai video
   - ai youtube
@@ -54,9 +54,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -83,6 +80,13 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -92,6 +96,13 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -137,20 +148,24 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,6 +174,17 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-link-downloader-bundle-access-to-8-free-online-solutions-for-2024/"><u>[New] FB Link Downloader Bundle Access to 8 Free, Online Solutions for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-equipment-starter-guide-for-beginners/"><u>[New] YouTube Equipment Starter Guide For Beginners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unpacking-youtubes-income-distribution-from-1m-viewers-for-2024/"><u>[Updated] Unpacking YouTube's Income Distribution From 1M Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-yts-game-changers-the-elite-ladies-in-gaming-for-2024/"><u>[Updated] YT's Game Changers The Elite Ladies in Gaming for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-privacy-prioritized-procedures-uploading-and-sending-youtube-files-via-google/"><u>2024 Approved Privacy-Prioritized Procedures Uploading and Sending YouTube Files via Google</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-elevate-your-characters-audio-presence-in-free-fire-naturally/"><u>In 2024, How to Elevate Your Character's Audio Presence in Free Fire, Naturally</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-innovative-approaches-to-craft-compelling-asmr-videos-for-mass-appeal/"><u>In 2024, Innovative Approaches to Craft Compelling ASMR Videos for Mass Appeal</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-precision-adjustments-correcting-iphone-video-washout-in-premiere-pro/"><u>In 2024, Precision Adjustments Correcting iPhone Video Washout in Premiere Pro</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-the-art-of-creating-chill-atmospheres-a-guide-to-using-layer-transparency-and-motion-effects/"><u>Mastering the Art of Creating Chill Atmospheres: A Guide to Using Layer Transparency and Motion Effects</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-vivo-y100i-power-5g-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Vivo Y100i Power 5G Phone</u></a></li>
+</ul></div>
 

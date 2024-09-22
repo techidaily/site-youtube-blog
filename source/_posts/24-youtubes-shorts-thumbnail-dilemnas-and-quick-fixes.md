@@ -1,7 +1,7 @@
 ---
 title: "In 2024, YouTube's Shorts Thumbnail Dilemnas & Quick Fixes"
-date: 2024-09-13T18:18:52.089Z
-updated: 2024-09-17T17:26:42.977Z
+date: 2024-09-15T16:51:02.626Z
+updated: 2024-09-22T16:01:57.388Z
 tags:
   - ai video
   - ai youtube
@@ -130,6 +130,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
@@ -138,21 +145,28 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -177,23 +191,9 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### On a Desktop Computer
 
@@ -214,10 +214,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -226,16 +226,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -276,20 +276,20 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-easily-enable-offline-access-to-youtube-on-iphoneipad/"><u>[New] 2024 Approved Easily Enable Offline Access to YouTube on iPhone/iPad</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-tricks-for-speedy-vimeo-streams/"><u>[New] 2024 Approved Tricks for Speedy Vimeo Streams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-2023s-top-social-moment-infographics/"><u>[New] In 2024, 2023'S Top Social Moment Infographics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-break-through-bot-barriers-rising-from-the-crowd/"><u>[Updated] Break Through Bot Barriers Rising From the Crowd</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-video-quality-from-youtube-to-crisp-avis-format/"><u>[Updated] Elevate Video Quality From YouTube to Crisp Avis Format</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-instagram-video-performance-desktop-for-2024/"><u>[Updated] Enhancing Instagram Video Performance (Desktop) for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-the-best-tools-to-download-your-favorite-fb-videos-on-firefox-updated/"><u>[Updated] In 2024, Unveiling the Best Tools to Download Your Favorite FB Videos on FireFox, Updated</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-tags-in-gaming-videos-for-2024/"><u>[Updated] Mastering the Art of Tags in Gaming Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-overhauen-uncovering-hidden-shorts-content/"><u>[Updated] Overhauen Uncovering Hidden Shorts Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-guide-to-exporting-pinterest-videos-into-mp3-format/"><u>2024 Approved Guide to Exporting Pinterest Videos Into MP3 Format</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-infographic-review-fifa-video-gains-on-social-platforms/"><u>2024 Approved Infographic Review FIFA Video Gains on Social Platforms</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-magic5-ultimate-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Magic5 Ultimate to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/scent-of-jake-paul-in-online-video-fame-for-2024/"><u>The Ascent of Jake Paul in Online Video Fame for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-lava-yuva-2-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Lava Yuva 2 Pro FRP Bypass</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-narrative-brilliance-a-guide-on-leveraging-chatgpt-for-stellar-storytelling/"><u>Unlocking Narrative Brilliance: A Guide on Leveraging ChatGPT for Stellar Storytelling</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/obile-editing-hacks-select-top-10-short-form-apps-for-2024/"><u>[New] Mobile Editing Hacks Select Top 10 Short Form Apps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-10-steps-to-become-a-successful-smm/"><u>[Updated] In 2024, 10 Steps to Become a Successful SMM</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ideal-acquisitions-starting-off-with-profitable-youtube-channel-buys/"><u>[Updated] In 2024, Ideal Acquisitions Starting Off with Profitable YouTube Channel Buys</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-video-quality-enabling-av1-on-youtube-for-2024/"><u>[Updated] Maximizing Video Quality Enabling AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-syma-x5c-reviewed-ideal-entry-level-flying-machine/"><u>2024 Approved Syma X5C Reviewed Ideal Entry-Level Flying Machine</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-fixes-to-resolve-missing-or-not-found-errors-with-d3dx924dll/"><u>Essential Fixes to Resolve 'Missing or Not Found' Errors with d3dx9_24.dll</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/has-ai-outpaced-openais-restraint/"><u>Has AI Outpaced OpenAI's Restraint?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-in-depth-analysis-freelens-webcam-recorder-app/"><u>In 2024, In-Depth Analysis Freelens Webcam Recorder App</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-luminary-developers-transforming-vr-landscapes/"><u>In 2024, The Luminary Developers Transforming VR Landscapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/imensions-youtube-titles-and-images-that-work-for-2024/"><u>Key Dimensions YouTube Titles & Images That Work for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-rectifying-6-common-gpt-errors/"><u>Mastering the Art of Rectifying 6 Common GPT Errors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revamped-interviews-attracting-podcast-fans-for-2024/"><u>Revamped Interviews Attracting Podcast Fans for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ate-10-volume-uplifters-for-windowsios-devices-for-2024/"><u>Ultimate 10 Volume Uplifters for Windows/iOS Devices for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/why-does-fallout-3-keep-freezing-on-your-pc-solutions-for-playing-smoothly-in-windows-11/"><u>Why Does Fallout 3 Keep Freezing on Your PC? Solutions for Playing Smoothly in Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cost-strategies-for-engaging-youtube-intros-for-2024/"><u>Zero-Cost Strategies for Engaging YouTube Intros for 2024</u></a></li>
 </ul></div>
 

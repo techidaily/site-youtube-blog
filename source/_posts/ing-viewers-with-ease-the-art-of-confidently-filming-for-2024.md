@@ -1,7 +1,7 @@
 ---
 title: "\"Engaging Viewers with Ease  The Art of Confidently Filming for 2024\""
-date: 2024-07-13T14:32:53.168Z
-updated: 2024-07-14T14:32:53.168Z
+date: 2024-09-19T19:25:35.092Z
+updated: 2024-09-22T21:13:20.832Z
 tags:
   - ai video
   - ai youtube
@@ -49,9 +49,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -60,6 +57,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -67,6 +71,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -89,6 +100,19 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -132,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,6 +169,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-streamlining-image-processes-with-polarrs-compreeved-tools/"><u>[New] In 2024, Streamlining Image Processes with Polarr's Compreeved Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-from-fan-to-earner-understanding-view-requirements/"><u>[Updated] 2024 Approved From Fan to Earner Understanding View Requirements</u></a></li>
+<li><a href="https://win-blog.techidaily.com/directx-solution-squashing-errors-for-a-smooth-fifa-n-gameplay-experience/"><u>DirectX Solution: Squashing Errors for a Smooth FIFA N Gameplay Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-marketing-strategy-using-cutting-edge-cookiebot-solutions-for-user-tracking/"><u>Elevate Your Marketing Strategy Using Cutting-Edge Cookiebot Solutions for User Tracking</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-magic-5-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor Magic 5 online without jailbreak</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastering-the-art-of-scriptwriting-for-viral-youtube-content/"><u>In 2024, Mastering the Art of Scriptwriting for Viral YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-strategies-for-overcoming-8-typical-newbie-youtube-errors/"><u>In 2024, Strategies for Overcoming 8 Typical Newbie YouTube Errors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-screen-use-creating-picture-in-picture-videos-on-macos/"><u>Innovative Screen Use Creating Picture in Picture Videos on macOS</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-x90s-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo X90S? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-fixes-for-stability-issues-in-left-4-dead-2/"><u>Resolved: Fixes for Stability Issues in Left 4 Dead 2</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/uncover-every-file-effortlessly-expert-tips-for-mastering-copernics-desktop-and-cloud-search/"><u>Uncover Every File Effortlessly: Expert Tips for Mastering Copernic's Desktop & Cloud Search</u></a></li>
+</ul></div>
 

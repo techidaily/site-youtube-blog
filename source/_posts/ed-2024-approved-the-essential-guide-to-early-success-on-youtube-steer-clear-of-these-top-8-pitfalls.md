@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls\""
-date: 2024-07-13T14:29:45.942Z
-updated: 2024-07-14T14:29:45.942Z
+date: 2024-09-19T21:24:58.027Z
+updated: 2024-09-22T20:10:18.914Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -57,6 +64,13 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -65,9 +79,6 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -90,20 +101,24 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,6 +127,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-starting-vlogging-right-the-top-equipmentsoftware/"><u>[New] 2024 Approved Starting Vlogging Right The Top Equipment/Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-turning-hair-videos-into-income-streams/"><u>[New] 2024 Approved Turning Hair Videos Into Income Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-a-youtube-trailer/"><u>[New] How To Make a YouTube Trailer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-views-6-simple-strategies-for-youtube-success/"><u>[New] Maximizing Views 6 Simple Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-choreographers-for-visual-and-auditory-crafting/"><u>[New] Top Choreographers for Visual & Auditory Crafting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unleashing-potential-in-virtual-film-worlds/"><u>[New] Unleashing Potential in Virtual Film Worlds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-master-your-youtube-content-with-superior-webm-converters/"><u>[Updated] 2024 Approved Master Your YouTube Content with Superior WebM Converters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-selecting-premier-sound-editors-for-youtube-producers/"><u>[Updated] In 2024, Selecting Premier Sound Editors for YouTube Producers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-transforming-your-youtube-profile-descriptions/"><u>[Updated] In 2024, Transforming Your YouTube Profile Descriptions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-click-through-rates-with-youtube-images/"><u>[Updated] Maximizing Click-Through Rates with Youtube Images</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-connectivity-modifier-fb-stories-backup-tool/"><u>2024 Approved Connectivity Modifier FB Stories Backup Tool</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-x-flip-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo X Flip to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-set-up-grid-layout-for-google-meet-participants-viewing/"><u>In 2024, Set Up Grid Layout for Google Meet Participants' Viewing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-science-behind-sharing-memes-unveiled/"><u>In 2024, The Science Behind Sharing Memes Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unmatched-value-game-changing-voice-switcher-for-valorant-awaits-you/"><u>In 2024, Unmatched Value, Game-Changing Voice Switcher for Valorant Awaits You</u></a></li>
+<li><a href="https://win11.techidaily.com/the-art-of-merging-your-guide-to-windows-efficiency/"><u>The Art of Merging: Your Guide to Windows Efficiency</u></a></li>
+</ul></div>
 

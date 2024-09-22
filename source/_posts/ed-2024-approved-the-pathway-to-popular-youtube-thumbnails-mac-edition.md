@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Pathway to Popular Youtube Thumbnails  Mac Edition\""
-date: 2024-07-13T14:30:46.096Z
-updated: 2024-07-14T14:30:46.096Z
+date: 2024-09-21T21:34:36.640Z
+updated: 2024-09-22T20:31:29.655Z
 tags:
   - ai video
   - ai youtube
@@ -57,11 +57,25 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Add effects
 
@@ -79,10 +93,14 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 #### Conclusion
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -92,14 +110,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -108,6 +123,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-final-chapter-of-your-youtube-content-creation/"><u>[New] In 2024, The Final Chapter of Your YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-guide-incorporating-informative-commentary-in-youtube-videos-for-2024/"><u>[New] The Ultimate Guide Incorporating Informative Commentary in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unblocking-video-sharing-how-to-solve-fb-chat-issues-for-iphonesandroid/"><u>[New] Unblocking Video Sharing How to Solve FB Chat Issues for iPhones/Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-keeping-viewers-hooked-the-ultimate-guide-for-enhanced-audience-loyalty-on-youtube/"><u>[Updated] In 2024, Keeping Viewers Hooked The Ultimate Guide for Enhanced Audience Loyalty on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-masterful-visuals-in-motion-an-insiders-guide-to-creating-impressive-thumbnails-for-2024/"><u>[Updated] Masterful Visuals in Motion An Insider's Guide to Creating Impressive Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-select-5-high-quality-audio-headphones/"><u>[Updated] Select 5 High-Quality Audio Headphones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-adjust-youtube-video-speeds-on-the-fly/"><u>[Updated] Step-By-Step Guide to Adjust YouTube Video Speeds on the Fly</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-inside-the-world-of-digital-screen-recording/"><u>2024 Approved Inside the World of Digital Screen Recording</u></a></li>
+<li><a href="https://extra-information.techidaily.com/demystifying-zoom-your-complete-guide-for-win11-users/"><u>Demystifying Zoom Your Complete Guide for Win11 Users</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-redmi-note-12-4g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Redmi Note 12 4G Pattern Lock Screen</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722210782294-no-membership-necessary-gpt-4-available-to-all-with-platinum-benefits-still-worth-it/"><u>No Membership Necessary: GPT-4 Available to All, with Platinum Benefits Still Worth It.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-google-pixel-8-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Google Pixel 8 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/perfecting-slide-deck-sharing-how-to-use-your-webcam-for-2024/"><u>Perfecting Slide Deck Sharing How to Use Your Webcam for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-financially-with-youtube-advertising-techniques/"><u>Thriving Financially with YouTube Advertising Techniques</u></a></li>
+</ul></div>
 

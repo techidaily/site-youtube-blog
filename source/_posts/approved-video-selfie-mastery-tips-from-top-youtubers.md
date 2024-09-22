@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Video Selfie Mastery  Tips From Top YouTubers\""
-date: 2024-07-13T14:25:54.709Z
-updated: 2024-07-14T14:25:54.709Z
+date: 2024-09-15T19:37:56.718Z
+updated: 2024-09-22T18:56:23.182Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -77,6 +74,13 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -93,6 +97,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -107,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +131,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/raft-stellar-channels-best-10-apps-for-artistic-banner-design-for-2024/"><u>[New] Craft Stellar Channels Best 10 Apps for Artistic Banner Design for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-backward-playmanship-a-guide-to-reversed-youtube-videos-for-2024/"><u>[Updated] Backward Playmanship A Guide to Reversed YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-transfer-solution-youtube-content-on-dailymotion-now/"><u>Direct Transfer Solution YouTube Content on Dailymotion Now</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-greatest-mac-snipers-a-comprehensive-ranking-of-7-unbeatable-screen-capture-tools/"><u>Discover the Greatest Mac Snipers: A Comprehensive Ranking of 7 Unbeatable Screen Capture Tools</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fast-gpu-driver-for-gtx-750-ti/"><u>Fast GPU Driver for GTX 750 Ti</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-stock-watch-top-15-youtube-guides/"><u>In 2024, Stock Watch Top 15 YouTube Guides</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/personalization-at-its-best-chatgpts-unique-directive-feature/"><u>Personalization at Its Best: ChatGPT's Unique Directive Feature</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ar-vlogger-discussion-guidelines-for-2024/"><u>Regular Vlogger Discussion Guidelines for 2024</u></a></li>
+</ul></div>
 

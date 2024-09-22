@@ -1,7 +1,7 @@
 ---
 title: "Next Gen of Video Visionaries"
-date: 2024-07-13T14:29:14.736Z
-updated: 2024-07-14T14:29:14.736Z
+date: 2024-09-16T16:52:42.272Z
+updated: 2024-09-22T18:56:23.335Z
 tags:
   - ai video
   - ai youtube
@@ -66,16 +66,27 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -86,6 +97,19 @@ There were numerous custom pins available at different events at the summit. Asi
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -103,14 +127,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +140,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-taking-charge-of-your-visual-brand-identity/"><u>[New] In 2024, Taking Charge of Your Visual Brand Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sharing-stories-that-resonate-with-a-digital-audience-yt/"><u>[Updated] 2024 Approved Sharing Stories that Resonate with a Digital Audience YT</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-advancing-training-with-vr-systems/"><u>[Updated] Advancing Training with VR Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-examining-realities-intertwined-what-is-mixed-reality/"><u>[Updated] Examining Realities Intertwined What Is Mixed Reality?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-youtube-to-studio-quality-free-converters-for-wav-format/"><u>[Updated] In 2024, From YouTube to Studio Quality Free Converters for WAV Format</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-a-trailers-soundtrack-a-guide/"><u>2024 Approved Crafting a Trailer's Soundtrack A Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-immersion-station-youtubes-10-best-virtual-reality-films/"><u>2024 Approved Immersion Station YouTube's 10 Best Virtual Reality Films</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amd-epyc-9755-turin-chip-multi-threading-performance-king-with-over-108k-points-on-cpu-z/"><u>AMD EPYC 9755 Turin Chip: Multi-Threading Performance King with Over 108K Points on CPU-Z</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-hosted-network-could-not-be-started-error-on-windows-11/"><u>How to Fix 'Hosted Network Could Not Be Started' Error on Windows 11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/periscope-recording-for-beginners-a-complete-walkthrough/"><u>Periscope Recording for Beginners A Complete Walkthrough</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mlining-your-mac-techniques-to-remove-green-screen-effects/"><u>Streamlining Your Mac Techniques to Remove Green Screen Effects</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-motorola-moto-g34-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Motorola Moto G34 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-13t-can-t-play-avchd-mts-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Xiaomi 13T can’t play AVCHD .mts video</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Flashing Feathersticks  Short Film Characters' Music\""
-date: 2024-07-13T14:32:55.348Z
-updated: 2024-07-14T14:32:55.348Z
+date: 2024-09-19T20:17:25.028Z
+updated: 2024-09-22T20:15:18.020Z
 tags:
   - ai video
   - ai youtube
@@ -181,6 +181,13 @@ The entertainment industry is continually taking the world by storm. Lots of imp
 
 ![what is youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### In this article
 
 01 [What are YouTube Shorts?](#part1)
@@ -263,11 +270,15 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 1\. First, open up Filmora and go to “Project Settings” and select the “Change project aspect ratio” option.
 
 2\. From the aspect ratio, select “9:16” portrait.
+
+![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
 
 3\. Then set the resolution according to your preference.
 
@@ -280,6 +291,13 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 7\. Then click on the “Audio” option from the “Menu” bar and choose music that’s already available on your PC.
 
 ![choose audio to add to video](https://images.wondershare.com/filmora/article-images/2021/choose-audio.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. Next, import the music to the video. Just click on the “File” > “Import File” > “Import Video Files” option.
 
@@ -342,6 +360,13 @@ The entertainment industry is continually taking the world by storm. Lots of imp
 02 [Which role does music play in YouTube Shorts?](#part2)
 
 03 [YouTube Shorts Music - Things You Need to Know](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What are YouTube Shorts?
 
@@ -419,6 +444,13 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 2\. From the aspect ratio, select “9:16” portrait.
 
 ![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Then set the resolution according to your preference.
 
@@ -642,8 +674,6 @@ You can make a great milestone with **YouTube Shorts music** than if you didn’
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -652,6 +682,17 @@ You can make a great milestone with **YouTube Shorts music** than if you didn’
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-optimal-strategies-for-mobile-snapchat-recordings/"><u>[New] 2024 Approved Optimal Strategies for Mobile Snapchat Recordings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enhancing-viewability-creating-custom-youtube-thumbnails-for-2024/"><u>[Updated] Enhancing Viewability Creating Custom YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-video-creation-top-8-linux-apps-for-2024/"><u>[Updated] Ultimate Video Creation Top 8 Linux Apps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-guide-to-top-cloud-stores-on-android/"><u>2024 Approved The Ultimate Guide to Top Cloud Stores on Android</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-vivo-y27s-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Vivo Y27s?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-blending-beats-with-video-footage-on-vimeo-platform/"><u>In 2024, Blending Beats with Video Footage on Vimeo Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-strategic-forecasts-for-social-media-success-fbs-vision-in-2ranking/"><u>In 2024, Strategic Forecasts for Social Media Success FB's Vision in 2Ranking</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/installing-and-operating-microsofts-chatgpt-app-for-windows-users/"><u>Installing and Operating Microsoft's ChatGPT App for Windows Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/master-the-fix-comprehensive-methods-to-resolve-error-0x80072fed-in-windows-10/"><u>Master the Fix: Comprehensive Methods to Resolve Error 0X80072FED in Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ling-the-best-youtube-channel-titles-a-must-have-guide-for-vloggers-limit-to-156-characters-for-2024/"><u>Unveiling the Best Youtube Channel Titles A Must-Have Guide for Vloggers (Limit to 156 Characters) for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Maximize Impact  Crafting a Standout Video Ending\""
-date: 2024-07-13T14:29:54.626Z
-updated: 2024-07-14T14:29:54.626Z
+date: 2024-09-17T17:35:26.584Z
+updated: 2024-09-22T19:50:21.824Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Create a new composition on After Effects. Set the resolution to 1920x1080, the 
 
 ![finalize the composition settings](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: Create a Background Layer
 
 Go to the "Layer" tab, tap "New," create a black "Solid" background layer.
@@ -101,6 +108,13 @@ Step 4: Add Video Suggestion Box
 Now grab the "Rectangle Tool" and create a new shape on the right side of the screen, which will serve as a video suggestion box. You can create multiple shapes if you want to add more than one video suggestion.
 
 ![video suggestion box added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 5: Add Subscribe Button
 
@@ -140,6 +154,13 @@ You may now know the tricks about how to create a YouTube outro in After Effect.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 1: Install Filmora video editor.
 
 Step 2: Search and download the "YouTube Pack" from Filmstock.
@@ -149,6 +170,13 @@ Step 2: Search and download the "YouTube Pack" from Filmstock.
 Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and apply to your videos.
 
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
 
@@ -187,8 +215,12 @@ Lower thirds are a great way to add useful information in your video without tak
 The Social Media Lower third Pack contains 16 text effects and templates inspired by major social platforms like Instagram and YouTube. You can use it with Filmora 9.2 or later versions to add your videos' locations, links, and prompts. The pack also contains some meticulously crafted elements that are perfect for YouTube outros.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Closing Words
 
 With YouTube becoming one of the most popular platforms for aspiring content creators, establishing your name there can prove to be a tough task. Lots of effort goes into crafting all the elements of the video to perfection. Creating a suitable YouTube outro is also part of the process, and it is important to learn how to get it right.
@@ -203,14 +235,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -219,6 +248,14 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-explore-the-premier-video-grabbing-tools-on-windows-10/"><u>[Updated] 2024 Approved Explore the Premier Video Grabbing Tools on Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-critical-asmr-series-to-experience/"><u>[Updated] In 2024, Critical ASMR Series to Experience</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-deleting-a-discord-server-desktop-and-mobile-guide/"><u>[Updated] In 2024, Deleting a Discord Server Desktop & Mobile Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-blueprint-for-adhering-to-youtube-community-guidelines-for-2024/"><u>[Updated] The Blueprint for Adhering to YouTube Community Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway-for-2024/"><u>[Updated] Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/become-a-canvas-connoisseur-with-these-10-tips/"><u>Become a Canvas Connoisseur with These 10 Tips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-itel-p55-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Itel P55 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+</ul></div>
 

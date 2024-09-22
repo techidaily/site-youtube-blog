@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Valorant Portraits - Professional Thumbnails Made in a Flash\""
-date: 2024-07-13T14:28:05.660Z
-updated: 2024-07-14T14:28:05.660Z
+date: 2024-09-18T16:13:59.121Z
+updated: 2024-09-22T20:16:27.159Z
 tags:
   - ai video
   - ai youtube
@@ -78,9 +78,6 @@ Step7 Remove any parts of the screenshot that you do not want to include in the 
 
 Step8 Extract the selected elements from the screenshot. You can **resize** the elements as desired.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![filmora extract element](https://images.wondershare.com/filmora/article-images/filmora-extract-element.jpg)
 
 Step9 Add a background to the track below the screenshot by **dragging** a background image from the media library into the timeline. Alternatively, you can **import** your image as a background by **clicking** the "**Import**" button and **selecting** the image file from your computer.
@@ -231,6 +228,13 @@ Step10 Add an effect, such as a gun effect, by **searching** for the desired eff
 
 ![filmora add effect](https://images.wondershare.com/filmora/article-images/filmora-add-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step11 Adjust the opacity of the effect as desired.
 
 ![filmora adjust opacity](https://images.wondershare.com/filmora/article-images/filmora-adjust-opacity.jpg)
@@ -243,6 +247,13 @@ Step13 Customize the appearance and rotation of the fire effect as desired.
 
 ![filmora edit title](https://images.wondershare.com/filmora/article-images/filmora-edit-title.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step14 Edit the texts and **adjust** the appearance of the texts in the Titles window.
 
 ![filmora edit text](https://images.wondershare.com/filmora/article-images/filmora-edit-text.jpg)
@@ -250,6 +261,13 @@ Step14 Edit the texts and **adjust** the appearance of the texts in the Titles w
 Step15 Choose a still frame that you like and take a snapshot of it.
 
 ![filmora add frame](https://images.wondershare.com/filmora/article-images/filmora-add-frame.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step16 Select the snapshot format and storage path. The snapshot will appear in the media library.
 
@@ -303,6 +321,13 @@ His channel is a reliable source for those looking for consistently fresh and di
 
 ![n0ted](https://images.wondershare.com/filmora/article-images/n0ted.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Hiko
 
 Hiko is a well-known Valorant content creator and former player of Counter-Strike: Global Offensive (CS:GO). He is known for his skill in first-person shooter games and his expertise in Valorant, which he shares through tips and gameplay videos on his channels on Twitch and YouTube.
@@ -310,6 +335,13 @@ Hiko is a well-known Valorant content creator and former player of Counter-Strik
 Hiko is currently a content creator for 100 Thieves, a gaming organization he represents in various tournaments and competitions. He is a reliable source of high-quality Valorant content and regularly uploads new videos for his followers.
 
 ![hiko](https://images.wondershare.com/filmora/article-images/hiko.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. C9 meL
 
@@ -337,8 +369,6 @@ Additionally, there are many successful Valorant YouTubers who offer a range of 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -346,6 +376,19 @@ Additionally, there are many successful Valorant YouTubers who offer a range of 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-master-your-gaming-footage-top-5-techniques-for-windows-11-recorders/"><u>[New] 2024 Approved Master Your Gaming Footage Top 5 Techniques for Windows 11 Recorders</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-navigating-mac-screenshot-file-type-changes/"><u>[New] 2024 Approved Navigating Mac Screenshot File Type Changes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-uniting-conversations-across-platforms-twitter-vids-on-whatsapp/"><u>[New] 2024 Approved Uniting Conversations Across Platforms Twitter Vids on WhatsApp</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>[New] In 2024, Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-through-youtubes-metrics-a-ranking-analysis/"><u>[New] Navigating Through YouTube's Metrics A Ranking Analysis</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premium-choices-for-unparalleled-video-communication/"><u>[New] Premium Choices for Unparalleled Video Communication</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-foundational-steps-to-your-distinctive-marketing-voice-for-2024/"><u>[New] The Foundational Steps to Your Distinctive Marketing Voice for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-investigating-the-effectiveness-of-vsdcs-screen-capture-tech-for-2024/"><u>[Updated] Investigating the Effectiveness of VSDC's Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-potential-creating-your-youtube-identity-for-2024/"><u>[Updated] Unlocking Potential Creating Your YouTube Identity for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-razer-naga-drivers-installation-guide-for-windows-users/"><u>Latest Razer Naga Drivers Installation Guide for Windows Users</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/navigate-discords-streaming-landscape-a-comprehensive-tutorial-for-2024/"><u>Navigate Discord's Streaming Landscape A Comprehensive Tutorial for 2024</u></a></li>
+</ul></div>
 

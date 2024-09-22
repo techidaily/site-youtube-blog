@@ -1,7 +1,7 @@
 ---
 title: "[New] Where Are My YouTube Comments? Desktop/iOS/Android Strategies for 2024"
-date: 2024-07-13T14:33:45.062Z
-updated: 2024-07-14T14:33:45.062Z
+date: 2024-09-20T20:53:34.099Z
+updated: 2024-09-22T16:39:12.928Z
 tags:
   - ai video
   - ai youtube
@@ -35,9 +35,6 @@ That said, the following sections teach you how to find your YouTube comments on
 * [Part 5: How to Moderate YouTube Comments?](#part5)
 * [Part 6: Tips for Writing Good YouTube Comments](#part6)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Find All the Comments You’ve Posted on YouTube?
 
 YouTube allows you to post comments on any video only if you are signed in to your Google account while browsing the streaming platform. Because of this, the portal is able to keep a record of your activities, thus enabling you to track all your comments, and take necessary action such as deleting or modifying them as required.
@@ -128,6 +125,13 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
 This process is comparatively simpler than the previous one as all that you need to do is download the YT Studio app, and access a central location where all the comments for all the videos can be viewed. The process is given below:
@@ -147,6 +151,13 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 **Note:** Unfortunately, you cannot hold the comments for approval using the YT Studio app. As a workaround, you can follow the procedure given earlier to access the desktop version of YouTube on your smartphone, and then use the method explained in the previous section to get this done. However, it is recommended that you do all such sensitive tasks on a laptop or desktop computer to avoid any errors.
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
@@ -184,6 +195,13 @@ Locate the comment that you want to reply to, click **REPLY** from under the com
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: How to Moderate YouTube Comments?
 
 If you publish videos on YouTube that may put some impact on people’s lifestyle, you are likely to face criticism quite often. Therefore, you might want to moderate all your comments before they become visible to the audience so as not to spread negativity among the mass. Fortunately, YouTube helps you get this done easily, and the instructions that teach you the process are given below:
@@ -200,6 +218,19 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -209,6 +240,19 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Be genuine while leaving feedback. However, make sure to choose polite words while typing a comment
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -230,14 +274,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,6 +287,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-snapchat-soundtrack-sourcebook-choosing-from-the-best-websites/"><u>[New] 2024 Approved Snapchat Soundtrack Sourcebook Choosing From the Best Websites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-a-year-in-the-market-top-15-finance-videos/"><u>[New] In 2024, A Year in the Market Top 15 Finance Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-master-your-media-comprehensive-guide-to-instagram-converters-windowsmac/"><u>[New] In 2024, Master Your Media Comprehensive Guide to Instagram Converters (Windows/Mac)</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-keyboard-backlight-not-working-on-macwindows/"><u>[Solved] Keyboard Backlight Not Working on Mac/Windows</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-innovative-thumbnail-tips-for-mac-users-youtube/"><u>[Updated] 2024 Approved Innovative Thumbnail Tips for Mac Users - YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>[Updated] 2024 Approved Tailor-Made Melodies Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-embedding-youtube-playlists-step-by-step-guide/"><u>[Updated] Embedding YouTube Playlists Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-customization-seamlessly-embedding-text-and-links-in-youtube-videos-for-2024/"><u>[Updated] Mastering Customization Seamlessly Embedding Text & Links in Youtube Videos for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-unlock-productivity-selecting-the-top-5-mac-snippers/"><u>[Updated] Unlock Productivity Selecting the Top 5 Mac Snippers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-core-principles-youtubes-social-contract/"><u>2024 Approved Core Principles YouTube's Social Contract</u></a></li>
+<li><a href="https://win-blog.techidaily.com/easy-solution-stop-kernelbasedll-from-causing-system-crashes/"><u>Easy Solution: Stop KernelBase.dll From Causing System Crashes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-vivo-x100-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Vivo X100</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effective-strategies-for-getting-your-email-list-onto-whoissafe/"><u>Effective Strategies for Getting Your Email List Onto WhoisSafe</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-sony-xperia-5-v-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Sony Xperia 5 V Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-start-shooting-smart-top-15-shot-techniques-for-beginners/"><u>In 2024, Start Shooting Smart Top 15 Shot Techniques for Beginners</u></a></li>
+</ul></div>
 

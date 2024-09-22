@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unpacking YouTube’s Financial Framework Shifts\""
-date: 2024-07-13T14:29:34.935Z
-updated: 2024-07-14T14:29:34.935Z
+date: 2024-09-21T21:34:10.610Z
+updated: 2024-09-22T16:50:57.417Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 * Fan funding through channel memberships, super chats, super thanks, and super stickers
 * Access to Creator Support
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Applicability of the Old Standards**
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
@@ -98,6 +105,13 @@ The new policies make it easier for more creators to monetize their channels. Si
 
 It’s interesting that watch hours from shorts will not count along the standard 4,000 public watch hours. This is a plus for many creators. You will find that many creators who post shorts on their channels have more views than their long views. With the new policies, it means that they can monetize their channels based only on the short’s figures.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 4\. Editing YouTube Videos For Monetization with Wondershare Filmora**
 
 Wondershare Filmora is a versatile video editing software that helps creators remain relevant. With specific editing features for various aspects of your video project, this software ensures that your videos will stand out on YouTube. It is also a great tool for making shorts using top YouTuber’s strategies.
@@ -108,9 +122,6 @@ Wondershare Filmora is a versatile video editing software that helps creators re
 
 Filmora has all the features in one place, which makes it easy and quick to edit videos. From improving the quality of your audio to enhancing your visuals, here are 5 features you need to explore:
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **1\.** **Preset Templates**
 
 Filmora gives you a quick and easy start to your creative video editing journey. Select from the readily available templates or save your own video templates for future use.
@@ -123,9 +134,36 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 ![add text to video](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-6.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **3\.** **AI Smart Cutout**
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **4\.** **Adjustment Layer**
 
@@ -145,14 +183,11 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,6 +196,14 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-next-gen-social-media-tactics-youtube-content-on-facebook/"><u>[New] In 2024, Next-Gen Social Media Tactics YouTube Content on Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-beginners-basics-establishing-your-channel-and-earning-profits/"><u>[Updated] In 2024, Youtube Beginner's Basics Establishing Your Channel & Earning Profits</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-transforming-videos-into-stories-top-5-effective-tiktok-caption-strategies-for-2024/"><u>[Updated] Transforming Videos Into Stories Top 5 Effective TikTok Caption Strategies for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016841702-expert-fixes-for-your-quiet-turtle-beach-advance-prise-microphone-get-it-working-again/"><u>Expert Fixes for Your Quiet Turtle Beach Advance Prise Microphone – Get It Working Again</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-galore-curating-the-funniest-10-short-form-web-series-ideas/"><u>Giggle Galore Curating the Funniest 10 Short-Form Web Series Ideas</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-7-by-drivereasy-guide/"><u>How to identify malfunctioning hardware drivers with Windows Device Manager in Windows 7</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/slumber-savings-snag-discounted-headsets-for-a-blissful-nights-rest/"><u>Slumber Savings: Snag Discounted Headsets for a Blissful Night's Rest</u></a></li>
+</ul></div>
 

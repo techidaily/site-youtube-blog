@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Digital Domain's Star Clusters"
-date: 2024-09-12T16:11:50.975Z
-updated: 2024-09-17T18:26:44.223Z
+date: 2024-09-17T16:56:21.798Z
+updated: 2024-09-22T18:33:57.461Z
 tags:
   - ai video
   - ai youtube
@@ -90,10 +90,10 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
@@ -101,10 +101,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -120,10 +120,10 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -149,21 +149,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-shortcut-to-share-tiktoks-and-twitters-integration/"><u>[New] 2024 Approved The Shortcut to Share TikToks & Twitters Integration</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nhancing-on-screen-appeal-essential-tips-for-talking-head-shots-for-2024/"><u>[New] Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-jokecrafters-generate-smiles-app/"><u>[New] In 2024, JokeCrafters Generate Smiles (App)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-sci-ed-hacks-top-youtube-experts-to-elevate-learning/"><u>[New] In 2024, Sci-Ed Hacks Top YouTube Experts to Elevate Learning</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rofessional-videographers-guide-to-efficient-color-keying/"><u>[New] Professional Videographer's Guide to Efficient Color-Keying</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/evolutionize-your-video-output-top-10-apps-converting-flv-to-youtube-for-2024/"><u>[New] Revolutionize Your Video Output Top 10 Apps Converting FLV to YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-professional-level-content-structure-with-expert-templates/"><u>[Updated] In 2024, Professional-Level Content Structure with Expert Templates</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-list-of-8-youtube-mistakes-to-evade/"><u>[Updated] In 2024, The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-showdown-which-is-more-effective-claude-or-chatgpt-in-managing-everyday-tasks/"><u>AI Showdown: Which Is More Effective, Claude or ChatGPT, in Managing Everyday Tasks?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/best-free-handwriting-to-typing-courses-picks-from-across-the-generations/"><u>Best Free Handwriting-to-Typing Courses: Picks From Across the Generations</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-vivo-y17s-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Vivo Y17s Devices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-infinix-hot-30-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Infinix Hot 30 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 to other iPhone 15 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/se-in-unprecedented-reality-stories/"><u>Immerse in Unprecedented Reality Stories</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-the-beastly-symphony-capturing-giants-in-audio-form/"><u>New The Beastly Symphony Capturing Giants in Audio Form</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-10-android-and-ios-timers-for-effortless-wedding-countdown-management/"><u>Top 10 Android and iOS Timers for Effortless Wedding Countdown Management</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ffective-youtube-card-usage-guide-for-2024/"><u>[New] Effective YouTube Card Usage Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-significant-details-in-asmr-recording-art/"><u>[New] In 2024, Significant Details in ASMR Recording Art</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-guide-igniting-video-visionaries-in-your-channel/"><u>[New] Ultimate Guide Igniting Video Visionaries in Your Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-eliminating-backlogged-videos-from-your-youtube-history-for-2024/"><u>[Updated] Eliminating Backlogged Videos From Your YouTube History for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>[Updated] In 2024, YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-journey-through-the-stars-with-these-innovative-science-youtubers/"><u>[Updated] Journey Through the Stars with These Innovative Science YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-on-air-innovations-code-or-circuitry-prevails/"><u>[Updated] On-Air Innovations Code or Circuitry Prevails?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-big-players-of-the-web-youtubes-subscriber-elite/"><u>[Updated] The Big Players of the Web YouTube's Subscriber Elite</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-microsoft-drivers-installation-and-updates-for-windows-10-8-and-7-users/"><u>Easy Microsoft Drivers Installation & Updates for Windows 10, 8 & 7 Users</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-download-automatic-detection-of-the-latest-amd-graphics-driver/"><u>Effortless Download: Automatic Detection of the Latest AMD Graphics Driver</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-successfully-download-and-apply-new-apple-ios-software-upgrades/"><u>How To Successfully Download and Apply New Apple iOS Software Upgrades</u></a></li>
+<li><a href="https://fox-that.techidaily.com/improve-iphone-wi-fi-signal-8-effective-strategies-for-better-performance/"><u>Improve iPhone Wi-Fi Signal: 8 Effective Strategies for Better Performance</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-motorola-moto-e13-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Motorola Moto E13 Through Google Earth?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigate-effortlessly-to-your-favorite-facebook-videos-with-these-top-addons/"><u>In 2024, Navigate Effortlessly to Your Favorite Facebook Videos With These Top Addons</u></a></li>
 </ul></div>
 

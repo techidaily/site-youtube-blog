@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Compelling Narratives with Strategic YouTube Banners"
-date: 2024-09-13T17:50:40.525Z
-updated: 2024-09-17T17:54:36.073Z
+date: 2024-09-19T18:30:25.805Z
+updated: 2024-09-22T16:54:54.028Z
 tags:
   - ai video
   - ai youtube
@@ -183,19 +183,6 @@ You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Make Good Channel Art**
 
 Finding an image, cutting it to the right size, and uploading it to YouTube is easy, but how many of your favorite YouTubers use just an image for their channel art? Usually, there's at least a little text stating the name of the channel.
@@ -214,13 +201,6 @@ Here are some things you might want to include in your YouTube banner. Not all o
 6. A tagline
 
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
 
@@ -255,6 +235,13 @@ Look at the kinds of colors and images other YouTubers in your niche are using f
 Here's a guide to what people tend to associate with different colors:
 
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Include Your Face**
 
@@ -293,6 +280,13 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
 
 This example is light and airy, but you can also create a minimalist look using brighter or darker colors. It just depends on your personality.
@@ -300,13 +294,6 @@ This example is light and airy, but you can also create a minimalist look using 
 **Galaxy Themed**
 
 ![text-and-logo-galaxy-themed](https://images.wondershare.com/filmora/text-and-logo-galaxy-themed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Galaxy banners are exactly what they sound like: channel art featuring space scenes or photographs of the night sky. At first glance, you might think they belong with channels that talk about science or sci-fi, and they are great for that, but they're also a fun choice for comedy, vlogging, or gaming.
 
@@ -317,10 +304,16 @@ The great thing about the galaxy style is that it's cool and different, but it d
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
@@ -340,6 +333,13 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -362,17 +362,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-smart-shoppers-guide-to-inexpensive-recording-gear/"><u>[New] In 2024, Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-all-you-need-to-know-about-mobizens-screen-capture/"><u>[Updated] 2024 Approved All You Need to Know About Mobizen's Screen Capture</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-decrease-environmental-noise-in-video-recordings/"><u>[Updated] 2024 Approved Decrease Environmental Noise in Video Recordings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-free-tools-for-effortless-video-image-retrieval/"><u>[Updated] Free Tools for Effortless Video Image Retrieval</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-fps-feudalists-unearthing-the-top-7-war-games/"><u>[Updated] In 2024, FPS Feudalists – Unearthing the Top 7 War Games</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-impact-with-youtube-micro-videos/"><u>[Updated] Maximizing Impact with YouTube Micro Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-discovering-10-must-love-aspects-in-filmora-editing/"><u>2024 Approved Discovering 10 Must-Love Aspects in Filmora Editing</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-nubia-red-magic-9-proplus-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Nubia Red Magic 9 Pro+? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-huawei-nova-y71-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Huawei Nova Y71?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-honor-x9a-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Honor X9a FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/arns-more-in-the-video-market-dailymovement-vs-youtube-for-2024/"><u>Who Earns More in the Video Market? DailyMovement Vs YouTube for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-crafting-connections-posting-vids-between-tweets-and-tumbles/"><u>[New] 2024 Approved Crafting Connections Posting Vids Between Tweets & Tumbles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-obscure-screen-issue-in-youtube/"><u>[New] In 2024, Navigating the Obscure Screen Issue in Youtube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-surge-in-tiktok-like-ratings-with-smart-unboxing/"><u>[New] Surge in TikTok Like Ratings with Smart Unboxing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-mathematics-behind-making-money-from-snippets-for-2024/"><u>[New] The Mathematics Behind Making Money From Snippets for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-visual-storytelling-through-youtube-split-screens/"><u>[New] Visual Storytelling Through YouTube Split-Screens</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-detectives-playbook-for-scouring-secret-youtube-content/"><u>[Updated] 2024 Approved The Detective's Playbook for Scouring Secret YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-depth-walkthrough-editing-youtube-videos-in-wmm-for-2024/"><u>[Updated] In-Depth Walkthrough Editing YouTube Videos in WMM for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-success-mastering-the-art-of-shorts-thumbnails/"><u>[Updated] Unlocking YouTube Success Mastering the Art of Shorts Thumbnails</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-14-plus-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 14 Plus? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oneplus-nord-ce-3-lite-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of OnePlus Nord CE 3 Lite 5G Without PUK Codes</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-guide-making-your-tozo-t6-device-work-seamlessly-on-windows-nx/"><u>Ultimate Guide: Making Your Tozo T6 Device Work Seamlessly on Windows nX</u></a></li>
 </ul></div>
 

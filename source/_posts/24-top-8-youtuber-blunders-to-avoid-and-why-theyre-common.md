@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Top 8 Youtuber Blunders to Avoid and Why They're Common"
-date: 2024-09-14T17:11:23.726Z
-updated: 2024-09-17T17:09:48.910Z
+date: 2024-09-18T17:30:22.864Z
+updated: 2024-09-22T19:39:52.688Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -57,19 +64,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -77,10 +71,10 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -90,13 +84,6 @@ After you’ve managed to get someone to click on your video through your effect
 New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
 
@@ -109,6 +96,13 @@ Connecting with your audience shouldn’t just be limited to YouTube either. Use
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -141,21 +135,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ngaging-audiences-triad-of-effective-storytelling-for-2024/"><u>[New] Engaging Audiences Triad of Effective Storytelling for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-global-streaming-giants-face-off-facebook-live-youtube-live-periscope/"><u>[New] In 2024, Global Streaming Giants' Face-Off Facebook Live, YouTube Live, Periscope</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-soaring-up-the-youtube-ranks-list/"><u>[New] In 2024, Strategies for Soaring Up the YouTube Ranks List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-understanding-the-dynamics-of-ig-reels-vs-ig-stories-for-2024/"><u>[New] Understanding the Dynamics of IG Reels Vs IG Stories for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-seamlessly-upload-videos-onto-youtubes-platform/"><u>[Updated] 2024 Approved How to Seamlessly Upload Videos Onto YouTube's Platform</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-fixing-intermittent-frames-in-obs-recordings/"><u>[Updated] In 2024, Fixing Intermittent Frames in OBS Recordings</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-master-your-craft-smartphone-lut-enhancements/"><u>[Updated] Master Your Craft Smartphone LUT Enhancements</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-secrets-revealed-the-best-youtube-thumbnails-for-virality-for-2024/"><u>[Updated] Secrets Revealed The Best YouTube Thumbnails for Virality for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-optimizing-audience-retention-through-engaging-shorts/"><u>2024 Approved Optimizing Audience Retention Through Engaging Shorts</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722978439447-download-key-gigabyte-z370p-performance-drivers-here/"><u>Download Key Gigabyte Z370P Performance Drivers Here</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-update-to-latest-intel-82579v-chipset-drivers-free-download-option/"><u>Effortless Update to Latest Intel 82579V Chipset Drivers - Free Download Option</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-creative-teaching-incorporating-youtube-into-your-curriculum/"><u>In 2024, Creative Teaching Incorporating YouTube Into Your Curriculum</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-a24-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy A24 Without PUK Codes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-mastering-the-art-of-earning-through-vlogs/"><u>In 2024, Mastering the Art of Earning Through Vlogs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-tools-to-transform-your-vocal-recordings-for-2024/"><u>Leading Tools to Transform Your Vocal Recordings for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unveiling-the-trouble-solving-fb-messengers-video-not-sending-flaw/"><u>Unveiling the Trouble Solving FB Messenger's Video Not Sending Flaw</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>[New] In 2024, Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-playstation-plaza-your-gateway-to-a-thousand-channels/"><u>[New] PlayStation Plaza Your Gateway to a Thousand Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-building-free-youtube-intro-videos/"><u>[New] Step-by-Step Building FREE YouTube Intro Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-foundational-steps-to-your-distinctive-marketing-voice-for-2024/"><u>[New] The Foundational Steps to Your Distinctive Marketing Voice for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nleash-your-videos-full-potential-with-these-seo-mastery-tips/"><u>[New] Unleash Your Videos' Full Potential with These SEO Mastery Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-easy-customization-free-youtube-visual-templates/"><u>[Updated] Easy Customization Free YouTube Visual Templates</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-essential-guide-to-selecting-a-suitable-vimeo-subscription/"><u>[Updated] Essential Guide to Selecting a Suitable Vimeo Subscription</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-melodic-movements-music-upload-mastery-for-youtube-for-2024/"><u>[Updated] Melodic Movements Music Upload Mastery for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-potential-creating-your-youtube-identity-for-2024/"><u>[Updated] Unlocking Potential Creating Your YouTube Identity for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-beam-your-best-selecting-the-stirring-photos-on-instagram/"><u>2024 Approved Beam Your Best Selecting the Stirring Photos on Instagram</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/evolving-narratives-in-the-age-of-vr-movies/"><u>Evolving Narratives in the Age of VR Movies</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-oppo-find-x6-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Oppo Find X6 Location | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210615747-nba-2k21s-green-error-solved-expert-tips-inside/"><u>NBA 2K21's Green Error Solved - Expert Tips Inside</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723211963517-uncover-the-answers-total-war-rome-remastered-gameplay-interruptions-solved/"><u>Uncover the Answers: Total War: Rome Remastered Gameplay Interruptions Solved</u></a></li>
 </ul></div>
 

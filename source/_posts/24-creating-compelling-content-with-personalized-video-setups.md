@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Creating Compelling Content with Personalized Video Setups"
-date: 2024-07-13T14:24:49.399Z
-updated: 2024-07-14T14:24:49.399Z
+date: 2024-09-16T17:31:02.047Z
+updated: 2024-09-22T20:29:55.667Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -90,14 +97,18 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -107,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +131,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-crafting-content-success-top-hashtags-to-follow-today/"><u>[New] 2024 Approved Crafting Content Success Top #Hashtags to Follow Today</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/trategic-synergy-in-streams-dissecting-your-videos-from-rivals/"><u>[New] Strategic Synergy in Streams Dissecting Your Videos From Rivals'</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-5-engine-picks-for-peak-performance-quadcopters/"><u>[New] Top 5 Engine Picks for Peak Performance Quadcopters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-broadcasting-brilliance-share-your-twitch-stream-on-fb/"><u>[Updated] In 2024, Broadcasting Brilliance Share Your Twitch Stream on FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-secrets-to-pull-out-parts-from-any-youtube-clip/"><u>[Updated] Secrets to Pull Out Parts From Any YouTube Clip</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-why-choose-av1-for-youtube-unlock-potential-for-2024/"><u>[Updated] Why Choose AV1 for YouTube? – Unlock Potential for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-expert-endorsed-gpus-for-top-quality-online-video-playback/"><u>2024 Approved Expert-Endorsed GPUs for Top Quality Online Video Playback</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-for-home-entertainment-maisto-rc-rock-crawler-reviewed-enthralling-family-friendly-fun/"><u>Best for Home Entertainment: Maisto RC Rock Crawler Reviewed, Enthralling Family-Friendly Fun</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-filmmaking-skills-on-youtube-and-diverse-platforms-for-2024/"><u>Expert Filmmaking Skills on YouTube and Diverse Platforms for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-harvest-language-growth-from-past-to-now/"><u>Hellenic Harvest: Language Growth From Past To Now</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-change-location-on-yik-yak-for-your-vivo-v29-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Vivo V29 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-from-live-action-to-youtube-recording-your-device-display/"><u>In 2024, From Live Action to YouTube Recording Your Device Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-control-updates-on-childs-messenger-details/"><u>Parental Control Updates on Child's Messenger Details</u></a></li>
+</ul></div>
 

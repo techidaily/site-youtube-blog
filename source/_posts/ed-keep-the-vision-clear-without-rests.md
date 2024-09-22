@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keep the Vision Clear Without Rests"
-date: 2024-09-11T16:21:59.485Z
-updated: 2024-09-17T16:28:10.372Z
+date: 2024-09-15T21:05:40.538Z
+updated: 2024-09-22T21:20:03.738Z
 tags:
   - ai video
   - ai youtube
@@ -81,10 +81,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -94,6 +94,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -117,13 +124,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -145,20 +145,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-breaking-personal-barriers-in-yt-content-creation/"><u>[New] In 2024, Breaking Personal Barriers in YT Content Creation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-channel-growth-in-30-minutes-viral-hashtag-insights-for-2024/"><u>[Updated] Channel Growth in 30 Minutes Viral Hashtag Insights for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-eras-endwatchers-top-youtube-viewership/"><u>[Updated] Era's Endwatchers Top YouTube Viewership</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[Updated] In 2024, Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-framing-youtube-content-for-free-for-2024/"><u>[Updated] Step-By-Step Guide to Framing YouTube Content for Free for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-taking-your-footage-up-a-notch-advanced-techniques-for-360-videos-on-youtube-for-2024/"><u>[Updated] Taking Your Footage Up a Notch Advanced Techniques for 360° Videos on YouTube for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-3dr-a-compreran-users-journey-through-tech-aloneness/"><u>2024 Approved '3DR' A Compreran User's Journey Through Tech Aloneness</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-your-phones-pixels-top-10-facial-modifiers/"><u>2024 Approved Perfect Your Phone's Pixels Top 10 Facial Modifiers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/aerial-artistry-mastering-the-craft-of-drone-video-editing-for-2024/"><u>Aerial Artistry Mastering the Craft of Drone Video Editing for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/breaking-down-the-cost-vs-comfort-the-ultimate-review-of-mophies-powerstation-ac-charger/"><u>Breaking Down the Cost Vs. Comfort - The Ultimate Review of Mophie's Powerstation AC Charger</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/bring-life-to-film-projects-3-inexpensive-techniques-for-iphones-music-integration-for-2024/"><u>Bring Life to Film Projects 3 Inexpensive Techniques for iPhones Music Integration for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/el-surge-strategy-using-youtube-outros-for-rapid-expansion-for-2024/"><u>Channel Surge Strategy Using YouTube Outros for Rapid Expansion for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/algorithmic-youtube-video-selections/"><u>Stop Algorithmic YouTube Video Selections</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/top-10-leading-video-fixers-for-pc-and-macos-users/"><u>Top 10 Leading Video Fixers for PC & macOS Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-self-portraits-top-techniques-for-youtube-presentations/"><u>[New] Mastering Self-Portraits Top Techniques for YouTube Presentations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-effortless-guide-to-designing-youtube-follow-links/"><u>[Updated] 2024 Approved Effortless Guide to Designing YouTube Follow Links</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-guide-to-profit-sharing-for-creators-of-video-clips/"><u>[Updated] A Guide to Profit Sharing for Creators of Video Clips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-quick-and-easy-channels-personalize-your-youtube-url-now/"><u>[Updated] In 2024, Quick and Easy Channels Personalize Your YouTube URL Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-content-creation-evolution-choosing-studio-over-beta-for-2024/"><u>[Updated] Video Content Creation Evolution Choosing Studio Over Beta for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-slipping-into-the-social-scene-of-online-tiktok-gigs/"><u>2024 Approved Slipping Into the Social Scene of Online TikTok Gigs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras/"><u>Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-to-add-transitions-on-inshot-app/"><u>How to Add Transitions on Inshot App?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-nubia-red-magic-9-proplus-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Nubia Red Magic 9 Pro+?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-oppo-a58-4g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Oppo A58 4G Through Google Earth?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/maximizing-memories-storing-digitalized-vintage-photographs/"><u>Maximizing Memories Storing Digitalized Vintage Photographs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-and-budget-friendly-fossil-brand-evaluation/"><u>Outstanding and Budget-Friendly Fossil Brand Evaluation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-galaxy-s23-tactical-edition-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Galaxy S23 Tactical Edition has been deleted.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-x-flip-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo X Flip Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 </ul></div>
 

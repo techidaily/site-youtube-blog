@@ -1,7 +1,7 @@
 ---
 title: "[New] The Blueprint for Successful YouTube Video Plans and Outlines"
-date: 2024-07-13T14:27:20.340Z
-updated: 2024-07-14T14:27:20.340Z
+date: 2024-09-18T19:16:31.947Z
+updated: 2024-09-22T16:10:51.391Z
 tags:
   - ai video
   - ai youtube
@@ -46,13 +46,17 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -60,6 +64,13 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -93,6 +104,19 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -107,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +144,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-pro-tips-for-video-conference-recordings-desktop-edition/"><u>[New] 2024 Approved Pro Tips for Video Conference Recordings Desktop Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-a-youtube-trailer/"><u>[New] How To Make a YouTube Trailer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-views-6-simple-strategies-for-youtube-success/"><u>[New] Maximizing Views 6 Simple Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-master-your-youtube-content-with-superior-webm-converters/"><u>[Updated] 2024 Approved Master Your YouTube Content with Superior WebM Converters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-selecting-premier-sound-editors-for-youtube-producers/"><u>[Updated] In 2024, Selecting Premier Sound Editors for YouTube Producers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-transforming-your-youtube-profile-descriptions/"><u>[Updated] In 2024, Transforming Your YouTube Profile Descriptions</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-guide-on-converting-flv-videos-into-avi-with-movavis-advanced-converter-software/"><u>Comprehensive Guide on Converting FLV Videos Into AVI with Movavi's Advanced Converter Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/creative-catalysts-da-vincis-triumph-in-image-generation-ai/"><u>Creative Catalysts: Da Vinci’s Triumph in Image Generation AI</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-2024-fortnite-pc-stutter-issue-essential-troubleshooting-steps/"><u>Fixing the 2024 Fortnite PC Stutter Issue: Essential Troubleshooting Steps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-m14-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy M14 5G Face Lock?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-apple-iphone-xr-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from Apple iPhone XR</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-free-online-video-editing-made-easy-a-jaycut-user-guide-for-2024/"><u>New Free Online Video Editing Made Easy A Jaycut User Guide for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/reimagine-personal-storytelling-on-snapchat-access-a-library-of-over-120-ideas-to-stand-out/"><u>Reimagine Personal Storytelling on Snapchat Access a Library of Over 120 Ideas to Stand Out</u></a></li>
+</ul></div>
 

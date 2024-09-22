@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Harmonize Your Favorites  Creating Custom YouTube Playlists\""
-date: 2024-09-10T16:01:11.355Z
-updated: 2024-09-17T17:03:53.076Z
+date: 2024-09-18T17:04:47.071Z
+updated: 2024-09-22T20:18:45.124Z
 tags:
   - ai video
   - ai youtube
@@ -107,19 +107,6 @@ Now tap to close the video, tap **"Library"** at the bottom of the screen, scrol
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
 
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
@@ -139,6 +126,13 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
 Step2 When you have signed in, look for your favorite track on the YouTube live feed page or search for it in the search bar at the top of the screen. Once you have found the song, click on it to play it, click the three horizontal dots at the bottom right-hand side of the video, and select the **"Save"** option from the small pop-up.
 
 ![saving youtube video music](https://images.wondershare.com/filmora/article-images/2023/03/saving-youtube-video-music.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3
 
@@ -160,16 +154,23 @@ Step4 Repeat the second and third steps to save all the other songs you wish to 
 
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
-![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Create a YouTube Music playlist on iPhone?
 
@@ -182,19 +183,6 @@ Step1 Download and launch the YouTube Music app on your [iPhone](https://apps.ap
 Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLIST"** at the bottom right corner of the screen, and type in the name of the new music playlist.
 
 ![new playlist option on youtube music app](https://images.wondershare.com/filmora/article-images/2023/03/new-playlist-option-on-youtube-music-app.png)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 In the next step, type in the name of your new playlist, select your privacy preferences, i.e., Private, Public, or unlisted, and tap **"Create"** to complete the process.
 
@@ -212,6 +200,19 @@ Then, tap **"Create a new playlist"** at the bottom right corner of the screen, 
 
 ![create new playlist youtube android](https://images.wondershare.com/filmora/article-images/2023/03/create-new-playlist-youtube-android.png)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 In the next step, choose your privacy preferences and tap **"OK"** to create the new YouTube music playlist.
 
 ![creating youtube music playlist android](https://images.wondershare.com/filmora/article-images/2023/03/creating-youtube-music-playlist-android.png)
@@ -221,20 +222,13 @@ Now tap to close the video, tap **"Library"** at the bottom of the screen, scrol
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
@@ -271,19 +265,16 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-streaming-success-recording-roblox-on-apple-devices/"><u>[New] 2024 Approved Streaming Success Recording Roblox on Apple Devices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-editors-playbook-essential-strategies-for-youtube-video-crafting/"><u>[New] In 2024, The Editor's Playbook Essential Strategies for Youtube Video Crafting</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-channeling-wealth-through-beauty-online-platforms/"><u>[Updated] Channeling Wealth Through Beauty Online Platforms</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-chromes-multi-screen-magic-pip-tutorial/"><u>[Updated] Chrome's Multi-Screen Magic PIP Tutorial</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-creating-captivating-visuals-with-diy-filming-methods-for-2024/"><u>[Updated] Creating Captivating Visuals with DIY Filming Methods for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>[Updated] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-math-behind-making-money-youtubes-viewer-insights-for-2024/"><u>[Updated] The Math Behind Making Money YouTube’s Viewer Insights for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>2024 Approved A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722970217075-download-your-optimized-wireless-drivers-now-issue-resolved/"><u>Download Your Optimized Wireless Drivers Now - Issue Resolved!</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-free-extension-software-leaders-in-chromebook-video-recording/"><u>In 2024, Free Extension Software Leaders in Chromebook Video Recording</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/leveraging-android-for-immersive-virtual-and-360-videos/"><u>Leveraging Android for Immersive Virtual and 360 Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/photography-on-instagram-adding-images-made-simple/"><u>Photography on Instagram Adding Images Made Simple</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-vivo-x-flip-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Vivo X Flip? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/bes-high-stakes-hardware-showdown/"><u>YouTube’s High-Stakes Hardware Showdown</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-exploring-the-law-recording-youtube-content-playback/"><u>[New] 2024 Approved Exploring the Law Recording YouTube Content Playback</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-flixfusion-the-ultimate-gaming-channel-mix/"><u>[New] In 2024, FlixFusion The Ultimate Gaming Channel Mix</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ideal-changing-voices-for-online-influencers/"><u>[New] In 2024, Ideal Changing Voices for Online Influencers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-kakaotalk-elites-flash-chats-on-snapchat/"><u>[Updated] 2024 Approved KakaoTalk Elites' Flash Chats on Snapchat</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-seamless-subtitle-management-a-mac-edition/"><u>[Updated] In 2024, Seamless Subtitle Management A Mac Edition</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/creative-tims-vuetify-material-professional-ui-kit-ultimate-vuejs-dashboard-solution-for-web-developers/"><u>Creative Tim's Vuetify Material Professional UI Kit - Ultimate Vuejs Dashboard Solution for Web Developers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-explore-10-premier-historical-youtube-networks/"><u>In 2024, Explore 10 Premier Historical Youtube Networks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/tech-triumph-unveiling-the-story-behind-an-engineers-app-that-outsmarts-mcdonalds-strategy-analysis-by-zdnet/"><u>Tech Triumph: Unveiling the Story Behind an Engineer’s App That Outsmarts McDonald's Strategy | Analysis by ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-the-move-towards-electrification-in-the-automotive-industry/"><u>Understanding the Move Towards Electrification in the Automotive Industry</u></a></li>
 </ul></div>
 

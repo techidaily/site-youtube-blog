@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of YouTube Shorts  Filming and Editing Made Simple for 2024\""
-date: 2024-09-13T16:02:34.446Z
-updated: 2024-09-17T18:31:08.581Z
+date: 2024-09-17T21:16:36.456Z
+updated: 2024-09-22T16:43:44.651Z
 tags:
   - ai video
   - ai youtube
@@ -76,9 +76,29 @@ Certain things that you must keep in mind while creating **YouTube Shorts** incl
 * **YouTube Shorts** cannot be monetized. However, they can serve as a good medium to attract and redirect the audiences to your main YouTube channel which may contain several videos that are eligible for monetization.
 * The number of views and the total playtime of the **YouTube Shorts** videos DO affect your YouTube channel statistics
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Where People Can Find YouTube Shorts
 
 As mentioned earlier, **YouTube Shorts** can be accessed by launching the YouTube app on your Android or iOS device. You can use **YouTube Shorts** by clicking the **+** (**Add**) icon present at the bottom. Once the **YouTube Shorts app** is initialized, you can easily create and publish short videos by following the simple on-screen instructions.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 2: How to Make and Upload a YouTube Shorts Video with Shorts App?**
 
@@ -87,6 +107,13 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 **Step 1: Record a Video with YouTube Shorts**
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
 
@@ -124,25 +151,11 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The following step-by-step guide teaches you how to use Wondershare Filmora to create a vertical **YouTube Shorts** video:
 
@@ -155,10 +168,10 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
@@ -193,18 +206,18 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Render the Final Output**
 
@@ -240,13 +253,6 @@ Unfortunately, NO. Although you cannot monetize the recordings published as **Yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -268,20 +274,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/levate-engagement-crafting-effective-youtube-backlinks/"><u>[New] Elevate Engagement Crafting Effective YouTube Backlinks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exclusive-secrets-for-windows-11-mastery/"><u>[New] Exclusive Secrets for Windows 11 Mastery</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/movie-clip-integration-into-youtubes-vast-network/"><u>[New] IMovie Clip Integration Into YouTube's Vast Network</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-decoding-aspect-ratios-for-effective-youtube-videos/"><u>[Updated] 2024 Approved Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-elevate-your-youtube-videos-popularity-through-persistent-cc-licensing/"><u>[Updated] 2024 Approved How to Elevate Your YouTube Video's Popularity Through Persistent CC Licensing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-laws-surrounding-personal-recording-on-youtube-site/"><u>[Updated] Laws Surrounding Personal Recording on YouTube Site</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-prime-audio-solutions-for-creators/"><u>[Updated] Prime Audio Solutions for Creators</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-studios-secret-for-seamless-video-editing-for-2024/"><u>[Updated] YouTube Studio's Secret for Seamless Video Editing for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/confidential-communication-with-ai-unlock-the-potential-of-private-messaging-on-duckduckgo-including-chatgpt-capabilities/"><u>Confidential Communication with AI: Unlock the Potential of Private Messaging on DuckDuckGo Including ChatGPT Capabilities</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/introducing-asus-revolutionary-nuc-tiny-pc-lineup-featuring-advanced-rtx-4000-gpu-technology/"><u>Introducing ASUS' Revolutionary NUC Tiny PC Lineup Featuring Advanced RTX 4000 GPU Technology</u></a></li>
-<li><a href="https://fox-access.techidaily.com/maximizing-speed-with-top-pc-monitor-controls-for-2024/"><u>Maximizing Speed with Top PC Monitor Controls for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-lava-blaze-curve-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/unraveling-the-mystery-of-permanent-bsod-mastery-over-corrective-whea-mishaps/"><u>Unraveling the Mystery of Permanent BSOD: Mastery over Corrective WHEA Mishaps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/raft-stellar-channels-best-10-apps-for-artistic-banner-design-for-2024/"><u>[New] Craft Stellar Channels Best 10 Apps for Artistic Banner Design for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-packing-list-film-your-excursions/"><u>[Updated] 2024 Approved Packing List Film Your Excursions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enhancing-youtube-visibility-with-featured-channels-techniques/"><u>[Updated] Enhancing YouTube Visibility with Featured Channels Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-gear-guide-for-streaming-sensations/"><u>[Updated] Ultimate Gear Guide for Streaming Sensations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unlocking-youtube-success-with-the-right-networking-choice/"><u>2024 Approved Unlocking YouTube Success with the Right Networking Choice</u></a></li>
+<li><a href="https://win-answers.techidaily.com/battle-resolved-fixing-system-errors-in-midgards-warrior-tribes/"><u>Battle Resolved: Fixing System Errors in Midgard's Warrior Tribes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-freeware-for-mac-users-premier-audio-conversion-software-of-2018/"><u>Best Freeware for Mac Users: Premier Audio Conversion Software of 2018</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/choosing-your-recording-champion-pick-obs-or-bandicam-in-2024/"><u>Choosing Your Recording Champion Pick OBS or Bandicam, In 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-x-fold-2-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo X Fold 2 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-stock-watch-top-15-youtube-guides/"><u>In 2024, Stock Watch Top 15 YouTube Guides</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-5-best-cellphone-tunes-of-the-year/"><u>New 2024 Approved 5 Best Cellphone Tunes of the Year</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ar-vlogger-discussion-guidelines-for-2024/"><u>Regular Vlogger Discussion Guidelines for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-the-problem-steps-to-repair-non-responsive-macos-applications/"><u>Solving the Problem: Steps to Repair Non-Responsive macOS Applications</u></a></li>
 </ul></div>
 

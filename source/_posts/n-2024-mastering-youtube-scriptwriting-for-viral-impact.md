@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering YouTube Scriptwriting for Viral Impact"
-date: 2024-07-13T14:26:27.326Z
-updated: 2024-07-14T14:26:27.326Z
+date: 2024-09-15T17:17:20.443Z
+updated: 2024-09-22T18:10:24.465Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,17 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
@@ -64,6 +68,13 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -93,6 +104,13 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -107,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +138,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-how-to-use-cartoon-face-lens-in-snapchat/"><u>[Updated] In 2024, How to Use Cartoon Face Lens in Snapchat?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-solo-creators-path-to-dynamic-animation-art-for-2024/"><u>[Updated] The Solo Creator’s Path to Dynamic Animation Art for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-harmonic-hits-top-rated-dj-template-downloads/"><u>2024 Approved Harmonic Hits Top-Rated DJ Template Downloads</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/descargar-la-herramienta-gratuita-para-convertir-archivos-de-ogg-a-mov-guia-completa-con-movavi/"><u>Descargar La Herramienta Gratuita Para Convertir Archivos De Ogg a Mov: Guía Completa Con Movavi</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-cod-warzone-pacific-how-to-avoid-server-crashes/"><u>Fixing Cod: Warzone Pacific - How to Avoid Server Crashes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-authenticate-your-yt-account-a-hint-list-for-2024/"><u>How to Authenticate Your YT Account? A Hint List for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-broadcast-power-playout-analyzing-obs-versus-twitch-studios-strengths/"><u>In 2024, Broadcast Power Playout Analyzing OBS Versus Twitch Studio's Strengths</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/learn-languages-more-efficiently-discover-how-chatgpt-plus-can-assist-you/"><u>Learn Languages More Efficiently: Discover How ChatGPT Plus Can Assist You</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-itel-a70-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016219792-troubleshooting-non-functional-sound-on-your-windows-10-system-solved/"><u>Troubleshooting Non-Functional Sound on Your Windows 10 System - Solved!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-video-watermark-editor-top-rated-options/"><u>Updated Free Video Watermark Editor Top Rated Options</u></a></li>
+</ul></div>
 

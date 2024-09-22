@@ -1,0 +1,169 @@
+---
+title: "[New] YouTube Video Shine Techniques for Clearer Visuals"
+date: 2024-09-17T19:38:50.542Z
+updated: 2024-09-22T16:23:22.435Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [New] YouTube Video Shine Techniques for Clearer Visuals"
+excerpt: "This Article Describes [New] YouTube Video Shine Techniques for Clearer Visuals"
+keywords: "\"YouTube Clarity Tips,Visual Content Enhancement,Video Brightness Techniques,Improve Video Quality,Shine Clearer Footage,Optimal Video Illumination,High-Quality Video Upgrade\""
+thumbnail: https://thmb.techidaily.com/852437a8f4dc8f33eb3a839d8b7d9a1e3df217c9c33ef7947ef934470397fa43.jpg
+---
+
+## YouTube Video Shine Techniques for Clearer Visuals
+
+# How To Light Your YouTube Video
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+When it comes to sensitivity to light, no consumer-level camera sensor comes close in performance to the human eye. Many newbies to videography, though, don’t think about this when they use their camera indoors and discover that their recorded footage appears too dark.
+
+If you want to use your camera indoors as many YouTubers do, you’ll need to have extra light. But the solution is not as simple as surrounding yourself with lamps that are all randomly placed.
+
+Below, I’ll go into detail on how you can set up your lighting equipment to make your YouTube videos look good.
+
+| Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
+| ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Part 1: Using Light You Already Have
+
+Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
+
+### 1.  Window Lighting
+
+The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
+
+Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
+
+![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+
+Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+### 2. Home Lighting
+
+Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
+
+![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
+
+Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
+
+Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
+
+## Part 2: Home Studio Lighting
+
+If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 1. Light Control
+
+The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+### 2. 3-Point Lighting
+
+The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
+
+![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
+
+To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
+
+Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 3. 4-Point Lighting
+
+As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
+
+What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
+
+For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Touch Up YouTube Videos with Filmora
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-gaming-power-up-perfecting-your-switch-pro-on-steam/"><u>[New] 2024 Approved Gaming Power-Up Perfecting Your Switch Pro on Steam</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-fast-guide-transforming-images-into-youtube-desktop-thumbnails/"><u>[New] In 2024, Fast Guide Transforming Images Into YouTube Desktop Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-device-capture-to-viral-content-youtubes-upload-guide/"><u>[New] In 2024, From Device Capture to Viral Content YouTube's Upload Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-pathway-to-crafting-a-viral-video-introduction/"><u>[New] In 2024, The Pathway to Crafting a Viral Video Introduction</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-simplify-collaboration-in-windows-10-effective-use-of-zoom-services/"><u>[New] Simplify Collaboration in Windows 10 Effective Use of Zoom Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-break-through-boundaries-15plus-best-free-video-starters/"><u>[Updated] In 2024, Break Through Boundaries 15+ Best Free Video Starters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-10-video-editing-secrets-to-skyrocket-your-channels/"><u>2024 Approved Top 10 Video Editing Secrets to Skyrocket Your Channels</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-tecno-pop-7-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Tecno Pop 7 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-y78-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo Y78 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-watch-deleted-youtube-videos-online-in-2-ways-ultimate-guide-for-2024/"><u>How to Watch Deleted YouTube Videos Online in 2 Ways | Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-beginner-to-expert-choose-studio-or-beta/"><u>In 2024, From Beginner to Expert Choose Studio or Beta</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-8-youtuber-blunders-to-avoid-and-why-theyre-common/"><u>In 2024, Top 8 Youtuber Blunders to Avoid and Why They're Common</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/master-your-online-presence-using-manycams-powerful-virtual-webcam-features/"><u>Master Your Online Presence Using ManyCam's Powerful Virtual Webcam Features!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/trends-in-remote-control-drones-syma-x8c-for-2024/"><u>Trends in Remote Control Drones Syma X8C for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-resolving-coredll-not-found-and-missing-dll-errors-on-your-pc/"><u>Ultimate Guide: Resolving 'Core.dll Not Found' And Missing DLL Errors on Your PC</u></a></li>
+</ul></div>
+

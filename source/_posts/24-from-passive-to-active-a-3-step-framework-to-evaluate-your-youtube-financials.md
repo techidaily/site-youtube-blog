@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Passive to Active  A 3-Step Framework to Evaluate Your YouTube Financials\""
-date: 2024-07-13T14:30:30.224Z
-updated: 2024-07-14T14:30:30.224Z
+date: 2024-09-15T16:59:11.162Z
+updated: 2024-09-22T21:02:55.931Z
 tags:
   - ai video
   - ai youtube
@@ -132,6 +132,13 @@ Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up that appears, adjust the settings according to your requirements.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
@@ -208,6 +215,19 @@ Step2 Click Analytics from the left side of the screen.
 
 ![how to check youtube income on pc 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 On the Analytics screen, select Revenue from the top side of the screen to check your YouTube income.
 
 There, you’ll find your YouTube income and other necessary data that you might need.
@@ -249,6 +269,13 @@ The information that you’ll find in the YouTube revenue analytics includes the
 * **Transaction Revenue;** The transaction revenue metric is a breakdown of how much a creator has earned from membership and merch.
 * **Top Earnings;** It shows the data of the video with the highest estimated revenue.
 * **Ad Type;** This displays the percentage of revenue earned from the different types of ads.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How your YouTube earnings are calculated
 
@@ -296,6 +323,13 @@ Step4 To remove unwanted background from your video, click Effects from the top 
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that, adjust the AI Portrait effect from the timeline. You can also add multiple effects by dragging and dropping them to the timeline.
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
@@ -304,11 +338,15 @@ Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up tha
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7 You can add Subscribe watermark by clicking the >> icon at the top of the screen, then select Element.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click element filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-13.jpg)
 
 Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected effect to the Timeline.
@@ -377,8 +415,6 @@ Checking YouTube income is not a big deal. This article has covered every necess
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -386,6 +422,20 @@ Checking YouTube income is not a big deal. This article has covered every necess
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>[New] In 2024, Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-view-count-rewards-on-youtube-per-million/"><u>[New] In 2024, View Count Rewards on YouTube – Per Million?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-depth-insight-on-selecting-superior-valheim-seeds/"><u>[New] In-Depth Insight on Selecting Superior Valheim Seeds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-building-free-youtube-intro-videos/"><u>[New] Step-by-Step Building FREE YouTube Intro Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-stabilization-of-video-on-personal-tech-devices/"><u>[Updated] Mastering Stabilization of Video on Personal Tech Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-uncover-top-8-websites-with-free-3d-text-psds/"><u>2024 Approved Uncover Top 8 Websites with Free 3D Text PSDs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/comprehensive-fixes-for-running-into-issues-with-audio-services-resolved/"><u>Comprehensive Fixes for Running Into Issues with Audio Service(s) [Resolved]</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-compelling-thumbnails-to-captivate-youtube-viewers-and-encourage-clicks/"><u>Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-dell-g15-driver-download-and-installation-tutorial-for-windows-operating-systems/"><u>Easy Dell G15 Driver Download and Installation Tutorial for Windows Operating Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-tecno-camon-20-premier-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Tecno Camon 20 Premier 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-tecno-spark-10-4g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Tecno Spark 10 4G Pattern Lock Screen</u></a></li>
+</ul></div>
 

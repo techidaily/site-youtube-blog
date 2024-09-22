@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube Shortcuts You Should Know"
-date: 2024-09-16T18:26:51.850Z
-updated: 2024-09-17T17:06:46.130Z
+date: 2024-09-19T18:05:38.042Z
+updated: 2024-09-22T19:02:08.921Z
 tags:
   - ai video
   - ai youtube
@@ -86,13 +86,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -102,6 +95,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -141,6 +141,13 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -149,20 +156,13 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -186,18 +186,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/reating-engaging-youtube-content-a-step-by-step-approach-for-2024/"><u>[New] Creating Engaging YouTube Content A Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-boost-creativity-in-photos-the-ultimate-list-of-20-snap-lenses/"><u>[New] In 2024, Boost Creativity in Photos The Ultimate List of 20 Snap Lenses</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-ultimate-selection-for-captivating-youtube-content-starts-for-2024/"><u>[New] The Ultimate Selection for Captivating YouTube Content Starts for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-engaging-audiences-writing-compelling-titles-and-descriptions-for-youtube/"><u>[Updated] 2024 Approved Engaging Audiences Writing Compelling Titles and Descriptions for YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-demystifying-youtubes-keyword-power-play/"><u>[Updated] Demystifying YouTube's Keyword Power Play</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-8-best-tools-for-youtube-to-avi-conversion-for-2024/"><u>[Updated] Unveiling 8 Best Tools for YouTube to AVI Conversion for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/chromecast-vs-roku-face-off-which-device-wins-the-streaming-war/"><u>Chromecast Vs. Roku Face-Off: Which Device Wins the Streaming War?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/simplified-instructions-for-implementing-auto-gpt-on-your-ubuntu-machine/"><u>Simplified Instructions for Implementing Auto-GPT on Your Ubuntu Machine</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-and-resolving-call-of-dutys-diva-error-code-6-for-windows-players/"><u>Troubleshooting and Resolving Call of Duty's DIVA Error Code 6 for Windows Players</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unconventional-uses-what-if-google-recommended-ingestion-of-adhesives-and-fueling-your-pasta/"><u>Unconventional Uses: What if Google Recommended Ingestion of Adhesives and Fueling Your Pasta?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-14-plus-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking Apple iPhone 14 Plus Passcode without a Computer</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-how-to-quickly-create-a-screen-print-effect-in-photoshop-detailed-gui-for-2024/"><u>Updated How To Quickly Create A Screen Print Effect In Photoshop Detailed Gui for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-achieving-high-quality-fb-video-1080p-streaming-guide-for-2024/"><u>[New] Achieving High-Quality FB Video 1080P Streaming Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-7-creative-thumbnails-free-tools-for-youtube/"><u>[New] In 2024, 7 Creative Thumbnails Free Tools for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egality-of-recording-on-youtube-platform/"><u>[New] Legality of Recording on YouTube Platform?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitters-media-mashup-a-how-to-guide/"><u>[Updated] 2024 Approved Twitter's Media Mashup A How-To Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-vocal-modification-devices-for-digital-creators-for-2024/"><u>[Updated] Top Vocal Modification Devices for Digital Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-video-potential-youtube-to-igtv-for-2024/"><u>[Updated] Unlocking Video Potential YouTube to IGTV for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-itel-p40plus-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-8-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 8 To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-a24-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy A24 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastery-in-migrating-youtube-videos-to-igtv-platform/"><u>In 2024, Mastery in Migrating YouTube Videos to IGTV Platform</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-secrets-of-saving-screenshots-tips-and-tricks-for-dell-users/"><u>In 2024, Secrets of Saving Screenshots Tips & Tricks for Dell Users</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-toshiba-silvertown-graphics-card-drivers-for-windows-users/"><u>Latest Toshiba SILVERTOWN Graphics Card Drivers for Windows Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/social-media-smarter-elevating-your-fb-page-ranking/"><u>Social Media Smarter Elevating Your FB Page Ranking</u></a></li>
 </ul></div>
 

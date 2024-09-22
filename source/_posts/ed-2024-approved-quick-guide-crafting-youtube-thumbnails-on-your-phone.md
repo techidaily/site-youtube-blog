@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Guide  Crafting YouTube Thumbnails on Your Phone\""
-date: 2024-07-13T14:26:01.324Z
-updated: 2024-07-14T14:26:01.324Z
+date: 2024-09-15T16:07:11.101Z
+updated: 2024-09-22T17:12:10.300Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,6 @@ Step1 Open the Photos app and find the image you want to use as your thumbnail. 
 
 Step2 Tap the **Edit** button in the top right corner of the screen. Use the **crop and rotate tools** to adjust the perspective and the aspect ratio of 16:9.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ios photo edit](https://images.wondershare.com/filmora/article-images/ios-photo-edit.JPG)
 
 Step3 Tap the **Filters** button to access the filter effects. **Scroll** through the available filters and **tap** on one to apply it to your thumbnail image.
@@ -173,6 +170,13 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
@@ -229,6 +233,13 @@ Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 
 ![pixellab install](https://images.wondershare.com/filmora/article-images/pixellab-install.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
@@ -272,6 +283,13 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -314,6 +332,13 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
@@ -325,6 +350,13 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
 
@@ -372,8 +404,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -381,6 +411,23 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-video-quality-with-expertise-in-studio-editor-use/"><u>[New] In 2024, Optimize Video Quality with Expertise in Studio Editor Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-viral-video-tags-tips-for-popular-youtube-shorts/"><u>[New] Top Viral Video Tags Tips for Popular YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-your-cheat-sheet-for-auditing-friends-vibrant-livestrances-for-2024/"><u>[New] Your Cheat Sheet for Auditing Friends’ Vibrant Livestrances for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-multi-platform-content-delivery-youtube-and-beyond/"><u>[Updated] 2024 Approved Mastering Multi-Platform Content Delivery YouTube & Beyond</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-navigating-instagrams-authenticity-rules/"><u>[Updated] 2024 Approved Navigating Instagram’s Authenticity Rules</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-a-digital-identity-simple-steps-to-create-businesspersonal-youtube-channels-on-smartphones-for-2024/"><u>[Updated] Crafting a Digital Identity Simple Steps to Create Business/Personal YouTube Channels on Smartphones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stream-video-smoothly-save-pcmac-screens-to-youtube-for-2024/"><u>[Updated] Stream Video Smoothly Save PC/Mac Screens to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-economics-of-earning-via-youtube/"><u>[Updated] The Economics of Earning via YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oted-shorts-now-shown-prominently/"><u>Fix Noted Shorts Now Shown Prominently</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/masterclass-in-real-time-twitvid-engagement-for-2024/"><u>Masterclass in Real-Time TwitVid Engagement for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-create-stunning-video-invites-top-apps-for-ios-and-android/"><u>New 2024 Approved Create Stunning Video Invites Top Apps for iOS and Android</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-steam-game-startup-problems-on-your-windows-10-pc/"><u>Overcoming Steam Game Startup Problems on Your Windows 10 PC</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-distorted-images-and-discoloration-problems-on-computer-screens/"><u>Solving Distorted Images and Discoloration Problems on Computer Screens</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-free-audio-asset-websites-for-enhancing-your-video-projects/"><u>Top Free Audio Asset Websites for Enhancing Your Video Projects</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-splice-is-high-rated-video-editing-app-for-ios-and-android-devices-read-on-to-learn-how-to-download-splice-video-editor-for-mac-and-th/"><u>Updated 2024 Approved Splice Is High-Rated Video Editing App for iOS and Android Devices. Read on to Learn How to Download Splice Video Editor for Mac and the Best Alternative</u></a></li>
+<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Vivo Y27 5G | Dr.fone</u></a></li>
+</ul></div>
 
