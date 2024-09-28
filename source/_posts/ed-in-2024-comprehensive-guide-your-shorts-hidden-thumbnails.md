@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Comprehensive Guide  Your Shorts' Hidden Thumbnails\""
-date: 2024-09-18T16:16:55.516Z
-updated: 2024-09-22T16:01:40.928Z
+date: 2024-09-22T17:39:03.665Z
+updated: 2024-09-28T19:27:30.264Z
 tags:
   - ai video
   - ai youtube
@@ -102,15 +102,36 @@ YouTube also adjusted the requirements to qualify for the YPP. They made it easi
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click "Library" on the left panel.
 
@@ -121,17 +142,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -143,6 +157,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -156,6 +177,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -165,13 +193,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
@@ -203,22 +224,35 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Like the Shorts video.
 
@@ -235,13 +269,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -268,5 +295,26 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-from-idea-to-execution-an-essential-guide-to-youtube-shorts-template-design/"><u>[New] In 2024, From Idea to Execution An Essential Guide to YouTube Shorts Template Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-conceal-dont-reveal-how-to-blur-faces-online/"><u>[Updated] 2024 Approved Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-mastery-of-video-sharing-a-guide-to-utilizing-zoom-on-the-youtube-platform/"><u>[Updated] 2024 Approved Mastery of Video Sharing A Guide to Utilizing Zoom on the YouTube Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-captivating-openings-top-free-intra-makers-list-for-2024/"><u>[Updated] Crafting Captivating Openings Top Free Intra Makers List for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-infuse-personality-into-your-content-with-custom-thumbnails-for-2024/"><u>[Updated] Infuse Personality Into Your Content with Custom Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamline-your-watching-enabling-youtube-autoplay-in-facebook-feeds/"><u>[Updated] Streamline Your Watching Enabling YouTube Autoplay in Facebook Feeds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unique-vlogging-conversation-pieces/"><u>[Updated] Unique Vlogging Conversation Pieces</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-visual-velocity-time-lapse-photography-with-samsung-gear/"><u>[Updated] Visual Velocity Time-Lapse Photography with Samsung Gear</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-dynamic-resolution-enhancer-for-video-files/"><u>2024 Approved Dynamic Resolution Enhancer for Video Files</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-fuel-the-fire-top-videos-that-inspire-audiences/"><u>2024 Approved Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision/"><u>2024 Approved Mics & More Discovering the Audio Essential That Matches Your YT Vision</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-nubia-red-magic-8s-proplus-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Nubia Red Magic 8S Pro+ FRP</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723003875812-age-of-empires-iv-launch-troubles-heres-the-solution/"><u>Age of Empires IV Launch Troubles? Here's The Solution</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/el-name-genius-brainstorming-like-a-pro/"><u>Channel Name Genius Brainstorming Like a Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-s24-ultra-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Samsung Galaxy S24 Ultra in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-screen-solidarities-picking-the-right-media-company/"><u>In 2024, Screen Solidarities Picking the Right Media Company</u></a></li>
+<li><a href="https://review-topics.techidaily.com/infinix-music-recovery-recover-deleted-music-from-infinix-by-fonelab-android-recover-music/"><u>Infinix Music Recovery - Recover Deleted Music from Infinix</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/perfect-your-content-with-top-tier-title-tactics-for-2024/"><u>Perfect Your Content with Top-Tier Title Tactics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/lueprint-of-youtubes-innovative-shorts-economy-model-for-2024/"><u>The Blueprint of YouTube's Innovative Shorts Economy Model for 2024</u></a></li>
+</ul></div>
 

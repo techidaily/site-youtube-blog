@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Professional Selfies  Elevating Your Online Presence\""
-date: 2024-09-18T16:00:52.835Z
-updated: 2024-09-22T18:42:36.470Z
+date: 2024-09-24T19:01:19.591Z
+updated: 2024-09-28T17:45:34.868Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,21 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -73,10 +87,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -86,19 +100,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -124,6 +125,13 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,5 +151,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/-step-by-step-guide-on-applying-cc-rights-effectively/"><u>[New] A Step-by-Step Guide on Applying CC Rights Effectively</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-convert-youtube-videos-seamlessly-into-avi-for-2024/"><u>[New] How to Convert YouTube Videos Seamlessly Into AVI for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remier-popularity-prognosticator-for-video-charts/"><u>[New] Premier Popularity Prognosticator for Video Charts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-visual-storytelling-crafting-impressive-imovie-video-intros/"><u>[Updated] 2024 Approved Visual Storytelling Crafting Impressive iMovie Video Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-harness-the-power-of-youtube-studio-for-ultimate-edits-for-2024/"><u>[Updated] Harness the Power of YouTube Studio for Ultimate Edits for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-riches-in-pixels-identifying-the-best-12-sites-with-free-stock-photos/"><u>[Updated] Riches in Pixels Identifying the Best 12 Sites with Free Stock Photos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-reach-audience-zenith-peak-watch-timings-uncovered/"><u>2024 Approved Reach Audience Zenith - Peak Watch Timings Uncovered</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-issues-with-youtube-shorts-thumbnails-for-2024/"><u>Common Issues with YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-for-justice-pal-activist-efforts-impact-fb-store-scores/"><u>Hacking for Justice? Pal-Activist Efforts Impact FB Store Scores</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-motorola-razr-40-ultra-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-trim-youtube-videos/"><u>How to Trim YouTube Videos?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-tecno-phantom-v-flip-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Tecno Phantom V Flip?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/methode-facile-pour-transformer-des-videos-m4v-en-swf-sans-frais-avec-loutil-gratuit-de-movavi-online/"><u>Méthode Facile Pour Transformer Des Vidéos M4V en SWF Sans Frais Avec L'outil Gratuit De Movavi Online</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-how-to-convert-webm-to-mp3-top-conversion-software-compared/"><u>Updated In 2024, How to Convert WebM to MP3 Top Conversion Software Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-huawei-p30-pro-remains-my-favorite-phone-a-comprehensive-review/"><u>Why the Huawei P30 Pro Remains My Favorite Phone - A Comprehensive Review</u></a></li>
+</ul></div>
 

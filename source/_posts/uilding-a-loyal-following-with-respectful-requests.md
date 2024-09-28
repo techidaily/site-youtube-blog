@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Loyal Following with Respectful Requests"
-date: 2024-09-16T18:09:09.931Z
-updated: 2024-09-22T19:30:13.254Z
+date: 2024-09-27T20:08:24.709Z
+updated: 2024-09-28T20:26:22.824Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -71,6 +78,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 Even with the above tricks, you may not get the subscribers as you wish unless you can make sure your videos and contents are of high quality. As YouTube is getting more and more popular and more YouTubers are competing for subscribers, you will need to polish your YouTube videos.
@@ -81,9 +95,23 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -104,12 +132,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-teaching-techniques-with-youtube-a-practical-approach/"><u>[New] 2024 Approved Teaching Techniques with YouTube A Practical Approach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levate-your-channel-vision-selecting-ideal-content-strategies-for-2024/"><u>[New] Elevate Your Channel Vision Selecting Ideal Content Strategies for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-a-youtube-trailer-for-2024/"><u>[New] How To Make a YouTube Trailer for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-perfecting-virtual-sessions-best-free-and-paid-zoom-transcribing-tools/"><u>[New] In 2024, Perfecting Virtual Sessions Best Free & Paid Zoom Transcribing Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-secrets-of-squaring-up-making-square-format-videos-with-imovie-for-instagram/"><u>[Updated] In 2024, The Secrets of Squaring Up Making Square-Format Videos with iMovie for Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prime-your-vlogging-game-top-tier-mac-mp4-editors-reviewed/"><u>[Updated] Prime Your Vlogging Game Top-Tier Mac MP4 Editors Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-blueprint-for-viral-video-mastery-for-2024/"><u>[Updated] The Blueprint for Viral Video Mastery for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-amplifying-online-presence-focusing-on-details/"><u>2024 Approved Amplifying Online Presence Focusing on Details</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-13-proipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone 13 Pro/iPad/iPod</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-itel-p55-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Itel P55 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/online-broadcast-of-samsung-unveiling-your-step-by-step-watch-tips/"><u>Online Broadcast of Samsung Unveiling: Your Step-by-Step Watch Tips</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/optimizing-daily-life-the-best-18-apple-shortcut-app-techniques-unveiled/"><u>Optimizing Daily Life: The Best 18 Apple Shortcut App Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-your-audio-preferences-moving-spotify-playlists-to-youtube-music-for-2024/"><u>Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/understanding-the-dynamics-of-ig-reels-vs-ig-stories-for-2024/"><u>Understanding the Dynamics of IG Reels Vs IG Stories for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Checklist for Constructing Your YouTube Musical Assortment\""
-date: 2024-09-21T17:43:29.488Z
-updated: 2024-09-22T20:27:54.136Z
+date: 2024-09-24T20:30:33.599Z
+updated: 2024-09-28T19:01:32.402Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,19 @@ Step2 When you have signed in, look for your favorite track on the YouTube live 
 
 ![saving youtube video music](https://images.wondershare.com/filmora/article-images/2023/03/saving-youtube-video-music.png)
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3
 
 * **Now**, select the **"Create a new playlist"**
@@ -54,6 +67,13 @@ Step3
 * Choose to make it **Public**, **Unlisted**, or **Private**.
 
 ![youtube create a new playlist](https://images.wondershare.com/filmora/article-images/2023/03/youtube-create-a-new-playlist.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The differences between the three options are:
 
@@ -89,19 +109,6 @@ Step3 In the next step, type in the name of your new playlist, select your priva
 
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Create a YouTube Music playlist on Android?
 
 YouTube Music app interface for Android is different than for iPhone, so do the following steps to create a new playlist quickly.
@@ -113,10 +120,10 @@ Then, tap **"Create a new playlist"** at the bottom right corner of the screen, 
 ![create new playlist youtube android](https://images.wondershare.com/filmora/article-images/2023/03/create-new-playlist-youtube-android.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 In the next step, choose your privacy preferences and tap **"OK"** to create the new YouTube music playlist.
@@ -138,10 +145,10 @@ You know how to create a YouTube playlist on the web or on your mobile. However,
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -177,10 +184,10 @@ Step4 Repeat the second and third steps to save all the other songs you wish to 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
@@ -197,18 +204,25 @@ Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLI
 
 ![new playlist option on youtube music app](https://images.wondershare.com/filmora/article-images/2023/03/new-playlist-option-on-youtube-music-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 In the next step, type in the name of your new playlist, select your privacy preferences, i.e., Private, Public, or unlisted, and tap **"Create"** to complete the process.
 
 ![creating new youtube music playlist on iphone](https://images.wondershare.com/filmora/article-images/2023/03/creating-new-youtube-music-playlist-on-iPhone.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Create a YouTube Music playlist on Android?
 
@@ -229,6 +243,19 @@ Now tap to close the video, tap **"Library"** at the bottom of the screen, scrol
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
@@ -263,5 +290,20 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-trendsetting-visualizations-for-the-year-ahead/"><u>[New] 2024 Approved Trendsetting Visualizations for the Year Ahead</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/smr-audio-excellence-high-quality-mic-recommendations/"><u>[New] ASMR Audio Excellence High-Quality Mic Recommendations</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/webraf-to-jpeg-movavi/"><u>無償WebベースRAF to JPEGコンバーター Movaviによるシンプル変換方法</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-windows-11-taskbar-latency-issues/"><u>Addressing Windows 11 Taskbar Latency Issues</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-intel-wireless-ac-9560-driver-update-for-enhanced-connectivity/"><u>Get the Newest Intel Wireless AC 9560 Driver Update for Enhanced Connectivity</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-smart-7-hd-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Smart 7 HD Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-face-obscuring-made-easy-expert-video-editing-solutions/"><u>In 2024, Face Obscuring Made Easy Expert Video Editing Solutions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oppo-a79-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Oppo A79 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/th-unique-youtube-chats-for-2024/"><u>Unearth Unique YouTube Chats for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-the-secrets-restoring-siri-suggestion-visibility-on-iphones/"><u>Unlock the Secrets: Restoring Siri Suggestion Visibility on iPhones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubes-viewer-numbers-matter-more-than-you-think-for-2024/"><u>Why YouTube's Viewer Numbers Matter More Than You Think for 2024</u></a></li>
+</ul></div>
 

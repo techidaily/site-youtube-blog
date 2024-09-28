@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Video Magic Summit"
-date: 2024-09-16T17:36:40.723Z
-updated: 2024-09-22T16:11:45.112Z
+date: 2024-09-24T17:03:34.196Z
+updated: 2024-09-28T19:29:21.763Z
 tags:
   - ai video
   - ai youtube
@@ -68,16 +68,16 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -90,6 +90,13 @@ _thinknoodles wearing his YouTube slippers._
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -106,19 +113,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,5 +147,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-bridging-photography-and-cinematography-creating-fusion-videos-using-pixiz/"><u>[New] 2024 Approved Bridging Photography and Cinematography Creating Fusion Videos Using Pixiz</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-audience-connection-with-empowerment-vlogs/"><u>[New] 2024 Approved Building Audience Connection with Empowerment Vlogs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-digital-domination-worlds-top-10-video-content-kings-and-queens/"><u>[New] In 2024, Digital Domination World's Top 10 Video Content Kings & Queens</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-using-cc-copyrights-wisely/"><u>[New] In 2024, Mastering the Art of Using CC Copyrights Wisely</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-creators-guide-to-mastering-youtube-aspect-ratios/"><u>[New] In 2024, The Creator's Guide to Mastering YOUTUBE Aspect Ratios</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-how-to-halt-spotify-from-automatically-playing-podcasts-for-2024/"><u>[Updated] How to Halt Spotify From Automatically Playing Podcasts for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-macos-11-big-sur-system-details/"><u>[Updated] Navigating MacOS 11 Big Sur - System Details</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-rhythm-rendezvous-optimal-dj-video-selections/"><u>[Updated] Rhythm Rendezvous Optimal DJ Video Selections</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-hp-deskjet-ink-advantage-3755-all-in-one-driver-package-available-for-windows-1011-users/"><u>Complete HP Deskjet Ink Advantage 3755 All-in-One Driver Package Available for Windows 10/11 Users</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-driven-enhancing-user-experience-with-smart-analytics/"><u>Cookiebot-Driven: Enhancing User Experience with Smart Analytics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-max-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro Max without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ensuring-visibility-fixing-missing-shorts-thumbnails/"><u>In 2024, Ensuring Visibility Fixing Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-nubia-z50-ultra-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Nubia Z50 Ultra</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-mastery-elevate-your-content-with-smart-tag-techniques/"><u>YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+</ul></div>
 
