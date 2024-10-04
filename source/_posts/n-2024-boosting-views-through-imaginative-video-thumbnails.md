@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Boosting Views Through Imaginative Video Thumbnails"
-date: 2024-09-26T22:16:27.275Z
-updated: 2024-09-28T16:49:11.981Z
+date: 2024-09-30T21:15:47.444Z
+updated: 2024-10-03T17:41:12.016Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -63,10 +56,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -76,10 +69,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -95,10 +88,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -112,6 +105,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +134,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-capturing-your-lenovo-display-with-ease/"><u>[New] 2024 Approved Capturing Your Lenovo Display with Ease</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-chase-laughter-and-tears-on-instagram-with-these-10-feeds/"><u>[New] 2024 Approved Chase Laughter & Tears on Instagram with These 10 Feeds</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-snapshot-surprises-yearly-yt-stats-and-trends-in-graphics/"><u>[New] 2024 Approved Snapshot Surprises Yearly YT Stats & Trends in Graphics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-start-your-affordable-webinar-journey-with-youtube/"><u>[New] 2024 Approved Start Your Affordable Webinar Journey with YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-streamline-your-content-advanced-tricks-with-youtube-studio-editor/"><u>[New] 2024 Approved Streamline Your Content Advanced Tricks with YouTube Studio Editor</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-how-to-for-clearer-youtube-footage/"><u>[New] 2024 Approved The Ultimate How-To for Clearer YouTube Footage</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unlock-the-full-potential-of-your-youtube-videos-with-these-tips/"><u>[New] 2024 Approved Unlock the Full Potential of Your YouTube Videos with These Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unveiling-youtubes-mechanism-post-upload/"><u>[New] 2024 Approved Unveiling YouTube's Mechanism Post-Upload</u></a></li>
-<li><a href="https://driver-install.techidaily.com/augment-visual-fidelity-with-new-acer-drivers-for-w11/"><u>Augment Visual Fidelity with New Acer Drivers for W11</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/easy-access-to-12-exclusive-livestreams-daily/"><u>Easy Access to 12 Exclusive Livestreams Daily</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>In 2024, Access All Subtitles Top 10 Free Tools for YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-building-a-successful-career-through-youtube-short-film-making/"><u>In 2024, Building a Successful Career Through YouTube Short Film-Making</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-stream-smoothly-with-obs-studio-on-your-android/"><u>In 2024, Stream Smoothly with OBS Studio on Your Android</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-on-transforming-vmd-format-with-simple-tricks/"><u>Step-by-Step Tutorial on Transforming VMD Format with Simple Tricks</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-picks-of-netflix-originals-targeted-at-the-teen-audience/"><u>Top Picks of Netflix Originals Targeted at the Teen Audience</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/whats-new-in-windows-10-creators-update-insider-preview-build-1503/"><u>What’s New in Windows 10 Creators Update: Insider Preview Build 1503</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-impact-with-customized-youtube-audiences/"><u>[New] In 2024, Maximizing Impact with Customized Youtube Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-the-power-of-digital-advertising-with-our-comprehensive-set-of-50-free-youtube-banners/"><u>[New] In 2024, Unleash the Power of Digital Advertising with Our Comprehensive Set of 50 FREE YouTube Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-deep-dive-into-youtubes-income-models/"><u>[Updated] A Deep Dive Into YouTube’s Income Models</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-guidelines-for-perfect-nightscape-photography-for-2024/"><u>[Updated] Guidelines for Perfect Nightscape Photography for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-open-source-banner-resources-a-gift-to-youtubers/"><u>[Updated] Open Source Banner Resources A Gift to YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-proactive-measures-against-typical-short-video-issues/"><u>[Updated] Proactive Measures Against Typical Short Video Issues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-remedies-for-lack-of-display-in-youtube-screens-for-2024/"><u>[Updated] Remedies for Lack of Display in YouTube Screens for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamline-your-content-with-essential-ratio-knowledge-for-youtube/"><u>[Updated] Streamline Your Content with Essential Ratio Knowledge for YouTube</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-video-hosting-for-everyone-10-top-picks-for-private-and-business-videos/"><u>Free Video Hosting for Everyone 10 Top Picks for Private and Business Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fusion-of-visuals-and-sound-photo-to-video-journey-for-2024/"><u>Fusion of Visuals and Sound Photo to Video Journey for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-from-screen-to-speakers-secrets-to-successful-video-sharing/"><u>In 2024, From Screen To Speakers Secrets to Successful Video Sharing</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-v30-lite-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo V30 Lite 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-top-10-affordable-filmmaking-tools-for-indie-creators/"><u>New 2024 Approved Top 10 Affordable Filmmaking Tools for Indie Creators</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionizing-employee-interactions-with-gpt-powered-writing/"><u>Revolutionizing Employee Interactions with GPT-Powered Writing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-fps-settings-for-enhanced-4k-video-playback-quality/"><u>Top FPS Settings for Enhanced 4K Video Playback Quality</u></a></li>
 </ul></div>
 

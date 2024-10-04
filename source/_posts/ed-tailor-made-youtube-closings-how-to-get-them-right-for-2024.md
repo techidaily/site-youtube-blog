@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tailor-Made YouTube Closings  How to Get Them Right for 2024\""
-date: 2024-09-17T18:54:36.381Z
-updated: 2024-09-22T21:17:35.101Z
+date: 2024-09-30T20:31:13.997Z
+updated: 2024-10-04T00:09:29.012Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -114,6 +121,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
@@ -122,11 +136,25 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +175,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-curating-youtube-music-experiences-for-2024/"><u>[New] Curating YouTube Music Experiences for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-hone-your-talks-expert-insights-into-google-meet-chats/"><u>[New] In 2024, Hone Your Talks Expert Insights Into Google Meet Chats</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nnovative-tactics-starting-your-youtube-enterprise-from-mobile-for-2024/"><u>[New] Innovative Tactics Starting Your YouTube Enterprise From Mobile for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-securing-snapchat-footage-essential-mobile-tips/"><u>[Updated] In 2024, Securing Snapchat Footage Essential Mobile Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reclaiming-deleted-youtube-treasures-a-2-step-guide-for-2024/"><u>[Updated] Reclaiming Deleted YouTube Treasures A 2-Step Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-affordable-hd-action-cam-hits-top-list/"><u>2024 Approved Affordable HD Action Cam Hits Top List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-use-google-trends-to-come-up-with-video-ideas/"><u>2024 Approved How to Use Google Trends to Come up with Video Ideas?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convert-raw-images-to-tiff-for-free-with-movavis-web-tool/"><u>Convert RAW Images to TIFF for Free with Movavi's Web Tool</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cal-asmr-series-to-experience/"><u>Critical ASMR Series to Experience</u></a></li>
+<li><a href="https://common-error.techidaily.com/repairing-erroneous-dll-in-steam/"><u>Repairing Erroneous Dll in Steam</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/m-google-meet-directly-on-youtube-with-these-tips-for-2024/"><u>Stream Google Meet Directly on YouTube with These Tips for 2024</u></a></li>
+</ul></div>
 

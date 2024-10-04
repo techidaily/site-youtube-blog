@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Rapid-Fire Success Strategies  The Essential List of 20 Video Tips\""
-date: 2024-09-15T20:45:27.606Z
-updated: 2024-09-22T21:19:25.163Z
+date: 2024-09-29T17:11:32.262Z
+updated: 2024-10-04T01:14:32.243Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ With that said, the following two-columned tables give you detailed information 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -75,10 +82,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
@@ -93,13 +100,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -109,6 +109,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -148,6 +155,13 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -157,13 +171,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,5 +191,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-procedure-for-removing-stashed-videos-from-watch-later/"><u>[New] In 2024, Procedure for Removing Stashed Videos From Watch Later</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-expert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[Updated] 2024 Approved Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-tech-tools-for-streaming-a-detailed-overview-on-tv-recording/"><u>[Updated] 2024 Approved Tech Tools for Streaming A Detailed Overview on TV Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/a-closer-look-at-high-end-vr-walking-machines/"><u>A Closer Look at High-End VR Walking Machines</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/excellent-efficiency-in-simplicity-the-clearstream-eclipse-antenna-comprehensive-analysis/"><u>Excellent Efficiency in Simplicity: The ClearStream Eclipse Antenna Comprehensive Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-power-up-maximize-youtube-studio-dollars-across-platforms-for-2024/"><u>Profit Power-Up Maximize YouTube Studio Dollars Across Platforms for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-guide-converting-flv-videos-into-high-quality-mp4-formats-quickly/"><u>Step-by-Step Guide: Converting FLV Videos Into High-Quality MP4 Formats Quickly</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/re-your-video-shorts-thumbnails-not-showing-in-2024/"><u>Why Are Your Video Shorts' Thumbnails Not Showing, In 2024</u></a></li>
+</ul></div>
 

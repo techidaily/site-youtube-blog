@@ -1,7 +1,7 @@
 ---
 title: "[New] Effective YouTube Customization for Powerful Endings"
-date: 2024-09-25T20:02:10.596Z
-updated: 2024-09-28T21:28:09.323Z
+date: 2024-09-30T22:44:17.197Z
+updated: 2024-10-03T21:51:01.820Z
 tags:
   - ai video
   - ai youtube
@@ -61,16 +61,10 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How To Use Youtube Cards
@@ -83,10 +77,16 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Click “create” button. Select the timeline. In the end, apply.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The types of YouTube cards
@@ -107,10 +107,10 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -120,10 +120,10 @@ Now, that you are aware how to add YouTube end screen to your video, make use of
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -147,21 +147,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-beginners-guide-top-10-youtube-editing-tricks/"><u>[New] 2024 Approved Beginner's Guide Top 10 YouTube Editing Tricks</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-comprehensive-list-of-top-9-free-video-channel-branding-aids/"><u>[New] 2024 Approved Comprehensive List of Top 9 Free Video Channel Branding Aids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-youtube-playlist-downloads-a-comprehensive-guide/"><u>[New] 2024 Approved Mastering YouTube Playlist Downloads A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-transforming-shipping-surprises-into-experiences/"><u>[New] 2024 Approved Transforming Shipping Surprises Into Experiences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-complete-guide-to-registering-with-youtube/"><u>[New] A Complete Guide to Registering with YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-traveling-lens-quieter-assistant-360/"><u>[New] Traveling Lens Quieter Assistant 360°</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-unlock-fb-livestream-potential-with-recorded-content-know-how/"><u>[New] Unlock FB Livestream Potential with Recorded Content Know-How</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-prolific-mobile-video-makers-iphone-and-android/"><u>[Updated] Prolific Mobile Video Makers (iPhone & Android)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-production-value-with-free-sfx-libraries/"><u>Boost Production Value with Free SFX Libraries!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-your-videos-popularity-on-youtube-for-2024/"><u>Boost Your Video's Popularity on YouTube for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevate-your-cooking-skills-with-chatgpt-top-7-uses-for-home-chefs/"><u>Elevate Your Cooking Skills with ChatGPT – Top 7 Uses for Home Chefs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/june-20th-new-york-times-puzzle-solutions-and-answers-issue-375/"><u>June 20Th New York Times Puzzle Solutions & Answers (Issue #375)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-rendering-of-fortnite-icons-for-2024/"><u>Rapid Rendering of Fortnite Icons for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-honor-90-lite-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Honor 90 Lite Phone Hassle-Free</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ts-converter-pro-review-the-fastest-way-to-switch-between-video-formats-with-ease/"><u>TS Converter Pro Review: The Fastest Way to Switch Between Video Formats with Ease!</u></a></li>
-<li><a href="https://techidaily.com/update-your-hardware-drivers-with-device-manager-on-windows-7-by-drivereasy-guide/"><u>Update your hardware drivers with Device Manager on Windows 7</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rom-basic-to-exceptional-a-step-by-step-thumbnail-guide/"><u>[New] From Basic to Exceptional A Step-by-Step Thumbnail Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-nextv-networks-worldwide-streaming-with-your-locals/"><u>[New] NexTV Networks Worldwide Streaming With Your Locals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-artful-humor-chuckledrawings/"><u>[Updated] In 2024, Artful Humor ChuckleDrawings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-rapidly-crafting-valorant-image-highlights-for-gamers/"><u>[Updated] In 2024, Rapidly Crafting Valorant Image Highlights for Gamers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-angle-alchemists-guide-to-transforming-your-videos-youtube-edition/"><u>[Updated] The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-5-virtual-reality-vr-treadmills-review/"><u>[Updated] Top 5 Virtual Reality (VR) Treadmills Review</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-guide-the-art-of-background-music-for-video-unboxing/"><u>In 2024, Ultimate Guide The Art of Background Music for Video Unboxing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/prime-landscapes-for-streaming-success/"><u>Prime Landscapes for Streaming Success</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-lava-yuva-3-pro-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Lava Yuva 3 Pro for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-creativity-idea-driven-youtube-channel-titles-for-2024/"><u>Unlock Creativity Idea-Driven YouTube Channel Titles for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bes-top-5-apps-that-trim-your-long-video-links-down-for-2024/"><u>Youtube’s Top 5 Apps That Trim Your Long Video Links Down for 2024</u></a></li>
 </ul></div>
 

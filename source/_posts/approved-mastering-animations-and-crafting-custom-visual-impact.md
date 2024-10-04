@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Animations & Crafting Custom Visual Impact\""
-date: 2024-09-27T17:10:26.440Z
-updated: 2024-09-28T22:03:44.851Z
+date: 2024-10-01T00:50:20.552Z
+updated: 2024-10-03T21:44:18.782Z
 tags:
   - ai video
   - ai youtube
@@ -56,16 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -75,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -86,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -99,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,18 +120,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-designing-news-outro-sequences/"><u>[New] 2024 Approved Designing News Outro Sequences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-fitness-routine-top-10-yoga-streams-unveiled/"><u>[New] 2024 Approved Elevate Your Fitness Routine - Top 10 Yoga Streams Unveiled</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-eye-candy-extravaganza-highest-watched-videos-in-a-day/"><u>[New] 2024 Approved Eye Candy Extravaganza Highest Watched Videos in a Day</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-a-symphony-for-screens-music-in-instagram-visuals/"><u>[Updated] A Symphony for Screens Music in Instagram Visuals</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fusing-data-and-design-for-dynamic-fb-video-campaigns-for-2024/"><u>[Updated] Fusing Data & Design for Dynamic FB Video Campaigns for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-photoscape-analysis-your-guide-to-exceptional-gratis-image-manipulation-tools/"><u>Comprehensive Photoscape Analysis: Your Guide to Exceptional, Gratis Image Manipulation Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-affordable-action-cam-tech-maximizing-your-moneys-worth/"><u>In 2024, Affordable Action Cam Tech - Maximizing Your Money's Worth</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-boosting-social-reach-share-tiktoks-with-a-twist-of-twitter/"><u>In 2024, Boosting Social Reach Share TikToks with a Twist of Twitter</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfect-photos-on-iphone-illumination-secrets/"><u>Perfect Photos on IPhone Illumination Secrets</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-iphone-6-plus-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your iPhone 6 Plus Is Unlocked</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshoot-your-netflix-connection-solutions-for-detected-vpns-and-proxies/"><u>Troubleshoot Your Netflix Connection: Solutions for Detected VPNs and Proxies</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-platforms-at-a-glance-comparing-vimeo-and-youtube/"><u>Video Platforms at a Glance Comparing Vimeo & YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-beginners-guide-to-ps4-game-broadcasting-with-obs/"><u>[New] Beginner's Guide to PS4 Game Broadcasting with OBS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/asty-guide-from-raw-images-to-high-quality-youtube-thumbnail-art/"><u>[New] Hasty Guide From Raw Images to High-Quality YouTube Thumbnail Art</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-pros-playbook-for-top-10-music-videos-that-define-genres-for-2024/"><u>[New] The Pros' Playbook for Top 10 Music Videos That Define Genres for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-common-youtube-short-glitches/"><u>[Updated] Navigating Common YouTube Short Glitches</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-caption-implementation-essentials-for-2024/"><u>[Updated] YouTube Caption Implementation Essentials for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-transforming-chats-with-animated-gifs-a-complete-walkthrough-for-snapchat/"><u>2024 Approved Transforming Chats with Animated Gifs – A Complete Walkthrough for Snapchat</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-motorola-razr-40-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-creating-an-oculus-quest-quest-2-user-account/"><u>The Ultimate Guide to Creating an Oculus Quest / Quest 2 User Account</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1724766258181-18/"><u>デジアーティ: 18周年を祝う限定コレクション</u></a></li>
 </ul></div>
 

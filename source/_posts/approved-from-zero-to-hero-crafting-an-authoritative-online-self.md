@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Zero to Hero  Crafting an Authoritative Online Self\""
-date: 2024-09-26T17:20:47.858Z
-updated: 2024-09-28T20:50:51.030Z
+date: 2024-09-27T20:06:08.958Z
+updated: 2024-10-04T03:33:23.623Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,10 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
@@ -58,10 +58,10 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Elevator Pitch
@@ -81,10 +81,16 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -96,13 +102,6 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -123,6 +122,13 @@ The answers to these questions make up your brand. They may change gradually ove
 When you intentionally create your personal brand on YouTube, you take charge of the message you're sending.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,22 +151,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-guide-to-perfect-portraits-with-background-blur/"><u>[New] 2024 Approved A Guide to Perfect Portraits with Background Blur</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-step-by-step-strategy-for-profiting-from-every-youtube-short-video/"><u>[New] 2024 Approved Step-by-Step Strategy for Profiting From Every YouTube Short Video</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-streamer-profitability-analysis-and-verification/"><u>[New] 2024 Approved Streamer Profitability Analysis and Verification</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-top-24-hours-watchers-youtubes-most-popular-videos-1-10/"><u>[New] 2024 Approved Top 24 Hours Watchers YouTube’s Most Popular Videos #1-#10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-understanding-the-dynamics-behind-youtube-video-rankings/"><u>[New] 2024 Approved Understanding the Dynamics Behind YouTube Video Rankings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-your-beginners-guide-to-making-money-on-youtubers/"><u>[New] 2024 Approved Your Beginner's Guide to Making Money on YouTubers</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-complete-guide-to-soundtracking-vimeo-content/"><u>[New] In 2024, The Complete Guide to Soundtracking Vimeo Content</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-cold-climates-hot-wins-beijing-highlights/"><u>[Updated] Cold Climates, Hot Wins Beijing Highlights</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-imaginative-imagery-the-art-of-altered-text-presentation/"><u>2024 Approved Imaginative Imagery The Art of Altered Text Presentation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-streaming-services-for-musicians/"><u>2024 Approved Superior Streaming Services for Musicians</u></a></li>
-<li><a href="https://games-able.techidaily.com/discover-the-premier-43-inch-displays-expert-reviews-and-ratings/"><u>Discover the Premier 43 Inch Displays - Expert Reviews & Ratings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/from-script-to-screen-magix-video-pro-xs-production-journey-for-2024/"><u>From Script to Screen Magix Video Pro X's Production Journey for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>In 2024, 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-a-closer-look-at-youtubes-payment-system-and-its-potential/"><u>In 2024, A Closer Look at YouTube's Payment System and Its Potential</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-zte-frp-bypass-by-drfone-android/"><u>In 2024, About ZTE FRP Bypass</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-essential-audio-enhancement-apps-for-youtubers-videos/"><u>In 2024, Essential Audio Enhancement Apps for YouTubers' Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024s-premium-video-equipment-unpacked/"><u>[New] 2024'S Premium Video Equipment Unpacked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-creating-compelling-channel-names-simplified-for-2024/"><u>[New] Creating Compelling Channel Names Simplified for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iscover-10-amazing-world-wanderlust-channels-for-2024/"><u>[New] Discover 10 Amazing World Wanderlust Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remium-7-video-gear-ideas-for-captivating-vloggers/"><u>[New] Premium 7 Video Gear Ideas for Captivating Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-12-step-youtube-seo-guide-for-beginners-who-want-more-views/"><u>[New] The 12-Step YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tackling-youtube-challenges-head-on-with-insights-from-hub-of-creators-for-2024/"><u>[Updated] Tackling YouTube Challenges Head-On with Insights From Hub of Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iently-upload-and-render-youtube-videos-with-precision/"><u>Efficiently Upload and Render YouTube Videos with Precision</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-picture-perfection-the-finest-10-sites-reviewed/"><u>In 2024, Free Picture Perfection The Finest 10 Sites Reviewed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-redmi-13c-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Redmi 13C To Phone | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mac-dvddigiarty/"><u>Mac DVD書き込みプログラム・動画編集ツール「Digiarty」からの新リリース</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/p-mastery-manual-starting-an-engaging-aesthetic-vlog-for-2024/"><u>Makeup Mastery Manual Starting an Engaging Aesthetic Vlog for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/secure-your-privacy-top-techniques-for-data-wipeout-sourced-from-stellar/"><u>Secure Your Privacy: Top Techniques for Data Wipeout, Sourced From Stellar</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722893400122-simplifying-digital-wallets-how-to-set-up-and-use-apple-pay-on-the-apple-watch/"><u>Simplifying Digital Wallets: How to Set Up and Use Apple Pay on the Apple Watch</u></a></li>
 </ul></div>
 

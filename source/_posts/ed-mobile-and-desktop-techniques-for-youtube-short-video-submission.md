@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mobile & Desktop Techniques for YouTube Short Video Submission"
-date: 2024-09-15T16:33:38.389Z
-updated: 2024-09-22T16:28:29.992Z
+date: 2024-09-26T20:25:31.185Z
+updated: 2024-10-03T21:03:34.738Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -117,6 +124,13 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -133,13 +147,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -147,13 +154,20 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-from-airwaves-to-your-iphone-mastery-of-podcast-downloads-for-2024/"><u>[New] From Airwaves to Your iPhone Mastery of Podcast Downloads for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-reach-a-millennium-of-youtube-followers-fast/"><u>[New] In 2024, Reach a Millennium of YouTube Followers Fast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-future-of-tv-watching-a-closer-look-at-youtube-tv/"><u>[New] In 2024, The Future of TV Watching A Closer Look at YouTube TV</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-expanding-possibilities-with-virtual-reality/"><u>[Updated] Expanding Possibilities with Virtual Reality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-explore-8plus-places-for-gratis-hdr-environments-and-clips/"><u>[Updated] Explore 8+ Places for Gratis HDR Environments & Clips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premiere-pro-starter-pack-2023-edition-free/"><u>[Updated] Premiere Pro Starter Pack - 2023 Edition (Free)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-into-song-savvy-youtube-playlist-excellence/"><u>[Updated] Step Into Song Savvy YouTube Playlist Excellence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-subtitled-freely-top-10-tools-for-youtubes-text-extractors/"><u>[Updated] Subtitled Freely Top 10 Tools for YouTube's Text Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-20-essential-youtube-groups-navigating-stocks/"><u>2024 Approved 20 Essential YouTube Groups Navigating Stocks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-step-by-step-approach-to-yt-channel-descriptors/"><u>2024 Approved A Step-by-Step Approach to YT Channel Descriptors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-best-free-and-paid-videomosaic-apps-for-android-enthusiasts/"><u>2024 Approved Exploring the Best Free & Paid Videomosaic Apps for Android Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mirthful-melodies-comical-cover-tunes/"><u>2024 Approved Mirthful Melodies Comical Cover Tunes</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-infinix-hot-40i-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Infinix Hot 40i FRP Locks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-market-dominance-keyphrases-for-successful-advertising/"><u>In 2024, Market Dominance Keyphrases for Successful Advertising</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/master-class-for-seamless-plugin-installation-in-chatgpt/"><u>Master Class for Seamless Plugin Installation in ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripls-tips-for-making-viral-social-media-content/"><u>Ripl's Tips for Making Viral Social Media Content</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-best-literary-reader-programs-for-your-mobile-device-2024-edition/"><u>The Best Literary Reader Programs for Your Mobile Device - 2024 Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-loop-mastery-unlock-the-art-of-endless-viewing-for-2024/"><u>YouTube Loop Mastery Unlock the Art of Endless Viewing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-money-mastery-from-clicks-to-checkbook-balance/"><u>YouTube Money Mastery From Clicks to Checkbook Balance</u></a></li>
+</ul></div>
 

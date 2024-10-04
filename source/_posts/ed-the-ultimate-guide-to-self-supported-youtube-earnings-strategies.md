@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Guide to Self-Supported YouTube Earnings Strategies\""
-date: 2024-09-22T19:31:15.530Z
-updated: 2024-09-28T18:55:04.872Z
+date: 2024-09-30T01:56:21.845Z
+updated: 2024-10-04T00:06:19.660Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How Much Money Can YouTubers Make from Ads?**
 
 The answer to this question varies depending on the channel and the audience, as YouTubers don’t make money for views but rather from how often people engage with the ads. If a viewer watches more than 30 seconds of the ad or clicks it, then the YouTuber will make money.
@@ -60,10 +67,10 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 \- 1000 video views will equal between $2-$5
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
@@ -79,6 +86,13 @@ For new YouTubers, it is getting harder and harder to get to that point where th
  Once they have monetization turned on, it’s only the beginning. YouTubers need to create good content consistently. In order to earn $100 for the initial payout, they need an average of 50,000 views. That’s just $100! A lot of views and not a big payout. Hardly enough to quit your day job.
 
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **1\. Sell Your Product or Service:**
 
@@ -100,6 +114,13 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -113,13 +134,6 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 \- Performance/Speaking Opportunities (motivational speaker, musician, etc.)
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
@@ -158,10 +172,10 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can add one or multiple cards to direct viewers to your website or to another related video.
@@ -182,13 +196,6 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Affiliate Marketing:**
 
 Businesses know that there are more eyes watching YouTube than ever — behind Google, YouTube is the second most popular place for people researching what to buy — and influencers and reviews are an effective method of getting sales. You can leverage that by participating in affiliate marketing as a YouTuber.
@@ -200,13 +207,6 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
@@ -246,13 +246,6 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -264,10 +257,10 @@ In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy out
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
@@ -344,6 +337,13 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -365,16 +365,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-navigating-the-mobile-journey-to-launch-a-youtube-channel/"><u>[New] 2024 Approved Navigating the Mobile Journey to Launch a YouTube Channel</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-regular-payment-structures-in-youtuber-economics/"><u>[New] 2024 Approved Regular Payment Structures in YouTuber Economics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-filmmakers-pathway-youtube-trailer-creation-with-filmora/"><u>[Updated] 2024 Approved Filmmaker's Pathway YouTube Trailer Creation with Filmora</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-pinpointing-personalities-pinning-friends-on-snapchat/"><u>[Updated] 2024 Approved Pinpointing Personalities Pinning Friends on Snapchat</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-shield-yourself-from-online-commercial-floods-for-2024/"><u>[Updated] How to Shield Yourself From Online Commercial Floods for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-harness-freedom-with-top-rated-android-editing-apps/"><u>2024 Approved Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discover-the-ultimate-list-of-no-cost-mp3-tags-software-for-streamlined-song-organization-in-2n4/"><u>Discover the Ultimate List of No-Cost MP3 Tags Software for Streamlined Song Organization in 2N4!</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-6-core-advantages-listed/"><u>Multilingual Mastery: 6 Core Advantages Listed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-best-authentic-youtube-growth-tactics/"><u>The 8 Best Authentic Youtube Growth Tactics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/0-emerging-youtube-channels-to-spark-motivation/"><u>Top 10 Emerging YouTube Channels to Spark Motivation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-mastering-tv-saves-win-friendly-options-available/"><u>[New] In 2024, Mastering TV Saves Win-Friendly Options Available</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-recording-conferences-on-a-budget-friendly-platform/"><u>[New] Recording Conferences on a Budget-Friendly Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-smooth-watchers-guide-to-pacing-down-videos-on-youtube-60-chars-minor-exception-due-to-title-length-but-provides-rich-context/"><u>[Updated] 2024 Approved The Smooth Watcher's Guide to Pacing Down Videos on YouTube (60 Chars, Minor Exception Due to Title Length but Provides Rich Context)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-videos-to-vault-ajays-revenue-journey-on-youtube/"><u>[Updated] From Videos to Vault AJay’s Revenue Journey on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-scaling-your-income-with-beauty-tutorials/"><u>[Updated] In 2024, Scaling Your Income with Beauty Tutorials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-what-is-the-difference-between-youtube-and-dailymotion/"><u>[Updated] In 2024, What Is the Difference Between YouTube and Dailymotion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-subscriber-milestones-for-2024/"><u>[Updated] Mastering YouTube Subscriber Milestones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-stop-automatic-video-recommendations-immediately/"><u>2024 Approved Stop Automatic Video Recommendations Immediately</u></a></li>
+<li><a href="https://techtrends.techidaily.com/bringing-your-virtual-meetings-to-life-the-ultimate-guide-for-linking-zoom-to-tvs/"><u>Bringing Your Virtual Meetings to Life: The Ultimate Guide for Linking Zoom to TVs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-14-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi 14 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 13 Pro?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ultimate-escapades-our-selection-of-best-action-adventures/"><u>In 2024, Ultimate Escapades Our Selection of Best Action-Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-best-external-storage-solutions-optical-drive-edition-2024/"><u>Navigating the Best External Storage Solutions - Optical Drive Edition, 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nixplay-original-w15a-photo-frame-review-great-features-few-flaws/"><u>Nixplay Original W15A Photo Frame Review: Great Features, Few Flaws</u></a></li>
 </ul></div>
 

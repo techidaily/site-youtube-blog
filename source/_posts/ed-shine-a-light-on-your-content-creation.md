@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Shine a Light on Your Content Creation"
-date: 2024-09-23T17:19:32.134Z
-updated: 2024-09-28T18:26:48.387Z
+date: 2024-09-30T21:34:48.174Z
+updated: 2024-10-03T22:50:21.357Z
 tags:
   - ai video
   - ai youtube
@@ -49,14 +49,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-### Watch Video! Top Lighting Tips for Vlogging
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -85,16 +91,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -104,10 +104,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -117,10 +117,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,22 +144,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-premier-options-to-play-sonys-ps1-games-on-pc/"><u>[New] 2024 Approved Premier Options to Play Sony's PS1 Games on PC</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-complete-checklist-for-pureaudioextract-2024-usage/"><u>[New] The Complete Checklist for PureAudioExtract 2024 Usage</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/outube-shorts-decoding-the-income-distribution-model/"><u>[New] YouTube Shorts Decoding the Income Distribution Model</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-directly-stream-google-meet-youtube-edition-steps/"><u>[Updated] 2024 Approved Directly Stream Google Meet - YouTube Edition Steps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-apowersoft-screenshot-suite-comprehensive-free-analysis-for-2024/"><u>[Updated] Apowersoft Screenshot Suite Comprehensive Free Analysis for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-gaining-traction-on-youtube-the-successful-sponsorship-roadmap-by-famebit/"><u>[Updated] Gaining Traction on YouTube The Successful Sponsorship Roadmap by FameBit</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-guide-perfect-your-youtube-video-looping-game-for-2024/"><u>[Updated] How-To Guide Perfect Your YouTube Video Looping Game for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-10-hilarious-song-mock-ups-laughter-unleashed/"><u>[Updated] In 2024, Top 10 Hilarious Song Mock-Ups Laughter Unleashed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-perfect-your-yt-artistry-the-ultimate-music-reaction-video-playbook-for-2024/"><u>[Updated] Perfect Your YT Artistry The Ultimate Music Reaction Video Playbook for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators-for-2024/"><u>[Updated] The Art of Ad-Free Earning on YouTube Strategies for Self-Reliance Creators for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-uniting-youtube-videos-a-comprehensive-approach-for-2024/"><u>[Updated] Uniting YouTube Videos A Comprehensive Approach for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-7-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 7 Plus Online</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-note-12-pro-4g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Xiaomi Redmi Note 12 Pro 4G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/is-your-iphone-6-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your iPhone 6 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/live-shopping-success-secrets-unveiling-strategies-from-real-case-studies/"><u>Live Shopping Success Secrets Unveiling Strategies From Real Case Studies</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/l-branding-in-small-business-marketing-for-2024/"><u>Visual Branding in Small Business Marketing for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-illuminations-mastering-three-highlight-techniques/"><u>[New] 2024 Approved Instagram Illuminations Mastering Three Highlight Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-youtube-shorts-video-editor-tools-for-ios-and-android-devices/"><u>[New] Best YouTube Shorts Video Editor Tools for iOS & Android Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-your-audience-youtube-subscriber-insights/"><u>[New] In 2024, Unlocking Your Audience YouTube Subscriber Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-ios-and-android-a-tutorial-for-saving-twitters-animations-for-2024/"><u>[New] IOS and Android A Tutorial for Saving Twitter's Animations for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-monitoring-your-instagram-exit-strategy/"><u>[New] Monitoring Your Instagram Exit Strategy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-capture-and-relive-your-favorite-moments-anywhere-anytime-the-best-in-free-video-downloaders-for-youtubes/"><u>[Updated] 2024 Approved Capture and Relive Your Favorite Moments Anywhere, Anytime The Best in Free Video Downloaders for YouTubes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-content-strategy-mastery-selecting-top-rank-trackers-uncovered/"><u>[Updated] Content Strategy Mastery - Selecting Top Rank Trackers Uncovered</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-comedy-the-art-of-parody-videos/"><u>[Updated] In 2024, Crafting Comedy The Art of Parody Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-broadcast-wirecast-streaming-guide-for-2024/"><u>[Updated] Mastering YouTube Broadcast WireCast Streaming Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-skyrocket-your-rankings-top-youtube-seo-gadgets/"><u>[Updated] Skyrocket Your Rankings Top YouTube SEO Gadgets</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-stepwise-strategies-building-a-playlist-on-youtube/"><u>[Updated] Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dont-miss-out-save-massively-with-our-picked-selection-of-best-in-class-tribit-audio-devices-and-affordable-in-ear-headsets-on-prime-day/"><u>Don't Miss Out: Save Massively with Our Picked Selection of Best-in-Class Tribit Audio Devices and Affordable In-Ear Headsets on Prime Day!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-your-video-posts-with-properly-uploaded-srt-files/"><u>Elevating Your Video Posts with Properly Uploaded SRT Files</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-rapid-windows-photo-examiner-for-enhanced-efficiency/"><u>In 2024, Rapid Windows Photo Examiner for Enhanced Efficiency</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-your-online-journey-a-step-by-step-guide-to-youtube/"><u>Initiating Your Online Journey A Step-by-Step Guide to YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/master-list-of-premium-9-multi-platform-video-communication-apps/"><u>Master List of Premium 9 Multi-Platform Video Communication Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/on-youtube-initiating-your-chanel-and-earning-pathway-for-2024/"><u>Rise on YouTube Initiating Your Chanel & Earning Pathway for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/form-your-youtube-channel-expert-tips-for-adding-chapter-sections/"><u>Transform Your YouTube Channel Expert Tips for Adding Chapter Sections</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/ultimate-10-royale-duelists-arena/"><u>Ultimate 10 Royale Duelists' Arena</u></a></li>
 </ul></div>
 

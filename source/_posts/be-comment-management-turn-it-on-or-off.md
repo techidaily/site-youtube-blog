@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Comment Management  Turn It On or Off\""
-date: 2024-09-25T20:28:21.027Z
-updated: 2024-09-28T16:22:17.790Z
+date: 2024-09-30T04:31:54.258Z
+updated: 2024-10-04T00:35:02.207Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,20 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -155,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -174,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,21 +196,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/0-premier-travel-blogs-to-watch-online-for-2024/"><u>[New] 10 Premier Travel Blogs to Watch Online for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-10-best-youtube-to-gif-makers-how-to-create-gif-from-youtube-video/"><u>[New] 2024 Approved 10 Best YouTube To GIF Makers How to Create GIF From YouTube Video?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-earning-in-a-world-dominated-by-youtubers/"><u>[New] 2024 Approved Earning in a World Dominated by YouTubers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-hidden-details-you-need-to-know-about-youtube-tv-service/"><u>[New] 2024 Approved Hidden Details You Need to Know About YouTube TV Service</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-how-to-edit-uploaded-published-youtube-videos/"><u>[New] 2024 Approved How to Edit Uploaded/ Published YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-recipe-rulers-youtubes-finest-food-talks/"><u>[New] 2024 Approved Recipe Rulers YouTube's Finest Food Talks</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary-for-2024/"><u>[New] A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-adding-audio-magic-music-and-voiceovers-for-instagram-reels-for-2024/"><u>[Updated] Adding Audio Magic Music & Voiceovers for Instagram Reels for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-enhancing-your-playback-quality-tips-for-roblox-recordings-mac-for-2024/"><u>[Updated] Enhancing Your Playback Quality Tips for Roblox Recordings (Mac) for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/confronting-the-something-went-awry-message-comprehensive-solutions-for-windows-eon-users/"><u>Confronting the Something Went Awry Message: Comprehensive Solutions for Windows Eon Users</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-update-mpow-bluetooth-driver-for-windows-1187-free-guide/"><u>Download and Update MPOW Bluetooth Driver for Windows 11/8/7 - Free Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/your-vfx-match-top-8-sites-for-free-high-quality-green-screen-footage-for-2024/"><u>Find Your VFX Match - Top 8 Sites for FREE High Quality Green Screen Footage for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-online-avi-maker-convert-mov-files-with-ease-movavi-video-editor/"><u>Free Online AVI Maker: Convert MOV Files with Ease - Movavi Video Editor</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/fresh-face-of-amazons-echo-dot-gen-4-review-a-comprehensive-look/"><u>Fresh Face of Amazon's Echo Dot Gen 4 Review: A Comprehensive Look</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-realignment-youtube-on-mac-display-ratio-for-2024/"><u>Quick Realignment YouTube on Mac Display Ratio for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/stellars-photographic-restoration-tool-purchase-and-immediate-use/"><u>Stellar's Photographic Restoration Tool: Purchase & Immediate Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ttract-more-viewers-boosting-your-youtube-following-for-2024/"><u>[New] Attract More Viewers Boosting Your YouTube Following for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-content-sharing-on-youtube-without-breaching-copyright/"><u>[New] In 2024, Mastering Content Sharing on YouTube Without Breaching Copyright</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-cut-to-perfection-advanced-guide-to-cropping-videos-for-instagram/"><u>[Updated] Cut to Perfection Advanced Guide to Cropping Videos for Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cloaking-in-content-an-introduction-to-video-smoothing/"><u>[Updated] In 2024, Cloaking in Content An Introduction to Video Smoothing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-precision-in-playback-a-compreenhensive-guide-to-youtube-video-loops/"><u>[Updated] Precision in Playback A Compreenhensive Guide to Youtube Video Loops</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>[Updated] The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-asmr-content-deep-dive-101/"><u>2024 Approved ASMR Content Deep Dive 101</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-update-your-huion-graphic-pens-software-on-a-windows-machine/"><u>Comprehensive Guide: Update Your Huion Graphic Pen's Software on a Windows Machine</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-bring-your-images-alive-on-android-with-these-5-powerful-editors/"><u>In 2024, Bring Your Images Alive on Android with These 5 Powerful Editors</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721469372294-issue-with-iphone-wi-fi-try-these-five-methods-for-a-stable-connection/"><u>Issue with iPhone Wi-Fi? Try These Five Methods for a Stable Connection!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/upgrading-your-smartphone-how-often-should-you-do-it/"><u>Upgrading Your Smartphone: How Often Should You Do It?</u></a></li>
 </ul></div>
 

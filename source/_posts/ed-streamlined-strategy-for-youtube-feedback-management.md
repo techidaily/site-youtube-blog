@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Streamlined Strategy for Youtube Feedback Management"
-date: 2024-09-18T20:44:17.513Z
-updated: 2024-09-22T16:38:40.406Z
+date: 2024-10-01T00:26:19.919Z
+updated: 2024-10-04T04:43:33.022Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -61,6 +68,19 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -75,16 +95,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -122,10 +136,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -146,13 +160,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -179,5 +186,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-androids-gratis-screen-capture-utility/"><u>[New] 2024 Approved Android's Gratis Screen Capture Utility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/resh-topics-to-cover-in-your-vlogs-for-2024/"><u>[New] Fresh Topics to Cover in Your Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-10-steps-to-perfect-youtube-reactions-a-trio-guide/"><u>[Updated] 10 Steps to Perfect YouTube Reactions – A Trio Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elite-gamers-showcase-premium-setups-unveiled/"><u>[Updated] 2024 Approved Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-instantaneous-fortnite-tile-design-guide/"><u>[Updated] 2024 Approved Instantaneous Fortnite Tile Design Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-zero-to-meme-hero-crafting-engaging-gifs/"><u>[Updated] From Zero to Meme Hero Crafting Engaging GIFs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlining-media-formats-from-srt-to-advanced-standards/"><u>[Updated] Streamlining Media Formats From SRT to Advanced Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-ten-lady-gamers-on-youtube-rising/"><u>[Updated] Top Ten Lady Gamers on YouTube Rising</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-is-investing-in-a-monthly-youtube-premium-worthwhile/"><u>2024 Approved Is Investing in a Monthly YouTube Premium Worthwhile?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-days-ahead-discover-how-chatgpts-9-functions-benefit-you/"><u>Effortless Days Ahead: Discover How ChatGPT's 9 Functions Benefit You</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-android-video-quality-step-by-step-approach/"><u>Elevate Android Video Quality Step by Step Approach</u></a></li>
+<li><a href="https://windows11.techidaily.com/elevate-your-desktop-8-winbubble-methods-for-window-tailoring/"><u>Elevate Your Desktop: 8 WinBubble Methods for Window Tailoring</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mirrorless-evolution-overshadowing-traditional-dslr-videography/"><u>In 2024, Mirrorless Evolution Overshadowing Traditional DSLR Videography</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-artisans-handbook-to-photomontage-creation/"><u>In 2024, The Artisan's Handbook to PhotoMontage Creation</u></a></li>
+</ul></div>
 

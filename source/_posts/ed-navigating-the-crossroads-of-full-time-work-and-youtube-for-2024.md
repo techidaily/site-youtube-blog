@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating the Crossroads of Full-Time Work & YouTube for 2024\""
-date: 2024-09-23T17:04:29.856Z
-updated: 2024-09-28T19:06:09.498Z
+date: 2024-10-03T03:35:56.454Z
+updated: 2024-10-03T17:29:07.740Z
 tags:
   - ai video
   - ai youtube
@@ -51,26 +51,26 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
@@ -78,10 +78,16 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -99,10 +105,10 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -128,18 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-virtual-vanguards-the-leading-ladies-of-gaming/"><u>[New] 2024 Approved Virtual Vanguards The Leading Ladies of Gaming</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-visual-producer-studio/"><u>[New] 2024 Approved Visual Producer Studio</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-breaking-barriers-in-drone-longevity-top-10/"><u>[New] In 2024, Breaking Barriers in Drone Longevity (Top 10)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-masterful-mp4-transformation-tools-facebook-edition/"><u>[New] Masterful MP4 Transformation Tools (Facebook Edition)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-how-to-downgrade-or-rollback-the-macos-sierra-to-os-x-el-capitan/"><u>[Updated] How To Downgrade Or Rollback The Macos Sierra To Os X El Capitan</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-image-illumination-incor-writings-on-visual-canvases-online/"><u>[Updated] In 2024, Image Illumination Incor Writings on Visual Canvases Online</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-toolwiz-unveiled-the-full-scope-photo-software-review/"><u>[Updated] Toolwiz Unveiled - The Full Scope Photo Software Review</u></a></li>
-<li><a href="https://solve-news.techidaily.com/abbyyai-ocr/"><u>第一生命保険株式会社がABBYY製品とAI-OCR技術で事務作業自動化に成功:重要ニュース</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-razr-40-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Razr 40 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-engage-with-facebook-security-for-increased-privacy/"><u>How to Engage with Facebook Security for Increased Privacy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-best-livestream-capturing-solutions-for-content-makers/"><u>In 2024, Best Livestream Capturing Solutions for Content Makers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-channel-identity-made-simple-discover-the-10-best-banner-maker-apps/"><u>In 2024, Channel Identity Made Simple Discover the 10 Best Banner Maker Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-video-game-top-tips-for-perfect-live-thumbnails/"><u>In 2024, Elevate Your Video Game Top Tips for Perfect Live Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transforming-web-popularity-into-video-concepts-using-google-trends/"><u>[New] In 2024, Transforming Web Popularity Into Video Concepts Using Google Trends</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-the-world-of-adobe-cloud-storing-strategies-and-alternative-spaces-reviewed/"><u>[New] Inside The World of Adobe Cloud Storing Strategies and Alternative Spaces Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rofit-pioneering-transforming-youtube-views-into-vast-revenue-on-mobile/"><u>[New] Profit Pioneering Transforming YouTube Views Into Vast Revenue on Mobile</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-commercial-side-of-casual-videography-for-2024/"><u>[New] The Commercial Side of Casual Videography for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-for-a-solo-show-that-stands-out-for-2024/"><u>[New] The Ultimate Guide for a Solo Show that Stands Out for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-breaking-down-the-barriers-to-knowing-your-fans/"><u>[Updated] Breaking Down the Barriers to Knowing Your Fans</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-can-a-brief-subscribe-boost-your-content-viewing-for-2024/"><u>[Updated] Can a Brief Subscribe Boost Your Content Viewing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-finding-the-best-sound-editing-software-for-video-makers/"><u>[Updated] Finding the Best Sound Editing Software for Video Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimizing-multichannel-video-series-via-strategic-chaptering-in-youtube-videos/"><u>[Updated] Optimizing Multichannel Video Series via Strategic Chaptering in YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-skyrocket-your-channel-to-over-a-million-subscribers-for-2024/"><u>[Updated] Skyrocket Your Channel to Over a Million Subscribers for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-what-is-behind-the-blue-icon-that-graces-your-messenger-chat-window-in-2024/"><u>[Updated] What Is Behind the Blue Icon that Graces Your Messenger Chat Window, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>2024 Approved AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-journey-through-time-the-best-history-yt-channels-ranked-1-10/"><u>2024 Approved Journey Through Time The Best History YT Channels Ranked #1-10</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-guide-to-canon-scanner-drivers-download-and-setup-on-windows-systems/"><u>Comprehensive Guide to Canon Scanner Drivers Download & Setup on Windows Systems</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/github-copilot-vs-chatgpt-top-coding-aides-compared/"><u>GitHub Copilot Vs. ChatGPT: Top Coding Aides Compared</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-14-pro-max-ios-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 14 Pro Max iOS System? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/m-your-success-a-step-by-step-guide-to-earning/"><u>Stream Your Success A Step-by-Step Guide to Earning</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-6-methods-for-effortless-mac-conversion-from-avi-to-mp4/"><u>Top 6 Methods for Effortless Mac Conversion From AVI to MP4</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-to-buy-a-monetized-youtube-channel-a-complete-guide-for-2024/"><u>Where to Buy a Monetized YouTube Channel A Complete Guide for 2024</u></a></li>
 </ul></div>
 

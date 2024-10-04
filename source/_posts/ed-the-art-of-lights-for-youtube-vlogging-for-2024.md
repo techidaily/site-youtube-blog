@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Lights for YouTube Vlogging for 2024"
-date: 2024-09-21T17:54:31.954Z
-updated: 2024-09-28T21:54:38.235Z
+date: 2024-09-30T18:01:47.420Z
+updated: 2024-10-04T01:35:35.083Z
 tags:
   - ai video
   - ai youtube
@@ -49,19 +49,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -90,13 +91,6 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -104,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -117,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,20 +138,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-reality-of-youtubes-fast-subscribe-technique/"><u>[New] 2024 Approved The Reality of YouTube's Fast Subscribe Technique</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-transforming-skincare-secrets-into-social-stardom/"><u>[New] 2024 Approved Transforming Skincare Secrets Into Social Stardom</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects/"><u>[New] 2024 Approved Unlocking Profitability on Youtube Shorts Essentials and Future Earning Prospects</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-concept-to-platform-crafting-engaging-fb-content/"><u>[New] From Concept to Platform Crafting Engaging FB Content</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-smart-pick-android-apps-for-large-video-meetings/"><u>[New] Smart Pick Android Apps for Large Video Meetings</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-breathe-life-into-photos-using-blur-effects-in-illustrator/"><u>[Updated] Breathe Life Into Photos Using Blur Effects in Illustrator</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-se-in-different-conditionsin-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone SE In Different Conditionsin</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-6-youtuber-quizzes-to-know-which-youtuber-you-are/"><u>In 2024, 6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-a-compre-written-in-sounds-youtube-playlists-decoded/"><u>In 2024, A Compre Written in Sounds YouTube Playlists Decoded</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-tecno-spark-20-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Tecno Spark 20</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>In 2024, Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssional-thumbnails-from-your-phone-for-youtube/"><u>Professional Thumbnails From Your Phone for YouTube</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-motorola-moto-g13-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Motorola Moto G13 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://program-issues.techidaily.com/why-does-darkest-dungeon-2-keep-freezing-solutions-to-maintain-smooth-gameplay/"><u>Why Does Darkest Dungeon 2 Keep Freezing? Solutions to Maintain Smooth Gameplay</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-superior-architects-cutting-edge-instagram-hlv-makers-for-2024/"><u>[New] Superior Architects Cutting-Edge Instagram HLV Makers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-premier-automatic-text-creators-from-videos-for-2024/"><u>[Updated] Premier Automatic Text Creators From Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-peak-playtime-youtubes-most-gigantic-video-hours-count-for-2024/"><u>[Updated] The Peak Playtime YouTube's Most Gigantic Video Hours Count for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-simplified-approach-to-embedding-multiple-video-playlists-from-youtube/"><u>2024 Approved Simplified Approach to Embedding Multiple Video Playlists From YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/from-pixels-to-prints-master-snapseed-fundamentals/"><u>From Pixels to Prints Master Snapseed Fundamentals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>In 2024, The Art of YouTube Editing A Compreenasive Guidebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-lag-in-lol-simple-solutions-for-a-stable-game/"><u>No More Lag in LoL: Simple Solutions for a Stable Game</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/seamless-social-streams-link-instagram-and-facebook-for-2024/"><u>Seamless Social Streams Link Instagram & Facebook for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-the-potential-advanced-techniques-for-podcast-editing-in-garageband-for-2024/"><u>Unlock the Potential Advanced Techniques for Podcast Editing in GarageBand for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-merge-videos-without-restrictions-7-top-tools/"><u>Updated Merge Videos Without Restrictions 7 Top Tools</u></a></li>
 </ul></div>
 
