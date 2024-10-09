@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of Framing  Making an Effective YouTube Introductory Vids\""
-date: 2024-09-30T00:57:44.223Z
-updated: 2024-10-04T00:05:55.543Z
+date: 2024-10-03T21:49:43.312Z
+updated: 2024-10-09T02:31:12.461Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,10 @@ In other words, a YouTube trailer is necessary for your channel. It will give th
 **Note:** also, the trailer will be visible for non-subscribed viewers who come to your channel for the first time. So as first impressions matter, they need to be creative and engaging.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Don't know where to start?
@@ -76,22 +76,16 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 ![self-introduction example](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-2.gif)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
 
@@ -159,13 +153,6 @@ Your first step will be to find a way to engage your audience so that they will 
 
 ![a good startup of a trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-1.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **For example**
 
 Step1 Ask a **question**.
@@ -186,15 +173,22 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 ![self-introduction example](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-2.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
@@ -270,19 +264,18 @@ Alright! Following the steps mentioned above, you will be able to create a good 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/rom-draft-to-edit-essential-film-techniques-via-youtube-for-2024/"><u>[New] From Draft to Edit Essential Film Techniques via YouTube for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-androids-premium-music-video-watching-apps-for-2024/"><u>[New] The Ultimate Guide to Android's Premium Music Video Watching Apps for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-video-creators-blueprint-to-legal-and-profitable-streaming-for-2024/"><u>[New] The Video Creator's Blueprint to Legal and Profitable Streaming for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-cinematography-skills-editing-and-sharing-360-videos-on-youtube-for-2024/"><u>[Updated] Elevate Your Cinematography Skills Editing and Sharing 360° Videos on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-quick-youtube-comment-removal-techniques/"><u>[Updated] Mastering Quick YouTube Comment Removal Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-spotting-the-top-10-covert-story-spectators/"><u>2024 Approved Spotting the Top 10 Covert Story Spectators</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-unique-360-degree-videos-on-an-iphone-for-2024/"><u>Crafting Unique 360-Degree Videos on an iPhone for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/diy-graphic-enhancement-techniques-for-resolving-picture-distortion-in-call-of-duty-warzone-pc-version/"><u>DIY Graphic Enhancement Techniques for Resolving Picture Distortion in Call of Duty: Warzone (PC Version)</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-compreenhensive-review-djis-new-drone-the-inspire-1/"><u>In 2024, Compreenhensive Review DJI's New Drone, The Inspire 1</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-utilizing-famebit-techniques-for-youtube-sponsorship-success/"><u>In 2024, Utilizing FameBit Techniques for YouTube Sponsorship Success</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-nokia-g42-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Nokia G42 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/triggering-resurrection-of-trumps-twitter-handle/"><u>Triggering Resurrection of Trump's Twitter Handle</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ultimate-selection-exclusive-picks-for-your-pixel-6-safety-gear/"><u>Unveiling the Ultimate Selection: Exclusive Picks for Your Pixel 6 Safety Gear</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/vergleich-von-aac-und-mp3-welche-audioqualitat-uberzeugt-mehr/"><u>Vergleich Von AAC Und MP3: Welche Audioqualität Überzeugt Mehr?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-instant-techniques-to-shuffle-youtube-song-sequences/"><u>[New] 2024 Approved Instant Techniques to Shuffle YouTube Song Sequences</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-cerebral-showcase-2024-exclusive-selection-of-trivia-streaming-sites/"><u>[New] Cerebral Showcase 2024 Exclusive Selection of Trivia Streaming Sites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-current-drone-applications-vs-future-technological-paradigm-for-2024/"><u>[New] Current Drone Applications vs Future Technological Paradigm for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/treamline-your-videos-10-best-flv-to-youtube-convertors-for-2024/"><u>[New] Streamline Your Videos 10 Best FLV to YouTube Convertors for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-overcoming-iphone-hd-video-overexposure-with-premiere-pro-for-2024/"><u>[Updated] Overcoming iPhone HD Video Overexposure with Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamlessly-integrating-device-screens-into-your-youtube-projects-for-2024/"><u>[Updated] Seamlessly Integrating Device Screens Into Your YouTube Projects for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-creators-guide-to-mastering-youtube-aspect-ratios/"><u>[Updated] The Creator's Guide to Mastering YOUTUBE Aspect Ratios</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-master-live-broadcast-a-step-by-step-guide-to-recording-webcam-via-vlc/"><u>2024 Approved Master Live Broadcast A Step-by-Step Guide to Recording Webcam via VLC</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209575556-bluetooth-mouse-troubles-restore-functionality-for-windows-users-now/"><u>Bluetooth Mouse Troubles? Restore Functionality for Windows Users Now!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-direct-mp3-to-youtube-3-steps-for-seamless-video-posting/"><u>In 2024, Direct MP3 to YouTube 3 Steps for Seamless Video Posting</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/master-the-art-of-resetting-a-dell-computer-from-laptops-to-workstations/"><u>Master the Art of Resetting a Dell Computer: From Laptops to Workstations</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/pioneering-progress-explore-openais-game-changing-leap-in-artificial-intelligence-with-gpt-4/"><u>Pioneering Progress: Explore OpenAI's Game-Changing Leap in Artificial Intelligence With GPT-4</u></a></li>
 </ul></div>
 

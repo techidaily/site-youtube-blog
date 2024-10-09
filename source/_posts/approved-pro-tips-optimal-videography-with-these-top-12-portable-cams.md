@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pro Tips  Optimal Videography with These Top 12 Portable Cams\""
-date: 2024-09-21T19:14:01.697Z
-updated: 2024-09-22T17:25:59.932Z
+date: 2024-10-05T04:52:15.105Z
+updated: 2024-10-09T08:58:00.529Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ A flip screen is a very important feature on a camera for vloggers. With a flip 
 
 Check out my full list of [10 Things To Look For In A Vlogging Camera](https://tools.techidaily.com/wondershare/filmora/download/) to understand the importance of these camera features.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## THE 12 BEST VLOGGING CAMERAS WITH A FLIP SCREEN (2018)
 
  | Camera                     | Release Date                                                                                                   | Camera Type   | Flip Screen Type | Mic Port          | Price   |       |
@@ -63,6 +70,14 @@ Check out my full list of [10 Things To Look For In A Vlogging Camera](https://t
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-1.png)          | February2018  | Mirrorless       | Fully Articulated | **Yes** | $-   |
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-2.png)     | January2018   | Mirrorless       | Fully Articulated | **Yes** | $$$ |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-3.png)         | August2017    | Mirrorless       | Flip Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS6D Mark II         | ![6D Mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-4.png)         | June2017      | Mid-size SLR     | Fully Articulated | **Yes** | $$  |
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-5.png)          | June2017      | Compact SLR      | Fully Articulated | **Yes** | $    |
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-6.png)          | February2017  | Mid-size SLR     | Fully Articulated | **Yes** | $-   |
@@ -71,7 +86,22 @@ Check out my full list of [10 Things To Look For In A Vlogging Camera](https://t
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)       | October2016   | Compact          | Flip Up           | **No**  | $-   |
 | PanasonicLumixDMC-G85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-10.png)     | September2016 | Mirrorless       | Flip Up           | **Yes** | $-   |
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)         | February2016  | Mid-size SLR     | Fully Articulated | **Yes** | $$   |
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-12.png) | February2016  | Compact          | Flip Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  | ![Sony RX 100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)    | Best daily vlogging camera with a flip screen: Sony Cyber-Shot DSC-RX 100 V If you want to use a compact camera with a flip screen, Sony's Cyber-shot DSC-RX 100 V is an exceptional daily vlogging camera. This camera's 20.1 MP Exmor RS BSI CMOS sensor with a maximum of 12800 in ISO sensitivity, can record footage in UHD 4K at 30 or 24 fps. The lens on this camera, a non-interchangeable Carl Zeiss Vario Sonnar T lens, performs well even under low-light conditions. With its fast hybrid AF system with 315 phase-detection points and an anti-motion blur mode, you can expect your shots to be accurately focused. The Sony RX 100 V packs so much power into such a small, portable camera, making it a great daily vlogging device.  **PROS** _\- Light and easy to carry around_ _\- Produces high-res videos_   **CONS** _\- Short battery life_ _\- Lacking a touchscreen_                                                                                                                                                                                                                                                                                           |
 | ------------------------------------------------------------------------------------------------------------ | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
@@ -81,7 +111,29 @@ Check out my full list of [10 Things To Look For In A Vlogging Camera](https://t
 | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-2.png)   | Best professional mirrorless camera with a flip screen for vlogging: Panasonic Lumix DC-GH5S When Panasonic made its Lumix DC-GH5, it was a hybrid camera that performed equally well in both photo and video. In response to customers' interest in a video-focused camera, Panasonic released the GH5S. This camera is equipped with a micro four-thirds sensor and can shoot UHD 4K and DCI videos at 60 fps, up to 150 Mbps. If you want to capture slow-motion footage, you can shoot full HD 1080p videos at 240 fps as well. With its 10.28MP multi-aspect ratio MOS sensor, you'll be able to produce high-quality videos even under very challenging lighting conditions. In a fraction of a second, this camera can also automatically grab focus during your video with its advanced depth-from-focus technology. It is also equipped with a microphone jack so that you can record better audio while shooting with this camera. The GH5S has a fully articulated touchscreen so that you can compose your shot from any angle.  **PROS** _\- ISO sensitivity goes up to 204800_ _\- High video bit rates_   **CONS** _\- Expensive_ _\- The camera body weighs about 1.5 lbs_ |
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-5.png)        | Best entry-level DSLR camera with a flip screen for vlogging: Canon EOS SL2 If you’re looking for a low priced entry-level vlogging camera with a flip screen, the Canon EOS Rebel SL2 is the best option. You can precisely and quickly grab focus during video recording with its 9-point AF system and dual pixel CMOS AF technology. The camera powers these functions with its DIGIC 7 image processor. You can shoot up to full HD 1080p videos at 60 fps with its 24.2 MP APS-C CMOS sensor and crank the ISO up to ISO 51200 in case you need to shoot under low light conditions. If you want better audio for your vlogs, you can connect an external microphone to the SL2’s microphone jack.  **PROS** _\- Microphone jack_ _\- Wi-Fi connectivity_   **CONS** _\- No 4K video support_ _\- Optical image stabilizer could be better_                                                                                                                                                                                                                                                                                                                                          |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)       | Best mid-range DSLR camera with a flip screen for vlogging: Canon EOS 80D  The 80D is the best camera to go with if you’re looking for a mid-range DLSR vlogging camera with a flip screen. It is equipped with a 24.2 MP APS-C CMOS sensor, comes with the DIGIC 6 image processor, and shoots up to full HD 1080p videos at 60 fps. For low lighting conditions, you can set the camera’s ISO to as high as ISO 25600. The 80D is great for autofocusing during video recording as it comes with a 45-point all cross phase detection autofocus system and a dual pixel CMOS AF system.  **PROS** _\- Feature-rich_ _\- Continuous AF feature performs beautifully while recording high-res videos_   **CONS** _\- Just one SD card slot_ _\- PC sync connection features could be better_                                                                                                                                                                                                                                                                                                                                                                                               |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-4.png) | Best professional DSLR camera with a flip screen for vlogging: Canon 6D Mark II The 6D Mark II is currently (at the time of writing this review) the only full-frame DSLR camera that comes with both a fully-articulated screen and a microphone jack. It is equipped with a 26.2 MP full-frame CMOS sensor, comes with the DIGIC 7 image processor, and shoots up to full HD 1080p videos at 60 fps. The 6D is also equipped with the same 45-point all cross-phase detection and dual pixel CMOS autofocusing system as the 80D. If you’re wanting to vlog with a full-frame camera, the 6D Mark II is the best option.  **PROS** _\- ISO sensitivity goes up to 102400_ _\- Amazing touchscreen controls_   **CONS** _\- No 4K video recording option_ _\- No USB 3.0_                                                                                                                                                                                                                                                                                                                                                                                                                 |
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Want to compare even more cameras? Check out...
 
@@ -91,6 +143,13 @@ Want to compare even more cameras? Check out...
 [8 Best Mirrorless Cameras For Vlogging (2018)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -111,12 +170,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-from-passive-to-profitable-8-beginners-revenue-hacks-for-youtube/"><u>[New] 2024 Approved From Passive to Profitable 8 Beginner's Revenue Hacks for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-proven-youtube-tactics-for-maximum-impact-heres-what-you-need-to-know/"><u>[New] In 2024, Proven YouTube Tactics for Maximum Impact – Here's What You Need to Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-playbook-for-parallel-pursuit-of-youtube-videos/"><u>[New] In 2024, The Playbook for Parallel Pursuit of Youtube Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-9-web-based-microphone-recording-tools-of-23/"><u>[New] In 2024, Top 9 Web-Based Microphone Recording Tools of '23</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-transitions-smooth-editing-techniques-for-youtube-content/"><u>[New] Seamless Transitions Smooth Editing Techniques for YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-android-and-ios-prime-asmr-software-options/"><u>[Updated] 2024 Approved Android & iOS Prime ASMR Software Options</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-verifying-your-youtube-profile-for-2024/"><u>[Updated] The Essential Guide to Verifying Your YouTube Profile for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-apples-reluctance-to-enter-metaverse-arena/"><u>Analyzing Apple's Reluctance to Enter Metaverse Arena</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/convertidor-en-linea-para-audios-sin-costo-transforma-tu-opus-en-flac-con-facilidad-usando-movavi/"><u>Convertidor En Línea Para Audios Sin Costo: Transforma Tu OPUS en FLAC Con Facilidad Usando Movavi</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/des-solutions-ideales-pour-capturer-des-ecrans-sous-windows-1187-la-meilleure-selection-pour-realiser-des-recordings-decran-efficaces-sur-pc/"><u>Des Solutions Idéales Pour Capturer Des Écrans Sous Windows 11/8/7 - La Meilleure Sélection Pour Réaliser Des Recordings D'écran Efficaces Sur PC</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tial-guide-the-8-best-zero-price-video-cutting-software/"><u>Essential Guide The 8 Best Zero Price Video Cutting Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-the-audio-issues-in-windows-7/"><u>How to Fix the Audio Issues in Windows 7</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-13-pro-max-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 13 Pro Max Data From iOS iCloud? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-camon-20-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Camon 20 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-infinix-hot-30-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Infinix Hot 30 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+</ul></div>
 

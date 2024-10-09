@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Activate or Deactivate Video Commenting in YouTube for 2024"
-date: 2024-09-29T16:37:05.480Z
-updated: 2024-10-04T04:28:59.654Z
+date: 2024-10-04T16:36:16.907Z
+updated: 2024-10-09T11:14:30.589Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -122,20 +122,14 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -154,10 +148,16 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -175,10 +175,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,21 +202,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-practical-approach-switching-video-orientation-in-vlc/"><u>[New] 2024 Approved Practical Approach Switching Video Orientation in VLC</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pushing-boundaries-the-9-most-advanced-mobile-filmmaking-accessories/"><u>[New] In 2024, Pushing Boundaries The 9 Most Advanced Mobile Filmmaking Accessories</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-videos-top-10-youtube-to-webm-converters/"><u>[New] In 2024, Streamline Your Videos Top 10 YouTube-to-WebM Converters</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-breakthrough-strategies-for-peak-video-viewership-times-for-2024/"><u>[Updated] Breakthrough Strategies for Peak Video Viewership Times for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-free-video-editing-software-round-up-choose-from-7-options-for-2024/"><u>[Updated] Free Video Editing Software Round-Up Choose From 7 Options for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-quick-refresher-green-screen-film-tech-basics/"><u>[Updated] In 2024, Quick Refresher Green Screen Film Tech Basics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>[Updated] Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unseen-vids-on-facebook-heres-your-fix-guide-with-12-tactics-2023/"><u>[Updated] Unseen Vids on Facebook? Here's Your Fix Guide with 12 Tactics, 2023</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1-troubleshooting-airplay-issues-how-to-fix-connection-problems-on-macbook-imac-and-mac-mini/"><u>1. Troubleshooting AirPlay Issues: How to Fix Connection Problems on MacBook, iMac & Mac Mini</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/freezing-points-to-inviting-landscapes/"><u>From Freezing Points to Inviting Landscapes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/o-start-your-vlog-and-make-money-from-it-for-2024/"><u>How to Start Your Vlog and Make Money From It for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-nokia-c32-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Nokia C32 Phone FRP Lock</u></a></li>
-<li><a href="https://article-posts.techidaily.com/jest-jacket-picture-fabricator-for-2024/"><u>Jest Jacket Picture Fabricator for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-apple-iphone-11-pro-max-and-browser-drfone-by-drfone-virtual-ios/"><u>Prevent Cross-Site Tracking on Apple iPhone 11 Pro Max and Browser | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/winx-dvd-software-refund-policy-digiarty/"><u>WinX DVD Software Refund Policy - DigiArtY</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-premier-selections-versatile-and-affordable-macpc-bd-decoders/"><u>[New] 2024 Approved Premier Selections Versatile and Affordable Mac/PC BD Decoders</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-experts-choice-the-best-windows-pc-screen-recorders/"><u>[New] Expert's Choice The Best Windows PC Screen Recorders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premium-cameras-perfect-for-podcasts/"><u>[New] Premium Cameras Perfect for Podcasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-edit-youtube-videos-in-sony-vegas/"><u>[Updated] 2024 Approved How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximize-youtube-traffic-top-viewing-times-for-2024/"><u>[Updated] Maximize YouTube Traffic Top Viewing Times for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-tutorial-capturing-snapchat-moments-for-2024/"><u>[Updated] Step-by-Step Tutorial Capturing Snapchat Moments for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-storyline-secret-to-youtube-triumph/"><u>[Updated] The Storyline Secret to YouTube Triumph</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unveiling-the-secrets-of-showmores-screen-capture-software-for-2024/"><u>[Updated] Unveiling the Secrets of ShowMore’s Screen Capture Software for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-whats-the-best-voice-changer-for-youtubers-for-2024/"><u>[Updated] What’s the Best Voice Changer for YouTubers for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722974759351-get-your-insignia-usb-to-lan-converter-drivers-here/"><u>Get Your Insignia USB to LAN Converter Drivers Here!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-camstudios-enhanced-screen-capturing-for-a-seamless-2023-experience/"><u>In 2024, CamStudio's Enhanced Screen Capturing for a Seamless 2023 Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dissecting-digital-dynamics-comparative-channel-analysis/"><u>In 2024, Dissecting Digital Dynamics Comparative Channel Analysis</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-vivo-s18e-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Vivo S18e FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-how-to-do-color-correction-in-gopro-studio/"><u>In 2024, How to Do Color Correction in GoPro Studio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-earning-potential-with-youtube-shorts-crucial-elements-possible-returns/"><u>In 2024, Unlocking Earning Potential with Youtube Shorts Crucial Elements, Possible Returns</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-channels-growth-optimizing-viewership-with-collaborative-videos/"><u>Swift Channels Growth Optimizing Viewership with Collaborative Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/comprehensible-guide-to-economical-webinars-on-youtube/"><u>Your Comprehensible Guide to Economical Webinars on YouTube</u></a></li>
 </ul></div>
 

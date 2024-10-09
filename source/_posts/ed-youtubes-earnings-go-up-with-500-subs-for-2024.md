@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube's Earnings Go Up With 500 Subs for 2024"
-date: 2024-10-02T00:26:12.206Z
-updated: 2024-10-04T03:27:07.271Z
+date: 2024-10-04T20:47:05.926Z
+updated: 2024-10-08T20:05:00.139Z
 tags:
   - ai video
   - ai youtube
@@ -44,22 +44,36 @@ The eligibility criteria for the YPP program are now easier and more achievable 
 
 The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
 
 ![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **What You Need to Join Expanded YPP**
 
@@ -82,26 +96,32 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 2Click Earn in the left menu
 
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 3Click Apply Now to review and Accept the base terms
 
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 4Click Start to set up an AdSense account
@@ -136,13 +156,6 @@ The major way of earning money on YouTube is through ads that show in your video
 
 ![youtube monetization features](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-7.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 YouTube monetization 500 subscribers update allows you to earn money through monetization features that were not there before. This allows creators to interact more with their viewer while generating income. The main fan funding features include:
 
 1. **Channel Membership**: Offer a membership plan to your viewer through monthly payments in exchange for perks like emojis and badges.
@@ -168,32 +181,32 @@ YouTube Shorts require quick content that covers everything within 60 seconds. W
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. [**Motion Tracking**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. [**Speed Ramping**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -203,13 +216,6 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -226,15 +232,19 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/reak-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[New] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-get-into-the-game-starting-an-apple-powered-sports-network/"><u>[Updated] In 2024, Get Into the Game Starting an Apple-Powered Sports Network</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-tv-deactivation-made-easy/"><u>[Updated] In 2024, Instagram TV Deactivation Made Easy</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-perfecting-iphone-photography-for-vr-spheres/"><u>[Updated] In 2024, Perfecting iPhone Photography for VR Spheres</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-legality-of-recording-on-youtube-platform-for-2024/"><u>[Updated] Legality of Recording on YouTube Platform for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-complete-guide-to-live-streaming-on-instagram-via-obs/"><u>[Updated] The Complete Guide to Live Streaming on Instagram via OBS</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-hugging-face-functionality-and-uses-unveiled/"><u>A Comprehensive Guide to Hugging Face – Functionality & Uses Unveiled</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-moto-g-stylus-5g-2023-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Moto G Stylus 5G (2023) Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/sharpen-your-snaps-the-elite-eight-of-grids-and-frames/"><u>Sharpen Your Snaps The Elite Eight of Grids and Frames</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ltimate-12-camera-guide-for-effortless-screen-swivel-use-for-2024/"><u>The Ultimate 12 Camera Guide for Effortless Screen Swivel Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximize-youtube-traction-affordable-audience-expansion-for-2024/"><u>[New] Maximize YouTube Traction Affordable Audience Expansion for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-increase-your-videos-impact-essential-keyword-analysis-resources/"><u>[Updated] 2024 Approved Increase Your Video's Impact Essential Keyword Analysis Resources</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-monetary-milestones-pewdiepies-income-summary/"><u>[Updated] 2024 Approved Monetary Milestones PewDiePie’s Income Summary</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-cross-promotion-mastery-sharing-igtv-to-fb-for-2024/"><u>[Updated] Cross-Promotion Mastery Sharing IGTV to FB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-undo-motion-recapturing-video-from-mobile-devices/"><u>[Updated] In 2024, Undo Motion Recapturing Video From Mobile Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stepwise-strategies-for-measuring-yt-success-metrics-and-revenue-for-2024/"><u>[Updated] Stepwise Strategies for Measuring YT Success Metrics and Revenue for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/automated-marketing-with-customized-user-tracking/"><u>Automated Marketing with Customized User Tracking</u></a></li>
+<li><a href="https://win-top.techidaily.com/descubra-o-mundo-visual-atraves-dos-olhos-de-douglas-franca-fotografo-experiente-com-links-para-sua-criacao-no-movavi/"><u>Descubra O Mundo Visual Através Dos Olhos De Douglas França, Fotógrafo Experiente Com Links Para Sua Criação No Movavi</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-some-outdated-your-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>Identify some outdated your drivers with Windows Device Manager in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-file-shift-quick-and-easy-transfer-tactics-for-the-computer/"><u>In 2024, Mastering File Shift Quick and Easy Transfer Tactics for the Computer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-10-decibel-boosters-windows-macos-iphones/"><u>Leading 10 Decibel Boosters Windows, MacOS, iPhones</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-port-reset-error-a-step-by-step-guide-to-troubleshoot-your-usb-devices-on-windows-10/"><u>Solving the Port Reset Error: A Step-by-Step Guide to Troubleshoot Your USB Devices on Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ifa-scoreboard-tactics-in-infographics/"><u>Top FIFA Scoreboard Tactics in Infographics</u></a></li>
 </ul></div>
 

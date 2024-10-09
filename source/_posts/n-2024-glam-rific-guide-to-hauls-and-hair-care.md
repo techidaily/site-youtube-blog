@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Glam-Rific Guide to Hauls and Hair Care\""
-date: 2024-10-01T03:54:11.816Z
-updated: 2024-10-04T01:27:11.851Z
+date: 2024-10-06T11:54:45.658Z
+updated: 2024-10-09T11:21:26.422Z
 tags:
   - ai video
   - ai youtube
@@ -122,10 +122,10 @@ Make sure to link to your channel so they can verify what you say (do not hide y
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
@@ -153,6 +153,13 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -174,10 +181,10 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
@@ -193,13 +200,6 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -223,13 +223,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -239,6 +232,13 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
@@ -275,6 +275,13 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -286,10 +293,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
@@ -300,13 +307,6 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -345,17 +345,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-expert-insights-into-crafting-dynamic-youtube-shorts-templates/"><u>[New] 2024 Approved Expert Insights Into Crafting Dynamic YouTube Shorts Templates</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-essential-list-of-religious-ringing-sounds/"><u>[New] The Essential List of Religious Ringing Sounds</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>[Updated] 2024 Approved Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-optimal-storage-expansion-for-sony-a7c/"><u>[Updated] 2024 Approved Optimal Storage Expansion for Sony A7C</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-dive-into-dynamic-youtube-discussions/"><u>[Updated] Dive Into Dynamic YouTube Discussions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-avoid-mainstream-underrated-movies-of-the-year/"><u>[Updated] In 2024, Avoid Mainstream Underrated Movies of the Year</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-mp4-editing-on-mac-top-selections-for-youtubers-for-2024/"><u>[Updated] Mastering MP4 Editing on Mac Top Selections for YouTubers for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-command-attention-elevating-your-page-to-the-social-summit/"><u>2024 Approved Command Attention Elevating Your Page to the Social Summit</u></a></li>
-<li><a href="https://win-forum.techidaily.com/effortless-transformation-of-m4a-track-to-wmv-format-get-started-here-for-free/"><u>Effortless Transformation of M4A Track to WMV Format - Get Started Here for Free!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-tips-on-how-to-address-and-repair-the-missing-binkw32dll-error/"><u>Expert Tips on How to Address and Repair the Missing BinkW32.dll Error</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/uch-do-you-earn-when-a-million-watch-youtube-in-2024/"><u>How Much Do You Earn When a Million Watch Youtube, In 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-audio-enthusiasts-guide-to-the-best-10-spotify-recorders/"><u>In 2024, Audio Enthusiast's Guide to the Best 10 Spotify Recorders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-gamers-quest-1000plus-game-adventures-unfolded/"><u>[New] 2024 Approved Gamer's Quest 1,000+ Game Adventures Unfolded</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-accelerated-attention-on-instagram-the-like-video-method-for-2024/"><u>[New] Accelerated Attention on Instagram - The Like-Video Method for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-celluloid-to-screen-adapting-your-vids-for-ig-for-2024/"><u>[New] From Celluloid to Screen Adapting Your Vids for IG for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-enjoy-your-favorite-songs-anytime-convert-youtube-to-mp3-now/"><u>[New] In 2024, Enjoy Your Favorite Songs Anytime Convert YouTube to MP3 Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-jest-and-jibe-constructing-parody-videos/"><u>[New] In 2024, Jest and Jibe Constructing Parody Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-inside-the-tech-top-reviews-for-home-videotaping-tools-for-2024/"><u>[New] Inside the Tech Top Reviews for Home Videotaping Tools for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-live-stream-to-youtube-with-wirecast/"><u>[Updated] 2024 Approved How to Live Stream to Youtube with Wirecast?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-acoustiquest-investigating-soundscape-for-2024/"><u>[Updated] AcoustiQuest Investigating Soundscape for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hues-in-action-implementing-color-schemes-properly/"><u>[Updated] Hues in Action Implementing Color Schemes Properly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-networked-narrative-recorder-pro/"><u>[Updated] In 2024, Networked Narrative Recorder Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-12-vlogger-friendly-cameras-unveiled/"><u>[Updated] In 2024, Top 12 Vlogger-Friendly Cameras Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-profit-strategies-in-youtube-marketing/"><u>[Updated] Profit Strategies in YouTube Marketing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-5-simple-steps-to-record-your-youtube-streams/"><u>2024 Approved 5 Simple Steps to Record Your YouTube Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-dissecting-digital-dynamics-comparative-channel-analysis/"><u>2024 Approved Dissecting Digital Dynamics Comparative Channel Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-premier-choices-8-linux-editing-tools/"><u>2024 Approved Premier Choices 8 Linux Editing Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ting-your-youtube-presence-with-effective-tags-for-2024/"><u>Elevating Your YouTube Presence with Effective Tags for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/hide-and-seek-with-fb-episodes-for-2024/"><u>Hide-and-Seek with FB Episodes for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/reclaim-and-repair-your-broken-xbox-sx-console/"><u>Reclaim and Repair Your Broken Xbox S/X Console</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-errors-how-to-fix-failed-attempts-at-opening-word-files/"><u>Troubleshooting Errors: How to Fix Failed Attempts at Opening Word Files</u></a></li>
 </ul></div>
 

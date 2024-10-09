@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Positive Persuasion  The Secret to Attracting Followers\""
-date: 2024-09-19T17:01:56.482Z
-updated: 2024-09-22T21:27:28.391Z
+date: 2024-10-05T03:41:45.759Z
+updated: 2024-10-08T23:27:39.065Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -58,6 +65,13 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
 
@@ -70,6 +84,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -84,6 +105,13 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -104,12 +132,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-through-the-world-of-cosmetics-youtubes-top-artists/"><u>[New] In 2024, Navigating Through the World of Cosmetics YouTube's Top Artists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remier-selector-exclusive-app-selection-for-your-videos-for-2024/"><u>[New] Premier Selector Exclusive App Selection for Your Videos for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-5-best-mac-screen-seize-tips-char-limit-156-for-2024/"><u>[New] Top 5 Best Mac Screen Seize Tips (Char Limit 156) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nderstanding-youtubes-monthly-revenue-options-for-2024/"><u>[New] Understanding YouTube's Monthly Revenue Options for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-choosing-between-igtv-and-youtube-for-content-creators/"><u>[Updated] The Ultimate Guide to Choosing Between IGTV & YouTube for Content Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-9-free-custom-youtube-branding-tools-online/"><u>2024 Approved Top 9 FREE Custom YouTube Branding Tools Online</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-infinix-note-30-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Infinix Note 30 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-breakthrough-technology-for-screens-showmores-revolutionary-recorder/"><u>In 2024, Breakthrough Technology for Screens ShowMore's Revolutionary Recorder</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-from-sideways-to-symmetry-the-ultimate-manual-of-visual-storytelling-through-rotations-on-social-media/"><u>In 2024, From Sideways to Symmetry The Ultimate Manual of Visual Storytelling Through Rotations on Social Media</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-masterpiece-tools-filmoras-loved-9-edits-unraveled/"><u>In 2024, Masterpiece Tools Filmora's Loved 9 Edits Unraveled</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-pinnacle-of-plot-top-screenwriting-excellence/"><u>The Pinnacle of Plot Top Screenwriting Excellence</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-12-editing-tools-for-aspiring-vloggers-seeking-dynamic-visual-impact/"><u>Top 12 Editing Tools for Aspiring Vloggers Seeking Dynamic Visual Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/l-your-channels-potential-with-30-top-tier-free-intros/"><u>Unveil Your Channel's Potential with 30 Top-Tier Free Intros</u></a></li>
+</ul></div>
 

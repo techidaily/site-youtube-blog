@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Quick-Win Strategies  Top 20 Video Tips for Content Boosters\""
-date: 2024-09-30T04:07:28.832Z
-updated: 2024-10-04T05:05:26.614Z
+date: 2024-10-01T23:30:38.422Z
+updated: 2024-10-08T18:08:22.053Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -45,13 +52,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -72,19 +72,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -93,13 +80,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -112,6 +92,13 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -136,6 +123,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -162,10 +156,10 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -199,16 +193,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ecome-a-shorts-connoisseur-must-know-facts-for-2024/"><u>[New] Become a Shorts Connoisseur Must-Know Facts for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-isolated-viewers-to-shared-experiences-online/"><u>[New] In 2024, From Isolated Viewers to Shared Experiences Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ailored-free-offer-unlock-our-exclusive-youtube-banner-pack-for-2024/"><u>[New] Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge/"><u>[New] Unlock the Power of Partnerships YouTube Ads with a FameBit Edge</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-up-your-wealth-profit-from-effective-use-of-youtube-shorts/"><u>[Updated] In 2024, Channel Up Your Wealth Profit From Effective Use of YouTube Shorts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-common-youtube-short-hurdles-for-2024/"><u>[Updated] Navigating Common YouTube Short Hurdles for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/cognitive-crossroads-chatai-plus-visual-idea-mapping/"><u>Cognitive Crossroads: ChatAI + Visual Idea Mapping</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-create-an-affordable-tribute-emulating-a-vintage-7-macintosh-128k-on-the-miniature-raspberry-pi-pico-board/"><u>How to Create an Affordable Tribute: Emulating a Vintage $7 Macintosh 128K on the Miniature Raspberry Pi Pico Board</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c53-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Realme C53 Phone without Any Data Loss</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/revolutionary-youtube-uploading-tools-creative-strategies-for-seamless-video-sharing-on-youtube/"><u>Revolutionary YouTube Uploading Tools: Creative Strategies for Seamless Video Sharing on YouTube</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/smooth-setup-pairing-your-samsung-headphones-with-windowsmac-computers/"><u>Smooth Setup: Pairing Your Samsung Headphones with Windows/Mac Computers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-avoiding-unauthorized-use-mastering-photowatermarking-on-instagram/"><u>[New] 2024 Approved Avoiding Unauthorized Use Mastering Photowatermarking on Instagram</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-efficient-audio-documentation-in-academia-using-macs/"><u>[New] 2024 Approved Efficient Audio Documentation in Academia Using Macs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-harness-youtubes-creative-commons-in-video-making/"><u>[New] 2024 Approved How to Harness YouTube's Creative Commons in Video Making</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ree-and-easy-building-attractive-youtube-intros-without-expense-for-2024/"><u>[New] Free & Easy Building Attractive YouTube Intros without Expense for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-8-honest-video-promotion-services/"><u>[New] In 2024, Unveiling 8 Honest Video Promotion Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-charting-growth-the-best-online-stock-yts/"><u>[Updated] 2024 Approved Charting Growth The Best Online Stock YTs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-creative-command-center-studio-for-youtubers/"><u>[Updated] Creative Command Center Studio for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-revenue-sharing-explained-how-much-will-i-make/"><u>[Updated] In 2024, YouTube Shorts Revenue Sharing Explained How Much Will I Make?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-music-free-converters-for-youtube-and-mac-users-for-2024/"><u>[Updated] Unlocking Music Free Converters for YouTube & Mac Users for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-visual-symphony-iosandroid-instagram-collage-app-for-2024/"><u>[Updated] Visual Symphony IOS/Android Instagram Collage App for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-apple-iphone-x-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Apple iPhone X Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-premium-changing-voices-technology-for-youtube-artists/"><u>In 2024, Premium Changing Voices Technology for YouTube Artists</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-y27-4g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo Y27 4G</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-consensus-more-damage-than-advantage-in-sns/"><u>Public Consensus: More Damage Than Advantage in SNS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/screen-saving-solutions-a-critical-look-at-capturers-for-2024/"><u>Screen Saving Solutions A Critical Look at Capturers for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/virtual-support-hub-for-winx-media-format-transformation-tools-tips-and-solutions/"><u>Virtual Support Hub for WinX Media Format Transformation Tools – Tips & Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/in-how-to-sequentially-play-youtube-videos-for-free/"><u>Zoom In How to Sequentially Play YouTube Videos for Free</u></a></li>
 </ul></div>
 

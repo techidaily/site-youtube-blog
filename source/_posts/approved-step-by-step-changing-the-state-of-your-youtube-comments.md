@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step  Changing the State of Your YouTube Comments\""
-date: 2024-09-19T20:52:50.375Z
-updated: 2024-09-22T20:38:32.121Z
+date: 2024-10-03T09:40:26.796Z
+updated: 2024-10-09T01:46:42.741Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/asy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[New] Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximize-engagement-the-ultimate-list-of-youtube-growth-tactics/"><u>[New] In 2024, Maximize Engagement The Ultimate List of YouTube Growth Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-no-cost-treasures-aplus-ae-template-collections/"><u>[New] In 2024, No-Cost Treasures A+ AE Template Collections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ayered-comfort-selecting-snug-winter-themes-for-filming/"><u>[New] Layered Comfort Selecting Snug Winter Themes for Filming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-perfecting-the-chorus-of-visual-content-on-facebook-through-music/"><u>[New] Perfecting the Chorus of Visual Content on Facebook Through Music</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/isky-business-buying-non-real-youtube-supporters/"><u>[New] Risky Business Buying Non-Real YouTube Supporters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-achieving-financial-freedom-joshis-youtube-tactics-for-2024/"><u>[Updated] Achieving Financial Freedom Joshi’s YouTube Tactics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-leveraging-seo-in-youtube-a-title-and-tags-guidebook/"><u>[Updated] In 2024, Leveraging SEO in Youtube A Title & Tags Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] In 2024, Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-uncover-the-most-stellar-yt-gamers-intros-no-cost-high-quality/"><u>[Updated] In 2024, Uncover the Most Stellar YT Gamers' Intros No Cost, High Quality?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhance-digital-communication-on-chrome-review-of-the-best-web-based-tts-tools/"><u>2024 Approved Enhance Digital Communication on Chrome Review of the Best Web-Based TTS Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-in-depth-review-of-ivona-text-to-speech-converter/"><u>2024 Approved In-Depth Review of Ivona Text to Speech Converter</u></a></li>
+<li><a href="https://extra-information.techidaily.com/all-you-need-to-know-about-adobe-storages-including-top-non-adobe-alternates/"><u>All You Need to Know About Adobe Storages, Including Top Non-Adobe Alternates</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/enhance-performance-with-a-hid-compliant-mouse-driver-update/"><u>Enhance Performance with a HID-Compliant Mouse Driver Update</u></a></li>
+<li><a href="https://fox-info.techidaily.com/epic-tvs-for-xbox-series-x-and-playstation-5-gamers-for-2024/"><u>Epic TVs for Xbox Series X & PlayStation 5 Gamers for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/guide-to-diagnosing-and-repairing-tozo-t6-problems-under-windows-11/"><u>Guide to Diagnosing and Repairing Tozo T6 Problems Under Windows 11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Motorola Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pokud-chcete-vice-zisk-5-nahrobku-konvalentu-vide-na-macos/"><u>Pokud Chcete Více Zisk - 5 Náhrobků Konvalentu Vide Na macOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-channel-finale-strategy-plus-best-templates-and-makers/"><u>The Ultimate Channel Finale Strategy + Best Templates & Makers</u></a></li>
+</ul></div>
 

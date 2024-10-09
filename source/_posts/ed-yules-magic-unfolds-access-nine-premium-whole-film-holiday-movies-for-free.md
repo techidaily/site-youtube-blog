@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Yule's Magic Unfolds  Access Nine Premium, Whole-Film Holiday Movies for Free\""
-date: 2024-09-30T22:27:36.118Z
-updated: 2024-10-04T03:37:48.726Z
+date: 2024-10-05T19:30:44.453Z
+updated: 2024-10-09T06:01:39.209Z
 tags:
   - ai video
   - ai youtube
@@ -35,30 +35,45 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -68,23 +83,9 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -95,13 +96,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -124,18 +118,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-discovering-digital-dialogues-facebook-video-exchange/"><u>[New] 2024 Approved Discovering Digital Dialogues Facebook Video Exchange</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-instagram-borders-a-list-of-top-quality-apps-and-tools/"><u>[New] 2024 Approved Mastering Instagram Borders A List of Top-Quality Apps & Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ultimate-commercial-sky-storage-provider/"><u>[New] Ultimate Commercial Sky-Storage Provider</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-attention-retention-on-youtube-with-these-6-tactics/"><u>[Updated] Mastering the Art of Attention Retention on YouTube with These 6 Tactics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-view-count-faster-discover-the-most-effective-shortcuts-for-2024/"><u>[Updated] Maximizing View Count Faster Discover the Most Effective Shortcuts for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-income-calculating-adsense-per-1k-viewer-for-2024/"><u>[Updated] Unlocking YouTube Income Calculating AdSense Per 1K Viewer for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-film-techniques-free-ecological-templates/"><u>2024 Approved Film Techniques Free Ecological Templates</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-select-5-high-quality-audio-headphones/"><u>2024 Approved Select 5 High-Quality Audio Headphones</u></a></li>
-<li><a href="https://games-able.techidaily.com/curtailing-xbox-game-bars-intrusive-activities-in-windows-11/"><u>Curtailing Xbox Game Bar's Intrusive Activities in Windows 11</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/htful-digests-a-list-of-top-food-channels-for-2024/"><u>Delightful Digests A List of Top Food Channels for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-elevate-video-performance-following-the-path-of-stars/"><u>In 2024, Elevate Video Performance Following the Path of Stars</u></a></li>
-<li><a href="https://games-able.techidaily.com/steps-to-prevent-steam-auto-launch/"><u>Steps to Prevent Steam Auto-Launch</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/mline-your-impact-the-most-effective-video-formats-for-youtube-for-2024/"><u>Streamline Your Impact The Most Effective Video Formats for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-best-free-youtube-channel-art-makers/"><u>[New] 10 Best Free YouTube Channel Art Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-guide-to-using-youtube-in-education/"><u>[New] 2024 Approved The Ultimate Guide to Using YouTube in Education</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/asy-obs-youtube-live-streaming-guide-for-2024/"><u>[New] Easy OBS YouTube Live Streaming Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tiktok-to-twitter-sharing-videos-for-2024/"><u>[New] TikTok to Twitter Sharing Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/our-path-to-youtube-studio-the-editors-command-center/"><u>[New] Your Path to YouTube Studio The Editor's Command Center</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-can-microsofts-artificial-intelligence-technology-revive-the-windows-mobile-experience/"><u>1. Can Microsoft's Artificial Intelligence Technology Revive the Windows Mobile Experience?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-through-noise-effective-utilization-of-video-templates/"><u>Break Through Noise Effective Utilization of Video Templates</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/discover-the-world-of-mirillis-insightful-business-company-summary/"><u>Discover the World of MirilliS – Insightful Business Company Summary</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ient-time-markers-in-youtube-videos-desktopmobile-edition/"><u>Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-cutting-edge-designs-top-8-popular-instagram-template-groups/"><u>In 2024, Cutting Edge Designs Top 8 Popular Instagram Template Groups</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/negative-consequences-unpacking-social-network-effects/"><u>Negative Consequences: Unpacking Social Network Effects</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-samsung-by-fonelab-android-recover-data/"><u>The way to get back lost data from Samsung</u></a></li>
 </ul></div>
 

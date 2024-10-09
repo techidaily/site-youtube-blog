@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering Media Integration  Adding Online YT Videos to PPTs\""
-date: 2024-09-15T18:33:29.419Z
-updated: 2024-09-22T16:43:24.479Z
+date: 2024-10-02T02:49:10.216Z
+updated: 2024-10-09T09:58:31.220Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ After understanding the benefits of have a video embedded to your presentation, 
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Using YouTube Video’s URL
 
 Because every YouTube video has a URL (Uniform Resource Locator) that is unique for that particular clip, PowerPoint allows you to use it to embed the footage to any of its slides. The process is simple, and you can follow the steps given below to get this done:
@@ -52,6 +59,13 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 **Step 2: Add URL to PowerPoint**
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
@@ -70,6 +84,13 @@ Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, 
 Go to the YouTube video you want to embed to your PowerPoint slide, click the **SHARE** icon from the left area under the video player, click the **Embed** icon in the **Share** box, and click **COPY** from the bottom-right corner of the **Embed Video** box that appears next.
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
@@ -91,6 +112,13 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 4: Insert Video from PC
 
 Another method to **embed YouTube video in PowerPoint** is by downloading the clip to your PC, and then inserting the footage from there. You can use any free YouTube downloader to obtain a video that is available on YouTube.
@@ -110,13 +138,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 **Step 3: Resize and/or Modify the Video**
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
@@ -157,13 +178,6 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -183,5 +197,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/astering-video-thumbnail-personalization-on-youtube/"><u>[New] Mastering Video Thumbnail Personalization on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastery-in-captioning-a-youtube-creators-handbook/"><u>[Updated] 2024 Approved Mastery in Captioning A YouTube Creator's Handbook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-digital-diary-keepers-securely-download-tweets-videos/"><u>[Updated] In 2024, Digital Diary Keepers Securely Download Tweets' Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-master-your-screen-time-using-facetime-on-android-for-2024/"><u>[Updated] Master Your Screen Time Using FaceTime on Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-supreme-choices-for-inexpensive-film-assets-for-2024/"><u>[Updated] Supreme Choices for Inexpensive Film Assets for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-content-as-lively-download-free-animated-gifs/"><u>[Updated] Unlocking YouTube Content as Lively, Download-Free Animated GIFs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-your-recording-with-updated-focusrite-scarlett-solo-18i20-windows-drivers-download-now/"><u>Enhance Your Recording with Updated Focusrite Scarlett Solo 18I20 Windows Drivers - Download Now</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphones-video-reduction-and-adjustment-tools/"><u>In 2024, Mastering iPhone's Video Reduction and Adjustment Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-smooth-video-playback-for-televisions-with-youtube/"><u>In 2024, Smooth Video Playback for Televisions with YouTube</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-realme-12plus-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Realme 12+ 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-content-the-key-to-engaging-yt-shorts-for-2024/"><u>Mastering Content The Key to Engaging YT Shorts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-world-of-webcams-for-high-quality-streams/"><u>Navigating the World of Webcams for High-Quality Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pinnacle-of-presence-a-strategic-approach-for-live-video-graphics/"><u>Pinnacle of Presence A Strategic Approach for Live Video Graphics</u></a></li>
+</ul></div>
 

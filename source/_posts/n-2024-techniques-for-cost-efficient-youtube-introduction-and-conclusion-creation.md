@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Techniques for Cost-Efficient YouTube Introduction & Conclusion Creation\""
-date: 2024-09-21T19:17:08.245Z
-updated: 2024-09-22T20:19:07.121Z
+date: 2024-10-02T01:50:17.198Z
+updated: 2024-10-09T00:03:05.999Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,19 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +130,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +156,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/reakthrough-youtube-success-essential-tips-from-creator-studio-guide/"><u>[New] Breakthrough YouTube Success Essential Tips From Creator Studio Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tips-for-quickly-locating-the-epicenter-of-youtubes-video-creation/"><u>[New] In 2024, Tips for Quickly Locating the Epicenter of YouTube's Video Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ptimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists-for-2024/"><u>[New] Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-perfecting-your-youtube-presence-a-video-upload-manual/"><u>[Updated] 2024 Approved Perfecting Your YouTube Presence A Video Upload Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-9-zero-price-programs-to-take-your-videos-from-average-to-amazing-for-2024/"><u>[Updated] 9 Zero Price Programs to Take Your Videos From Average to Amazing for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-popular-tiktok-background-images-for-2024/"><u>[Updated] Discover Popular TikTok Background Images for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-simplifying-complications-in-youtube-shorts-for-2024/"><u>[Updated] Simplifying Complications in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-snap-edit-and-share-spectacularly-on-tiktok-with-themes-for-2024/"><u>[Updated] Snap, Edit & Share Spectacularly on TikTok with Themes for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ultimate-freefire-tag-collection-enhance-your-youtube-channels-for-2024/"><u>[Updated] Ultimate FreeFire Tag Collection Enhance Your YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-debunking-youtube-premium-benefits-vs-costs/"><u>2024 Approved Debunking YouTube Premium Benefits Vs. Costs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-shedding-light-techniques-for-improving-youtube-video-quality/"><u>2024 Approved Shedding Light Techniques for Improving YouTube Video Quality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unveil-the-secrets-to-excellent-youtube-thumbnails/"><u>2024 Approved Unveil the Secrets to Excellent YouTube Thumbnails</u></a></li>
+<li><a href="https://blog-min.techidaily.com/62024/"><u>次世代動画編集ツール：画面分割最新手法ベスト6選（2024年度更新版）</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-add-transitions-in-kinemaster/"><u>In 2024, Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-copy-contacts-from-apple-iphone-14-to-sim-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Copy Contacts from Apple iPhone 14 to SIM? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-tecno-pova-5-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Tecno Pova 5</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-top-five-flying-toys-for-youth/"><u>In 2024, The Top Five Flying Toys for Youth</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/no-more-complications-easy-instagram-to-mp4-tools-for-mac-and-pc/"><u>No More Complications! Easy Instagram to MP4 Tools for Mac & PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-handbook-to-drone-video-editing-for-2024/"><u>The Ultimate Handbook to Drone Video Editing for 2024</u></a></li>
+</ul></div>
 

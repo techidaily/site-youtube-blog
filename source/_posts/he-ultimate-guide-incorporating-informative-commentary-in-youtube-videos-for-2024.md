@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos for 2024\""
-date: 2024-09-17T19:22:14.210Z
-updated: 2024-09-22T19:14:06.711Z
+date: 2024-10-02T09:36:49.739Z
+updated: 2024-10-09T10:57:48.162Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-circle-of-connectivity-spotlighting-instas-top-25-influencers/"><u>[New] 2024 Approved The Circle of Connectivity Spotlighting Insta's Top 25 Influencers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-precision-shade-modifier/"><u>[New] Precision Shade Modifier</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-exploring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>[Updated] 2024 Approved Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-retrace-steps-how-to-turn-your-yt-queue-on-its-head/"><u>[Updated] 2024 Approved Retrace Steps How to Turn Your YT Queue on Its Head</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-apeak-soft-recording-performance-and-reliability-assessed-for-2024/"><u>[Updated] Apeak Soft Recording Performance and Reliability Assessed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovative-strategies-for-amplifying-subscriber-numbers-via-channel-branding-for-2024/"><u>[Updated] Innovative Strategies for Amplifying Subscriber Numbers via Channel Branding for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-interest-with-budget-friendly-youtube-video-intros-for-2024/"><u>Building Interest with Budget-Friendly YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decadent-delights-multilingual-names/"><u>Decadent Delights, Multilingual Names</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-itel-p40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Huawei Nova Y71? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-lava-yuva-3-pro-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Lava Yuva 3 Pro Devices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-and-effortless-methods-to-get-the-latest-amd-graphics-drivers/"><u>Quick and Effortless Methods to Get the Latest AMD Graphics Drivers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tips-to-rank-facebook-page-better/"><u>Tips to Rank Facebook Page Better</u></a></li>
+</ul></div>
 

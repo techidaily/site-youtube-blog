@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock Free YouTube Intro/End Customization\""
-date: 2024-09-16T17:06:55.910Z
-updated: 2024-09-22T18:30:11.200Z
+date: 2024-10-05T10:07:49.605Z
+updated: 2024-10-08T22:20:17.406Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/urbing-common-mishaps-youtube-short-edition/"><u>[New] Curbing Common Mishaps YouTube Short Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-millions-watch-but-how-much-do-they-earn/"><u>[New] In 2024, Millions Watch, But How Much Do They Earn?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/umpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[New] Jumpstart to Partner Elevation Secure 10K Views in Minutes!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-mobile-and-desktop-tips-for-gotomeeting-captures/"><u>[New] Mobile & Desktop Tips for GoToMeeting Captures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-richest-video-content-star-on-earth-for-2024/"><u>[New] The Richest Video Content Star on Earth for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-influencers-utopia-summit/"><u>[Updated] 2024 Approved Influencers' Utopia Summit</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unleashing-potential-a-treasury-of-youtube-themes-for-channels/"><u>[Updated] 2024 Approved Unleashing Potential A Treasury of YouTube Themes for Channels</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-premiere-video-editing-options-for-app-developers/"><u>[Updated] In 2024, Premiere Video Editing Options for App Developers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-quality-audio-awaits-with-these-premium-asmr-mics/"><u>[Updated] In 2024, Quality Audio Awaits with These Premium ASMR Mics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastery-in-minimal-spending-finding-instagrams-free-filter-cache-for-2024/"><u>[Updated] Mastery in Minimal Spending Finding Instagram’s Free Filter Cache for 2024</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-x90s-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-oppo-k11-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Oppo K11 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-adjusting-low-bit-rate-settings-obs/"><u>In 2024, Adjusting Low-Bit Rate Settings (OBS)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-transforming-video-tutorials-into-playable-animated-gifs-online/"><u>In 2024, Transforming Video Tutorials Into Playable Animated GIFs Online</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Samsung Galaxy F04 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Comment Visibility on YouTube Videos\""
-date: 2024-09-29T20:11:00.847Z
-updated: 2024-10-04T04:08:57.088Z
+date: 2024-10-05T11:58:53.633Z
+updated: 2024-10-09T02:43:02.588Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,20 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -155,16 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -180,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -202,22 +196,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-youtube-seo-compendium-for-enhanced-visibility/"><u>[New] In 2024, The Ultimate YouTube SEO Compendium for Enhanced Visibility</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-strategies-to-fast-track-vimeo-content/"><u>[New] Strategies to Fast-Track Vimeo Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/op-12-vlogger-friendly-cameras-unveiled/"><u>[New] Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-your-iphone-selfie-upgrade-choose-from-8-stars/"><u>[New] Your iPhone Selfie Upgrade - Choose From #8 Stars</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-list-of-text-tools-and-plugins/"><u>[Updated] 2024 Approved Ultimate List of Text Tools & Plugins</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unveiling-strategies-for-building-impressive-youtube-teaser-vids/"><u>[Updated] 2024 Approved Unveiling Strategies for Building Impressive YouTube Teaser Vids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-behind-the-camera-glory-spotlight-on-top-10-female-youtubers-for-2024/"><u>[Updated] Behind-the-Camera Glory Spotlight on Top 10 Female YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-crafting-video-magic-summit/"><u>[Updated] In 2024, Crafting Video Magic Summit</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-master-the-art-of-striking-gopro-time-lapse-videos/"><u>[Updated] In 2024, Master the Art of Striking GoPro Time-Lapse Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximize-views-download-youtube-artwork-for-free/"><u>[Updated] In 2024, Maximize Views Download YouTube Artwork for Free</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-live-from-the-couch-the-essential-dos-and-donts-of-home-streaming-for-2024/"><u>[Updated] Live From the Couch The Essential Do's & Don'ts of Home Streaming for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-content-engagement-configuring-picture-in-picture-mode-ios/"><u>In 2024, Seamless Content Engagement Configuring Picture-in-Picture Mode (iOS)</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Oppo Find X7 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-code-leading-online-coding-education-platforms-of-202n4/"><u>Mastering Code: Leading Online Coding Education Platforms of 202N4</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ltimate-selection-identifying-best-12-vloggers-camera-choices/"><u>The Ultimate Selection Identifying Best 12 Vloggers' Camera Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oosting-youtube-interaction-with-emojis/"><u>[New] Boosting YouTube Interaction with Emojis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/utting-the-excess-a-guide-to-shortening-youtube-videos-for-2024/"><u>[New] Cutting the Excess A Guide to Shortening YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-greening-the-grid-paving-the-way-for-sustainable-metropolises/"><u>[New] In 2024, Greening the Grid Paving the Way for Sustainable Metropolises</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-the-art-of-hashtag-usage-a-primer-for-gamers-yt/"><u>[Updated] 2024 Approved Mastering the Art of Hashtag Usage A Primer for Gamers YT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-detailed-steps-to-supercharge-your-youtube-audio-content-for-2024/"><u>[Updated] Detailed Steps to Supercharge Your YouTube Audio Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-make-fortnite-thumbnail-for-free-and-easy-for-2024/"><u>[Updated] How to Make Fortnite Thumbnail for Free and Easy for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-10-ultimate-simulators-for-androids-gb-games/"><u>[Updated] In 2024, 10 Ultimate Simulators for Android's GB Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-creating-connection-identifying-the-best-6-videos/"><u>[Updated] In 2024, Creating Connection Identifying the Best 6 Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-mechanisms-that-govern-youtube-after-a-video-is-live/"><u>[Updated] Unveiling the Mechanisms That Govern YouTube After a Video Is Live</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-an-iconic-identity-on-instagram-with-these-9-tricks/"><u>2024 Approved Crafting an Iconic Identity on Instagram with These 9 Tricks</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-group-formation-a-facebook-perspective/"><u>Guide to Group Formation: A Facebook Perspective</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/are-the-laws-around-saving-youtube-videos-for-offline-use-for-2024/"><u>What Are the Laws Around Saving YouTube Videos for Offline Use for 2024</u></a></li>
 </ul></div>
 

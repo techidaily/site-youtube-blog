@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick Guide to Softening YouTube Videos' Surroundings"
-date: 2024-09-18T16:39:23.035Z
-updated: 2024-09-22T19:03:36.529Z
+date: 2024-10-02T21:15:07.308Z
+updated: 2024-10-09T09:53:53.992Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,13 @@ If you need to blur the video background after shooting, you can use some video 
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -79,7 +86,21 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -93,22 +114,21 @@ Here, I will select the **Tilt-Shift Circle** effect and drop it to the track ab
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -132,5 +152,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-recording-lenovo-fast-and-fuss-free-tips/"><u>[New] 2024 Approved Recording Lenovo Fast and Fuss-Free Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-tailoring-content-to-trends-organic-growth-strategies-for-youtubers/"><u>[New] 2024 Approved Tailoring Content to Trends Organic Growth Strategies for YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-boosting-viewership-mastery-in-youtube-shorts-design/"><u>[New] In 2024, Boosting Viewership Mastery in YouTube Shorts Design</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-non-tripod-techniques-for-still-cameras/"><u>[New] In 2024, Non-Tripod Techniques for Still Cameras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-shorts-templates-a-complete-guide-for-2024/"><u>[New] Mastering YouTube Shorts Templates A Complete Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/pening-doors-creating-an-account-on-youtube-for-2024/"><u>[New] Opening Doors Creating an Account on YouTube for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tamil-tunes-steps-for-ringtones-and-editing-songs-as-alerts/"><u>[New] Tamil Tunes Steps for Ringtones & Editing Songs as Alerts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope-for-2024/"><u>[Updated] Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-the-art-of-engaging-in-youtube-short-forms/"><u>[Updated] In 2024, Decoding the Art of Engaging in YouTube Short Forms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-easy-ways-to-get-free-views-on-youtube-alternative-methods/"><u>[Updated] In 2024, Easy Ways To Get Free Views on YouTube! Alternative Methods</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fresh-funds-finds-economical-monetization-platforms-for-beginners/"><u>[Updated] In 2024, Fresh Funds Finds Economical Monetization Platforms for Beginners</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-storytelling-revolution-free-cross-platform-social-sensations/"><u>[Updated] In 2024, Storytelling Revolution FREE, Cross-Platform Social Sensations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-digital-storytelling-youtubes-filmmaking-pathway/"><u>[Updated] Pioneering Digital Storytelling YouTube's Filmmaking Pathway</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-guide-to-producing-high-impact-youtube-intros-for-2024/"><u>[Updated] The Complete Guide to Producing High-Impact YouTube Intros for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/icloud-to-all-devices-seamlessly-share-apple-photos-on-windowsandroid/"><u>ICloud to All Devices: Seamlessly Share Apple Photos on Windows/Android</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/probing-the-potential-of-samsungs-photo-editor-for-2024/"><u>Probing the Potential of Samsung's Photo Editor for 2024</u></a></li>
+</ul></div>
 
