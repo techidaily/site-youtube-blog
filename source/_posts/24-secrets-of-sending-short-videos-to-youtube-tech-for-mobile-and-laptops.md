@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops\""
-date: 2024-10-02T23:23:58.792Z
-updated: 2024-10-08T16:27:06.763Z
+date: 2024-10-12T17:18:19.478Z
+updated: 2024-10-15T18:18:09.667Z
 tags:
   - ai video
   - ai youtube
@@ -81,13 +81,6 @@ For macOS 10.12 or later
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -95,10 +88,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
@@ -115,11 +108,31 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -147,13 +160,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -163,10 +169,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -190,22 +196,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-starting-an-online-platform-for-consumer-goods-reviews/"><u>[New] Starting an Online Platform for Consumer Goods Reviews</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-superior-online-concert-streamers/"><u>[New] Superior Online Concert Streamers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-time-management-using-timestamps-to-amplify-views-on-youtube/"><u>[Updated] 2024 Approved Time Management Using Timestamps to Amplify Views on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-innovative-chroma-techniques-for-stunning-visual-storytelling/"><u>[Updated] In 2024, Innovative Chroma Techniques for Stunning Visual Storytelling</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-tools-every-new-creator-needs/"><u>[Updated] The Essential Tools Every New Creator Needs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlock-creative-potentials-youtube-trailers-with-filmora/"><u>[Updated] Unlock Creative Potentials YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-shorts-mastery-quick-thumbnail-updates-made-simple-for-2024/"><u>[Updated] YouTube Shorts Mastery Quick Thumbnail Updates Made Simple for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/windvd/"><u>【最新更新版】winDVDで再生問題が起きた場合の改善方法</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-15-must-see-investment-channels-online/"><u>2024 Approved 15 Must-See Investment Channels Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-how-to-successfully-embed-youtube-playlists-via-web-scripts/"><u>2024 Approved How to Successfully Embed YouTube Playlists via Web Scripts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-maximizing-reach-youtubes-template-advantage-explained/"><u>2024 Approved Maximizing Reach YouTube's Template Advantage Explained</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-ps5xbox-series-x-gaming-sets-the-top-5-list/"><u>2024 Approved PS5/Xbox Series X Gaming Sets The Top 5 List</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-delete-or-deactivate-an-instagram-account-permanently/"><u>In 2024, How to Delete or Deactivate An Instagram Account Permanently</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-record-audio-from-youtube/"><u>In 2024, How to Record Audio From YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>In 2024, Ultimate Tutorial How To Add a Countdown Timer in OBS</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-to-correctly-fix-stop-error-0x00000078-phase-transition-malfunction/"><u>Step-by-Step Tutorial to Correctly Fix STOP Error 0X00000078 - Phase Transition Malfunction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-10-awesome-ideas-for-igtv-videos-brands-cant-miss-out-on/"><u>[New] 10 Awesome Ideas for IGTV Videos Brands Can't Miss Out On</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-seeing-the-upside-down-inventive-techniques-to-rewind-yt-media/"><u>[New] Seeing the Upside Down Inventive Techniques to Rewind YT Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-examining-the-income-mechanics-of-tseries-on-youtube/"><u>[Updated] 2024 Approved Examining the Income Mechanics of TSeries on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-beginners-steps-to-broadcast-on-youtube-via-obs/"><u>[Updated] In 2024, Beginner's Steps to Broadcast on Youtube via OBS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rapid-ascension-harness-likes-and-videos-for-insta-success/"><u>[Updated] In 2024, Rapid Ascension Harness Likes & Videos for Insta Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-brighter-youtube-video-editing/"><u>[Updated] Step-by-Step Guide to Brighter YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-brightening-up-your-youtube-content/"><u>[Updated] The Ultimate Guide to Brightening Up Your YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-creativity-top-8-online-resources-for-beginners/"><u>[Updated] Unlock Creativity Top 8 Online Resources for Beginners</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/apples-latest-breakthrough-bringing-google-lens-powered-visual-intelligence-to-iphone-16-cameras-exclusive-coverage-on-zdnet/"><u>Apple's Latest Breakthrough: Bringing Google Lens-Powered Visual Intelligence to iPhone 16 Cameras | Exclusive Coverage on ZDNET</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/must-do-tasks-for-enhanced-podcast-experience/"><u>Must-Do Tasks for Enhanced Podcast Experience</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/upgrade-your-experience-with-the-new-iphone-15-apples-invitation-iphone-15-zdnet/"><u>Upgrade Your Experience with the New iPhone 15 - Apple's Invitation [iPhone 15] | ZDNet</u></a></li>
 </ul></div>
 

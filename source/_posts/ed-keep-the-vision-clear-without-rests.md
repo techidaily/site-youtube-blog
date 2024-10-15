@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keep the Vision Clear Without Rests"
-date: 2024-09-15T21:05:40.538Z
-updated: 2024-09-22T21:20:03.738Z
+date: 2024-10-14T18:48:31.798Z
+updated: 2024-10-15T16:45:54.147Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,19 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,6 +67,13 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -81,10 +101,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -96,10 +116,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -143,5 +163,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-going-from-frame-to-note-on-instagrams-mp3-route-for-2024/"><u>[New] Going From Frame-to-Note on Instagram's Mp3 Route for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-spoof-ballads-and-jests-the-funniest-sounds/"><u>[New] In 2024, Spoof Ballads & Jests The Funniest Sounds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-learning-top-15-sci-yt-channels/"><u>[New] In 2024, The Ultimate Guide to Learning Top 15 Sci-YT Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-guide-to-free-online-short-video-downloading-for-2024/"><u>[New] The Ultimate Guide to Free, Online Short Video Downloading for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-link-building-strategies-for-2024/"><u>[Updated] Mastering YouTube Link-Building Strategies for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-brand-potential-with-free-youtube-marketing-templates-for-2024/"><u>[Updated] Unleashing Brand Potential with FREE YouTube Marketing Templates for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unleashing-the-power-of-preparedness-in-your-streams-for-2024/"><u>[Updated] Unleashing the Power of Preparedness in Your Streams for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-fifa-footage-analysis-trendy-video-patterns/"><u>2024 Approved FIFA Footage Analysis Trendy Video Patterns</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-ultimate-stream-software-showdown-obs-vs-shadowplay/"><u>2024 Approved The Ultimate Stream Software Showdown OBS vs ShadowPlay</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-video-to-image-easily-separate-and-save-pics-from-movies-windows-10/"><u>2024 Approved Video to Image Easily Separate and Save Pics From Movies (Windows 10)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
+<li><a href="https://fox-links.techidaily.com/googles-ar-sticker-innovation-an-inside-look-and-alternatives-for-2024/"><u>Google's AR Sticker Innovation An Inside Look & Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastering-youtube-success-via-creator-studio-complete-handbook/"><u>In 2024, Mastering YouTube Success via Creator Studio Complete Handbook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-stepwise-methods-for-captivating-collage-compositions/"><u>In 2024, Stepwise Methods for Captivating Collage Compositions</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-switch-cards-between-apple-iphone-6-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Switch Cards Between Apple iPhone 6 and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sneakily-bypass-online-learning-videos-without-breach/"><u>Sneakily Bypass Online Learning Videos Without Breach</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-the-secrets-of-fisheye-imaging-for-2024/"><u>Unveiling the Secrets of Fisheye Imaging for 2024</u></a></li>
+</ul></div>
 

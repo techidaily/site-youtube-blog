@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Vlogger's Guide To Camera Lenses | Wondershare Filmora\""
-date: 2024-10-05T11:18:05.134Z
-updated: 2024-10-09T01:41:53.068Z
+date: 2024-10-14T16:40:54.737Z
+updated: 2024-10-15T18:34:25.740Z
 tags:
   - ai video
   - ai youtube
@@ -83,20 +83,27 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -114,10 +121,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -134,13 +141,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -155,6 +155,19 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,13 +181,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,20 +203,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/learfocuscutout-how-to-blur-your-youtube-videos-background-for-2024/"><u>[New] ClearFocusCutOut How to Blur Your YouTube Video's Background for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/avigating-to-your-own-custom-arranged-music-library-on-youtube/"><u>[New] Navigating to Your Own Custom-Arranged Music Library on Youtube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximizing-your-channels-earning-potential-through-trailers/"><u>[Updated] In 2024, Maximizing Your Channel's Earning Potential Through Trailers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-quick-guide-personalized-youtube-shorts-images-without-hassle/"><u>[Updated] Quick Guide Personalized YouTube Shorts Images Without Hassle</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-shield-yourself-online-a-step-by-step-guide-for-smoothing-images-for-2024/"><u>[Updated] Shield Yourself Online A Step-by-Step Guide for Smoothing Images for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-shorts-revenue-sharing-explained-how-much-will-i-make-in-2024/"><u>[Updated] YouTube Shorts Revenue Sharing Explained How Much Will I Make, In 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/connect-and-print-with-hp-deskjet-2630-remote/"><u>Connect & Print with HP DeskJet 2630 Remote</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ting-youtube-prominence-with-expert-use-of-the-hub-for-2024/"><u>Elevating Youtube Prominence with Expert Use of the Hub for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/free-epson-wf-3720-printer-driver-download-and-latest-update-guide/"><u>Free Epson WF 3720 Printer Driver Download & Latest Update Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-omzetting-van-ogv-naar-webm-efficient-en-eenvoudig-met-movavi/"><u>Gratis Omzetting Van OGV Naar Webm - Efficiënt en Eenvoudig Met Movavi</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-tecno-spark-10-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Tecno Spark 10 5G Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-v30-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo V30 and Browser | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-lava-blaze-pro-5g-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Lava Blaze Pro 5G</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-x50i-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor X50i to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlocking-digital-media-compreenhensive-srt-to-other-guidebook/"><u>Unlocking Digital Media Compreenhensive SRT-to-Other Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-turning-viewers-into-vendors-mastery-of-youtube-income-streams/"><u>[New] In 2024, Turning Viewers Into Vendors Mastery of YouTube Income Streams</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unleash-productivity-learn-to-screen-record-on-mac-using-just-keys-for-2024/"><u>[New] Unleash Productivity Learn to Screen Record on Mac Using Just Keys for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-premier-earnings-prodigy-on-youtube/"><u>[Updated] 2024 Approved Premier Earnings Prodigy on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway-for-2024/"><u>[Updated] Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-film-lovers-answers-repository/"><u>2024 Approved Film Lovers' Answers Repository</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/deep-dive-review-how-the-two-trees-sk1-processor-delivers-high-speed-efficiency-with-open-source-advantage/"><u>Deep Dive Review: How the Two Trees SK1 Processor Delivers High-Speed Efficiency with Open Source Advantage</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/efficient-video-production-tips-embracing-free-luts-in-obs-workflow-for-2024/"><u>Efficient Video Production Tips Embracing Free LUTs in OBS Workflow for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-youtubes-potential-the-25-step-guide-for-2024/"><u>Unlocking YouTube's Potential The 25-Step Guide for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-11-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone 11? How to Fix</u></a></li>
 </ul></div>
 

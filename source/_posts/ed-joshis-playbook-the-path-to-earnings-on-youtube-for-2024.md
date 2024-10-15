@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Joshi's Playbook  The Path to Earnings on Youtube for 2024\""
-date: 2024-10-03T06:44:48.076Z
-updated: 2024-10-09T07:33:55.884Z
+date: 2024-10-10T17:27:19.069Z
+updated: 2024-10-15T17:47:07.222Z
 tags:
   - ai video
   - ai youtube
@@ -71,13 +71,6 @@ Want to know Sourav Joshi's income from YouTube? He’s known to earn $30,000 to
 
 Sourav receives 320-350 million views monthly on his two YouTube videos that helped him elevate his net worth.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Sourav Joshi YouTube Stats
 
 | Monthly Earnings    | Rs. 35-50 lakh, $30,000 to $45,000                                |
@@ -87,6 +80,13 @@ Sourav receives 320-350 million views monthly on his two YouTube videos that hel
 | Subscribers         | Sourav Joshi Vlogs - 17.2MSourav Joshi Arts - 3.75M               |
 | Video Views         | Sourav Joshi Vlogs - 6,378,282,781Sourav Joshi Arts - 177,342,864 |
 | Last 30-Day Views   | Sourav Joshi Vlogs - 316.365M                                     |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How Famous Sourav Joshi is?
 
@@ -105,6 +105,13 @@ The reasons for his success and popularity are:
 ### Exclusive Personality
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
@@ -131,19 +138,6 @@ His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 In this 8-minute video clip, you can see him draw hair with absolute perfection, making the final product look 100% realistic.
 
 ![golgappa challenge](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 During the lockdown, Sourav vlogs got massive popularity. One such vlog was “Golgappa CHALLENGE WITH PIYUSH.”
 
@@ -187,6 +181,13 @@ In the duration settings, you can adjust the video duration. If there’s need f
 
 ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
 ##### Step5 See Advance Editing Option
@@ -204,10 +205,10 @@ _Adjustment of video tone_
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Color correction of the video_
@@ -229,13 +230,6 @@ The software comes with a vast library packed with stunning effects, elements, t
 _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Find “effects” on the top menu, click, and choose from the list.
 
@@ -261,7 +255,21 @@ Using various video clips in a single video? Use transitions, located on the top
 
 ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Wrap Up
 
@@ -359,13 +367,6 @@ As an artist, Sourav has created some stunning portraits of popular people. But 
 
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 
 [How I Draw Hairs | Step by step](https://www.youtube.com/watch?v=q4-VDO%5FYPjQ)
@@ -373,13 +374,6 @@ His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 In this 8-minute video clip, you can see him draw hair with absolute perfection, making the final product look 100% realistic.
 
 ![golgappa challenge](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 During the lockdown, Sourav vlogs got massive popularity. One such vlog was “Golgappa CHALLENGE WITH PIYUSH.”
 
@@ -404,13 +398,6 @@ A fun 11-minute video requires a lot of efforts, including top-tier video editin
 ##### Step1 Import your Footage
 
 ![import footage](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The first step is to click on “import” to access the folder where you can browse the video clips you need to edit.
 
@@ -442,6 +429,19 @@ _Motion effects_
 
 ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
@@ -466,6 +466,13 @@ _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Find “effects” on the top menu, click, and choose from the list.
 
 _Stock Video_
@@ -489,13 +496,6 @@ Using various video clips in a single video? Use transitions, located on the top
 ##### Step7 Save and Export your Footage
 
 ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
@@ -532,20 +532,21 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-step-by-step-strategy-for-profiting-from-every-youtube-short-video/"><u>[New] 2024 Approved Step-by-Step Strategy for Profiting From Every YouTube Short Video</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-streamer-profitability-analysis-and-verification/"><u>[New] 2024 Approved Streamer Profitability Analysis and Verification</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-streamlining-youtube-sharing-with-google-account-accessibility/"><u>[New] 2024 Approved Streamlining YouTube Sharing with Google Account Accessibility</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-top-24-hours-watchers-youtubes-most-popular-videos-1-10/"><u>[New] 2024 Approved Top 24 Hours Watchers YouTube’s Most Popular Videos #1-#10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-top-hashes-boosting-youtube-revenue-6k-milestone/"><u>[New] 2024 Approved Top Hashes Boosting YouTube Revenue $6K Milestone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-understanding-the-dynamics-behind-youtube-video-rankings/"><u>[New] 2024 Approved Understanding the Dynamics Behind YouTube Video Rankings</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-obs-and-zoom-integration-your-quick-pathway/"><u>[Updated] OBS and Zoom Integration Your Quick Pathway</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ace-guide-to-constructing-virtual-classroom-headlines/"><u>Ace Guide to Constructing Virtual Classroom Headlines</u></a></li>
-<li><a href="https://media-tips.techidaily.com/comprehensive-steps-to-resolve-airplay-connectivity-problems-on-your-ios-and-macos-gadgets/"><u>Comprehensive Steps to Resolve AirPlay Connectivity Problems on Your iOS and macOS Gadgets</u></a></li>
-<li><a href="https://win-answers.techidaily.com/getting-your-games-volume-back-troubleshooting-roblox-sound-issues-on-windows-11-and-10/"><u>Getting Your Game's Volume Back: Troubleshooting Roblox Sound Issues on Windows 11 & 10</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-share-mac-to-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>How to Screen Share Mac to Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-phantom-v-fold-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Tecno Phantom V Fold Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-best-practices-choosing-youtubes-most-popular-video-formats/"><u>In 2024, Best Practices Choosing YouTube's Most Popular Video Formats</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/solved-move-from-realme-11-proplus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Realme 11 Pro+ to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-social-spectacle-10-tweets-to-watch/"><u>The Social Spectacle 10 Tweets To Watch</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-make-a-creative-split-screen-video-for-youtube-for-2024/"><u>[New] How to Make a Creative Split-Screen Video for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-video-thumbnail-personalization-on-youtube/"><u>[New] In 2024, Mastering Video Thumbnail Personalization on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-essential-list-of-8-authentic-youtube-boosters/"><u>[New] In 2024, The Essential List of 8 Authentic YouTube Boosters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-transform-your-twitter-experience-with-fresh-tailored-video-previews/"><u>[New] Transform Your Twitter Experience with Fresh, Tailored Video Previews</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-evaluating-the-value-of-sns-hdr-in-a-crowded-market/"><u>[Updated] In 2024, Evaluating the Value of SNS HDR in a Crowded Market</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-soundwaves-flow-into-imovie-effortlessly/"><u>[Updated] In 2024, YouTube Soundwaves Flow Into iMovie Effortlessly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stepwise-strategies-to-perfect-youtube-trailers-by-filmora/"><u>[Updated] Stepwise Strategies to Perfect YouTube Trailers by Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-choosing-a-premium-portable-vlog-camera/"><u>[Updated] The Ultimate Guide to Choosing a Premium Portable Vlog Camera</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-insights-the-highest-rated-vr-games/"><u>2024 Approved Exclusive Insights The Highest-Rated VR Games</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>2024 Approved Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://windows11.techidaily.com/cutting-edge-tips-for-individualized-pattern-security-on-windows/"><u>Cutting-Edge Tips for Individualized Pattern Security on Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-xr-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone XR without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-cyber-frontiers-collide-a-deep-dive-into-meta-and-omniverse/"><u>In 2024, Cyber Frontiers Collide A Deep-Dive Into Meta & Omniverse</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726029212401-nicozon/"><u>Nicozon ビデオ保存に関する質問: 新しい保存方式への適応</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/seamlessly-share-videos-on-mstream-services-for-2024/"><u>Seamlessly Share Videos on MStream Services for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-cross-platform-use-install-and-play-android-apps-on-windows-10/"><u>Unlocking Cross-Platform Use: Install and Play Android Apps on Windows 10</u></a></li>
 </ul></div>
 

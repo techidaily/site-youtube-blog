@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimizing Self-Filmed Content on YouTube\""
-date: 2024-10-05T09:18:31.164Z
-updated: 2024-10-08T19:34:46.058Z
+date: 2024-10-13T16:02:32.966Z
+updated: 2024-10-15T16:41:19.599Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -64,13 +64,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -87,10 +80,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -117,6 +110,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -126,10 +126,10 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,16 +153,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unleash-potential-with-strategic-use-of-snapkit-features/"><u>[New] 2024 Approved Unleash Potential with Strategic Use of SnapKit Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/irect-transfer-solution-youtube-content-on-dailymotion-now-for-2024/"><u>[New] Direct Transfer Solution YouTube Content on Dailymotion Now for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-elevate-your-videos-impact-with-customizable-youtube-thumbnails/"><u>[New] In 2024, Elevate Your Video's Impact with Customizable YouTube Thumbnails</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-nocostcam-the-infinite-gaming-screen-record-tool/"><u>[New] In 2024, NoCostCam The Infinite Gaming Screen Record Tool</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-step-by-step-for-classic-film-aesthetics/"><u>[Updated] 2024 Approved Step-by-Step for Classic Film Aesthetics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-guide-the-ultimate-list-of-video-converters/"><u>[Updated] In 2024, Guide The Ultimate List of Video Converters</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-ranking-the-ultimate-10-free-online-subtitle-makers-srt/"><u>2024 Approved Ranking the Ultimate 10 Free Online Subtitle Makers (Srt)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ting-viewers-to-patrons-a-vloggers-guide-to-income-for-2024/"><u>Elevating Viewers to Patrons A Vlogger's Guide to Income for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-live-streamer-audience-metrics/"><u>In 2024, Live Streamer Audience Metrics</u></a></li>
-<li><a href="https://app-tips.techidaily.com/the-definitive-guide-to-ai-watermarking-solutions-revealed-on-zdnet/"><u>The Definitive Guide to AI Watermarking Solutions - Revealed on ZDNet</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-economic-guide-to-capturing-virtual-learning-spaces-for-2024/"><u>[New] Economic Guide to Capturing Virtual Learning Spaces for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-breaking-personal-barriers-in-yt-content-creation/"><u>[New] In 2024, Breaking Personal Barriers in YT Content Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-examining-the-financial-success-strategies-of-t-series-on-youtube/"><u>[Updated] 2024 Approved Examining the Financial Success Strategies of T-Series on YouTube</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-breaking-down-average-podcaster-salary/"><u>[Updated] Breaking Down Average Podcaster Salary</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-growth-in-30-minutes-viral-hashtag-insights-for-2024/"><u>[Updated] Channel Growth in 30 Minutes Viral Hashtag Insights for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-eras-endwatchers-top-youtube-viewership/"><u>[Updated] Era's Endwatchers Top YouTube Viewership</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[Updated] In 2024, Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-navigating-through-the-10-leading-countdown-clock-apps-for-your-big-day-androidios/"><u>[Updated] In 2024, Navigating Through the 10 Leading Countdown Clock Apps for Your Big Day (Android/iOS)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube/"><u>[Updated] In 2024, The Content Dilemma Deciding on the Best Platform - IGTV or YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-framing-youtube-content-for-free-for-2024/"><u>[Updated] Step-By-Step Guide to Framing YouTube Content for Free for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-taking-your-footage-up-a-notch-advanced-techniques-for-360-videos-on-youtube-for-2024/"><u>[Updated] Taking Your Footage Up a Notch Advanced Techniques for 360° Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/el-surge-strategy-using-youtube-outros-for-rapid-expansion-for-2024/"><u>Channel Surge Strategy Using YouTube Outros for Rapid Expansion for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/creating-characters-crafting-chronicles-gpts-sixfold-strategy/"><u>Creating Characters, Crafting Chronicles: GPT's Sixfold Strategy</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-xiaomi-14-pro-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Xiaomi 14 Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-a78-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Oppo A78 5G</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mellow-mixdowns-lowlighting-with-ease-in-garageband/"><u>Mellow Mixdowns Lowlighting with Ease in Garageband</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/enefits-of-tubebuddy-manage-your-youtube-channel-more-easily/"><u>The Benefits of TubeBuddy | Manage Your YouTube Channel More Easily</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nails-that-attract-techniques-for-youtube-image-resizing/"><u>Thumbnails That Attract Techniques for YouTube Image Resizing</u></a></li>
 </ul></div>
 

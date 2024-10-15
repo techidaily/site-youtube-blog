@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unleashing YouTube Potential  The Best Shortcuts to Higher Views\""
-date: 2024-09-14T18:44:31.948Z
-updated: 2024-09-17T16:52:37.284Z
+date: 2024-10-14T18:43:23.526Z
+updated: 2024-10-15T17:02:06.014Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -45,6 +52,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -64,6 +78,13 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -85,13 +106,6 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -117,13 +131,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -148,13 +155,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -162,6 +162,13 @@ Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorial
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -184,5 +191,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[New] 2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-find-my-playlist-on-youtube/"><u>[New] 2024 Approved How to Find My Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/esthetic-ambitions-launching-a-youtube-channel-for-makeup-maven/"><u>[New] Aesthetic Ambitions Launching a YouTube Channel for Makeup Maven</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-10plus-creative-youtubes-channel-names-for-aspiring-vloggers-no-more-than-156-characters/"><u>[New] In 2024, Top 10+ Creative YouTubes Channel Names for Aspiring Vloggers (No More than 156 Characters)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-list-free-best-ios-video-editor-tools/"><u>[New] Ultimate List Free, Best iOS Video Editor Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-is-youtubes-monetization-routine-in-2024/"><u>[Updated] Is YouTube’s Monetization Routine, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamlining-youtube-sharing-with-google-account-accessibility/"><u>[Updated] Streamlining YouTube Sharing with Google Account Accessibility</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-advanced-mac-screen-plus-sound-capturer-extraordinaire/"><u>2024 Approved Advanced Mac Screen + Sound Capturer Extraordinaire</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-skyrocketing-sales-how-ad-revenue-transforms-youtube-videos/"><u>2024 Approved Skyrocketing Sales How Ad Revenue Transforms YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-guide-to-the-best-10-video-saving-devices/"><u>2024 Approved Ultimate Guide to the Best 10 Video Saving Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-video-earnings-explored-in-depth-look-at-dm-and-yo/"><u>2024 Approved Video Earnings Explored In-Depth Look at Dm & Yo</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/capturing-gaming-moments-look-beyond-xboxs-game-bar/"><u>Capturing Gaming Moments Look Beyond Xbox's Game Bar</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/explore-the-abyss-in-dying-light-an-immersive-co-op-and-parkour-survival-quest/"><u>Explore the Abyss in Dying Light: An Immersive Co-Op and Parkour Survival Quest</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-realme-c67-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Realme C67 5G?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-global-earning-creator/"><u>In 2024, The Ultimate Global Earning Creator</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-iphone-13-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your iPhone 13 on MetroPCS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ase-viewership-fairly-insights-for-video-marketers-for-2024/"><u>Increase Viewership Fairly Insights for Video Marketers for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-to-understanding-and-managing-cdrcda-files-learn-how-to-play-and-convert/"><u>Ultimate Guide to Understanding and Managing .cdr/.cda Files - Learn How to Play & Convert</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/standing-youtubes-earnings-structure/"><u>Understanding YouTube's Earnings Structure</u></a></li>
+</ul></div>
 

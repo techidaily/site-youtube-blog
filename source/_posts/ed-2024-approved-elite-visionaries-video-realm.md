@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elite Visionaries  Video Realm\""
-date: 2024-10-02T01:03:56.790Z
-updated: 2024-10-09T04:43:09.864Z
+date: 2024-10-11T19:21:12.216Z
+updated: 2024-10-15T18:02:34.656Z
 tags:
   - ai video
   - ai youtube
@@ -65,26 +65,26 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -93,6 +93,13 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -104,13 +111,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -120,10 +120,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -149,17 +149,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[New] In 2024, Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-proven-steps-for-effortless-creation-of-youtube-shorts-credits/"><u>[New] In 2024, Proven Steps for Effortless Creation of YouTube Shorts Credits</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-earn-extra-bucks-maximizing-youtubes-mobile-revenue-opportunities-for-2024/"><u>[Updated] Earn Extra Bucks Maximizing YouTube's Mobile Revenue Opportunities for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-building-brand-persona-writing-killer-bios-for-facebook-profiles/"><u>[Updated] In 2024, Building Brand Persona Writing Killer Bios for Facebook Profiles</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-captivating-audiences-effective-tiktok-promotions-and-advertising/"><u>[Updated] In 2024, Captivating Audiences Effective TikTok Promotions and Advertising</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/dll-not-found-microsoft-c-runtime-error/"><u>DLL Not Found: Microsoft C Runtime Error</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-missing-display-settings-error-with-nvidia-control-panel/"><u>Fixing Missing Display Settings Error with Nvidia Control Panel</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-understanding-the-capacity-for-storing-videos-on-large-scale-drives-64128gb/"><u>In 2024, Understanding the Capacity for Storing Videos on Large-Scale Drives (64/128GB)</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/opengl-error-flagged-by-tdr-now-safe-with-nvidia/"><u>OpenGL Error Flagged by TDR — Now Safe with NVIDIA</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/recordwise-gettingmaximumoutofyourcam-for-2024/"><u>RecordWise GettingMaximumOutOfYourCam for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solving-blue-tint-issues-on-screens-discover-these-8-remedies/"><u>Solving Blue Tint Issues on Screens - Discover These 8 Remedies</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/easure-hunt-accessing-previously-deleted-content-for-2024/"><u>YT Treasure Hunt Accessing Previously Deleted Content for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-diy-iphone-photography-learn-to-smudge-images-on-no-budget/"><u>[New] 2024 Approved DIY iPhone Photography Learn to Smudge Images on No Budget</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-7-creative-thumbnails-free-tools-for-youtube/"><u>[New] In 2024, 7 Creative Thumbnails Free Tools for YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2-ways-to-fade-audio-in-ableton-for-2024/"><u>[Updated] 2 Ways to Fade Audio in Ableton for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-your-marketing-game-the-top-15-social-media-analyzers-to-increase-e-commerce-for-2024/"><u>[Updated] Enhance Your Marketing Game The Top 15 Social Media Analyzers to Increase E-Commerce for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-vocal-modification-devices-for-digital-creators-for-2024/"><u>[Updated] Top Vocal Modification Devices for Digital Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-video-potential-youtube-to-igtv-for-2024/"><u>[Updated] Unlocking Video Potential YouTube to IGTV for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-xiaomi-redmi-note-12-proplus-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Xiaomi Redmi Note 12 Pro+ 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-fix-the-apple-iphone-15-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix the Apple iPhone 15 GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-unboxing-expert-tips-and-tricks/"><u>In 2024, Mastering Unboxing Expert Tips and Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastery-in-migrating-youtube-videos-to-igtv-platform/"><u>In 2024, Mastery in Migrating YouTube Videos to IGTV Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egies-for-elevating-your-content-with-featured-channels-on-youtube-for-2024/"><u>Strategies for Elevating Your Content with Featured Channels on YouTube for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Personalize Your Youtube Watch Experience with Alerts & Notes"
-date: 2024-09-12T18:39:23.046Z
-updated: 2024-09-17T18:32:10.057Z
+date: 2024-10-11T17:52:05.351Z
+updated: 2024-10-15T16:56:00.939Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-learn-to-leap-over-content-on-tiktok-with-style/"><u>[New] 2024 Approved Learn to Leap Over Content on TikTok with Style</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-spiritual-stretching-youtubes-best-yoga-content-crews/"><u>[Updated] In 2024, Spiritual Stretching – YouTube’s Best Yoga Content Crews</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-screenshots-iphoneipad-video-recordings-explained-for-2024/"><u>[Updated] The Art of Screenshots IPhone/iPad Video Recordings Explained for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-beginners-roadmap-to-harnessing-live-activities-on-iphone-ios-16/"><u>A Beginner's Roadmap to Harnessing Live Activities on iPhone (iOS 16)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/complete-analysis-of-theta-ss-advanced-tech/"><u>Complete Analysis of Theta S's Advanced Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-why-moto-g-power-stands-out-with-its-incredible-battery-life/"><u>Explore Why Moto G Power Stands Out with Its Incredible Battery Life</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-location-on-facebook-dating-for-your-infinix-note-30-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-from-apple-iphone-15-plus-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled From Apple iPhone 15 Plus? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/jumpstart-your-pc-with-hyper-v-on-windows-11/"><u>Jumpstart Your PC with Hyper-V on Windows 11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-these-6-prevalent-iphone-13-glitches-expert-fixing-guides-inside/"><u>Overcome These 6 Prevalent iPhone 13 Glitches - Expert Fixing Guides Inside</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-successful-video-ventures-through-team-choices-for-2024/"><u>Securing Successful Video Ventures Through Team Choices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-creative-potential-with-these-top-9-free-editors-for-2024/"><u>Unlock Creative Potential with These Top 9 Free Editors for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/unveiling-a-new-era-with-sony-xperia-xz-premium-review/"><u>Unveiling a New Era with Sony - Xperia XZ Premium Review</u></a></li>
+</ul></div>
 

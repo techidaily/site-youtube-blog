@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Upload Shorts Video on YouTube, In 2024"
-date: 2024-09-16T16:47:58.200Z
-updated: 2024-09-17T17:05:48.074Z
+date: 2024-10-10T19:00:11.911Z
+updated: 2024-10-15T16:14:35.953Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -95,6 +102,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
@@ -107,6 +121,13 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -116,13 +137,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -147,10 +161,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -174,5 +188,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-youtube-endings-that-stand-out-ranked-for-2024/"><u>[New] Free YouTube Endings That Stand Out - Ranked for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uel-the-fire-top-videos-that-inspire-audiences/"><u>[New] Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-orderly-quest-for-veiled-youtube-vaults/"><u>[Updated] 2024 Approved The Orderly Quest for Veiled YouTube Vaults</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-hash-tags-skyrocketing-to-6-figure-views-on-youtube/"><u>[Updated] 2024 Approved Top Hash Tags Skyrocketing to 6-Figure Views on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-clear-up-audio-in-youtube-a-step-by-step-guide-for-2024/"><u>[Updated] Clear Up Audio in YouTube A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-getting-started-with-stylish-mac-made-youtube-vids/"><u>[Updated] Getting Started with Stylish Mac-Made YouTube Vids</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-efficient-strategies-to-log-facetime-discussions/"><u>[Updated] In 2024, Efficient Strategies to Log FaceTime Discussions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-filmmakers-companion-filmora-for-youtube-trailers/"><u>[Updated] In 2024, Filmmaker's Companion Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-smart-8-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Smart 8 Pro? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effective-techniques-for-merging-pie-charts-in-excel-a-step-by-step-guide/"><u>Effective Techniques for Merging Pie Charts in Excel: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-rated-no-cost-dvd-duplication-tools-for-windows-7-users/"><u>Top Rated No-Cost DVD Duplication Tools for Windows 7 Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unleash-the-potential-customizing-your-youtube-channel-url-for-2024/"><u>Unleash the Potential Customizing Your YouTube Channel Url for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/45809538-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>Your Treasure Trove of Free Marketing 50+ YouTube Ads Ready to Go</u></a></li>
+</ul></div>
 

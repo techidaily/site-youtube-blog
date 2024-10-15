@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Affordable Art of YouTube Intros/Ends"
-date: 2024-09-13T17:19:26.179Z
-updated: 2024-09-17T16:34:32.644Z
+date: 2024-10-10T17:29:36.076Z
+updated: 2024-10-15T16:35:27.740Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-starlight-strategies-dos-and-donts-for-perfect-nightscape-portraits/"><u>[New] 2024 Approved Starlight Strategies Do's & Don'ts for Perfect Nightscape Portraits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssential-insights-for-integrating-hashtags-into-game-focused-yt-content-for-2024/"><u>[New] Essential Insights for Integrating Hashtags Into Game-Focused YT Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-caption-implementation-essentials/"><u>[New] In 2024, YouTube Caption Implementation Essentials</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-best-toy-drones-for-kids/"><u>[New] The Ultimate Guide to Best Toy Drones for Kids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-no-charge-frame-by-frame-youtube-tutorial/"><u>[New] The Ultimate No-Charge, Frame-by-Frame YouTube Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/orlds-best-short-videos-download-now-free/"><u>[New] World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-charting-the-undisclosed-territories-of-youtube-videos/"><u>[Updated] Charting the Undisclosed Territories of YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-social-media-marketing-get-more-viewers-with-youtube/"><u>[Updated] In 2024, Social Media Marketing Get More Viewers with YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-securing-streams-of-cash-from-content-creation-for-2024/"><u>[Updated] Securing Streams of Cash From Content Creation for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-writers-almanac-crafting-compelling-biographies-on-facebook/"><u>[Updated] The Writer's Almanac Crafting Compelling Biographies on Facebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-microsoft-surface-keyboard-evaluation-premium-quality-insights/"><u>Comprehensive Microsoft Surface Keyboard Evaluation: Premium Quality Insights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-infinix-hot-30i-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Infinix Hot 30i Phone Screen?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/precision-in-photos-iphone-apps-for-accurate-cropping/"><u>Precision in Photos IPhone Apps for Accurate Cropping</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-vivo-v29-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Vivo V29 Device</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/troubleshooting-and-fixing-asus-laptop-touchpad-issues-in-windows-11-and-10/"><u>Troubleshooting and Fixing ASUS Laptop Touchpad Issues in Windows 11 & 10</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unlock-free-downloads-of-asus-atk0110-acpi-bios-drivers-for-smooth-operation/"><u>Unlock Free Downloads of ASUS ATK0110 Acpi BIOS Drivers for Smooth Operation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-revenue-demystified/"><u>YouTube Revenue Demystified</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube Shortcuts You Should Know"
-date: 2024-09-19T18:05:38.042Z
-updated: 2024-09-22T19:02:08.921Z
+date: 2024-10-11T18:47:09.304Z
+updated: 2024-10-15T18:48:05.342Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,13 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -97,10 +104,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -141,13 +148,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -156,13 +156,26 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -184,5 +197,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/1716069959359-new-2024-approved-capture-your-screen-in-a-flash-free-no-hassle/"><u>[New] 2024 Approved Capture Your Screen in a Flash - Free, No Hassle!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-essential-rotators-playbook-for-youtube-video-spinning/"><u>[New] The Essential Rotator's Playbook for YouTube Video Spinning</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-dailymotion-vs-youtube-who-earns-more-from-video-content/"><u>[Updated] Dailymotion vs YouTube Who Earns More From Video Content?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-insiders-manual-posting-youtube-videos-on-yourfb-page/"><u>[Updated] The Insider's Manual Posting YouTube Videos on YourFB Page</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-path-to-youtube-prominence-effective-tactics-unveiled-for-2024/"><u>[Updated] Your Path to YouTube Prominence Effective Tactics Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>2024 Approved Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-snappy-vids-guide-essential-info/"><u>2024 Approved Snappy Vids Guide Essential Info</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-motorola-moto-g13-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diversify-referrals-tactics-for-effective-youtube-backlinks/"><u>Diversify Referrals Tactics for Effective YouTube Backlinks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-download-guide-thunderbolt-drivers-for-your-windows-computer/"><u>Easy Download Guide: Thunderbolt Drivers for Your Window's Computer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tream-100-cutting-edge-learning-yt-for-2024/"><u>Edu-Stream 100 Cutting-Edge Learning YT for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/getting-airplay-back-on-track-a-comprehensive-fix-when-it-fails/"><u>Getting AirPlay Back on Track: A Comprehensive Fix when It Fails</u></a></li>
+<li><a href="https://windows11.techidaily.com/reactivate-windows-audio-despite-disabled-settings/"><u>Reactivate Windows Audio Despite Disabled Settings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/step-by-step-how-to-convert-and-download-vids-from-social-media-to-mp3s-for-2024/"><u>Step-by-Step How to Convert and Download Vids From Social Media to MP3s for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/conomics-of-youtube-ad-revenues-per-1000-views/"><u>The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-oneplus-ace-2-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your OnePlus Ace 2 Phone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nary-filmmaker-blending-clips-and-chords-for-2024/"><u>Visionary Filmmaker Blending Clips & Chords for 2024</u></a></li>
+</ul></div>
 

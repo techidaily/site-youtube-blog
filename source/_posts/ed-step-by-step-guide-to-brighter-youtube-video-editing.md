@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Brighter YouTube Video Editing\""
-date: 2024-09-10T18:17:10.314Z
-updated: 2024-09-17T17:03:09.163Z
+date: 2024-10-12T18:54:24.195Z
+updated: 2024-10-15T17:30:38.029Z
 tags:
   - ai video
   - ai youtube
@@ -66,26 +66,46 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -102,10 +122,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -115,19 +135,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,5 +155,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/hannel-growth-essential-steps-for-youtube-backlink-creation/"><u>[New] Channel Growth Essential Steps for YouTube Backlink Creation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-untapped-realities-of-instagram-story-watchers/"><u>[New] Untapped Realities of Instagram Story Watchers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-2023s-premier-movie-options-beyond-the-top-selections/"><u>[Updated] In 2024, 2023'S Premier Movie Options Beyond The Top Selections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-method-for-removing-downloaded-youtube-videos/"><u>[Updated] In 2024, Method for Removing Downloaded YouTube Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-invent-iconic-images-through-giphy/"><u>[Updated] Invent Iconic Images Through Giphy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-enhancing-video-clarity-on-android-comprehensive-steps/"><u>2024 Approved Enhancing Video Clarity on Android – Comprehensive Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-flashglimpse-crafter/"><u>2024 Approved FlashGlimpse Crafter</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-leading-6-platforms-for-profitable-businesses-online/"><u>2024 Approved Leading 6 Platforms for Profitable Businesses Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-setup-and-strategies-for-youtube-gamers-live-sessions/"><u>2024 Approved Setup and Strategies for YouTube Gamers' Live Sessions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/car-enhancement-strategies-with-chatbot-expertise/"><u>Car Enhancement Strategies with Chatbot Expertise</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/do-elite-ai-generated-text-solutions-offer-value-for-money/"><u>Do Elite AI Generated Text Solutions Offer Value for Money?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-honor-x50-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Honor X50 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hing-your-sports-network-from-a-mac-desktop-for-2024/"><u>Launching Your Sports Network From a Mac Desktop for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ultimate-guide-to-choosing-your-perfect-airtag-wallet-in-202e-expert-opinions-and-ratings-zdnet/"><u>Ultimate Guide to Choosing Your Perfect AirTag Wallet in 202E: Expert Opinions & Ratings | ZDNet</u></a></li>
+</ul></div>
 

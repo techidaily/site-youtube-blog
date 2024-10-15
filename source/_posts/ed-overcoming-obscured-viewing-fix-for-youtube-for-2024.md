@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Overcoming Obscured Viewing  Fix for Youtube for 2024\""
-date: 2024-09-12T16:14:45.429Z
-updated: 2024-09-17T17:45:06.047Z
+date: 2024-10-11T18:32:39.614Z
+updated: 2024-10-15T16:02:13.245Z
 tags:
   - ai video
   - ai youtube
@@ -93,16 +93,16 @@ After launching the web browser (Google Chrome is used here for example), go to 
 
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click **Clear data** from the bottom-right corner to clear browsing caches.
 
@@ -115,19 +115,6 @@ Launch Google Chrome and go to the **Customize and control Google Chrome** menu,
 Turn off the switch for each of the installed extensions to check if the issue is fixed.
 
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
 
@@ -169,6 +156,13 @@ Click **Yes** on the **User Account Control** confirmation box, and in the **Com
 
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Try opening the YouTube video again and see if the issue is fixed
 
 **Solution 2: Update the Graphic Card Driver**
@@ -182,15 +176,22 @@ Expand the **Display adapters** tree on the **Device Manager** snap-in, and righ
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
 
@@ -215,10 +216,10 @@ Long-tap the YouTube app on your iOS device, and then tap **Remove App**, and th
 ![fix YouTube black screen on iPhone](https://images.wondershare.com/filmora/article-images/delete-youtube-from-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Go to **App Store** and download and install a fresh copy of YouTube, and see if the problem is resolved.
@@ -240,5 +241,23 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pictureforge-hub/"><u>[New] In 2024, PictureForge Hub</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ynthesizing-waterway-content-with-impact/"><u>[New] Synthesizing Waterway Content with Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-19-affordable-audio-extractors-to-get-youtube-music-on-your-device-for-2024/"><u>[New] Top 19 Affordable Audio Extractors to Get YouTube Music on Your Device for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-9-affordable-and-straightforward-video-editors-for-2024/"><u>[New] Top 9 Affordable & Straightforward Video Editors for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>[Updated] 2024 Approved Boosting Video Quality The Best Cameras for Vloggers' Dreams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ignite-interest-with-your-own-solo-podcast-series/"><u>[Updated] 2024 Approved Ignite Interest with Your Own Solo Podcast Series</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-unlocking-discords-full-capabilities-through-role-addition-for-2024/"><u>[Updated] Unlocking Discord's Full Capabilities Through Role Addition for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-pioneering-the-perfect-playlist-for-youtube-music-enthusiasts/"><u>2024 Approved Pioneering the Perfect Playlist for YouTube Music Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-essential-running-timepieces-a-curated-selection-for-enthusiasts/"><u>2024'S Essential Running Timepieces: A Curated Selection for Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/end-to-start-annoying-yourself-with-yt-playlist-upside-down/"><u>From End to Start Annoying Yourself with YT Playlist Upside-Down</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-optimize-video-quality-on-youtube-with-size-settings-for-2024/"><u>How to Optimize Video Quality on YouTube with Size Settings for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-developing-dynamic-instagram-feed-slides/"><u>In 2024, Developing Dynamic Instagram Feed Slides</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-hot-40i-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Hot 40i Device</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-how-to-remove-audio-from-video/"><u>New 2024 Approved How to Remove Audio From Video</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-non-functional-microphones-during-zoom-calls-on-windows-operating-systems-1110/"><u>Troubleshooting Guide: Resolving Non-Functional Microphones During Zoom Calls on Windows Operating Systems (11/10)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-v29e-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo V29e IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

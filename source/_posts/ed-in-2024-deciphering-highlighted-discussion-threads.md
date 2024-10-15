@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Deciphering Highlighted Discussion Threads"
-date: 2024-09-14T18:37:19.721Z
-updated: 2024-09-17T17:48:57.779Z
+date: 2024-10-14T19:07:42.662Z
+updated: 2024-10-15T17:37:14.871Z
 tags:
   - ai video
   - ai youtube
@@ -59,11 +59,25 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
@@ -86,20 +100,19 @@ Suppose you are a viewer who is going through the comments section of a video. I
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -154,10 +167,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -179,5 +192,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capturing-hulu-live-anywhere-a-practical-how-to-manual/"><u>[New] Capturing Hulu Live Anywhere - A Practical How-To Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ree-frameworks-amplify-your-youtube-vision-for-2024/"><u>[New] Free Frameworks Amplify Your YouTube Vision for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/treaming-giants-rivalry-facebook-vs-youtube-and-spaces/"><u>[New] Streaming Giants' Rivalry Facebook Vs. YouTube & Spaces</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ai-powered-youtube-monetization-strategies-2024-guidebook/"><u>[Updated] AI-Powered Youtube Monetization Strategies - 2024 Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-new-horizines-youtube-video-uploads-to-facebook-for-2024/"><u>[Updated] Navigating New Horizines YouTube Video Uploads to Facebook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-creme-de-la-creativite-youtube-subscriber-list-for-2024/"><u>[Updated] The Crème De La Créativité YouTube Subscriber List for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtubes-earning-potential-in-the-new-year/"><u>[Updated] Unlocking YouTube's Earning Potential in the New Year</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/all-about-apple-iphone-6s-plus-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About Apple iPhone 6s Plus Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-presence-in-video-platforms-via-short-films-for-2024/"><u>Growing Presence in Video Platforms via Short Films for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-bootloader-easily-by-drfone-android/"><u>How to Unlock Poco X5 Pro Bootloader Easily</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfect-picture-playback-selecting-the-top-8k-panels/"><u>In 2024, Perfect Picture Playback Selecting the Top 8K Panels</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/optimizing-your-flipbook-creation-for-seamless-mobile-experience-tips-and-tricks/"><u>Optimizing Your FlipBook Creation for Seamless Mobile Experience: Tips & Tricks</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-gaming-experience-with-hyperx-cloud-alpha-wireless-outstanding-battery-endurance-for-music-and-more-reviewed-by-pcmag/"><u>Ultimate Gaming Experience with HyperX Cloud Alpha Wireless: Outstanding Battery Endurance for Music and More, Reviewed by PCMag</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oneplus-nord-ce-3-lite-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from OnePlus Nord CE 3 Lite 5G? Here is How | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Guide to YouTube Comms Management\""
-date: 2024-09-21T19:58:21.393Z
-updated: 2024-09-22T20:47:10.288Z
+date: 2024-10-11T16:53:43.037Z
+updated: 2024-10-15T18:38:01.051Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,19 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +130,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +153,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +200,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-foremost-guide-to-youtube-equipment-for-rookies/"><u>[New] In 2024, Foremost Guide to YouTube Equipment for Rookies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ioneering-insights-into-asmr-video-content-for-2024/"><u>[New] Pioneering Insights Into ASMR Video Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-dance-dictates-selecting-perfect-audio-visuals/"><u>[Updated] 2024 Approved Dance Dictates Selecting Perfect Audio-Visuals</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-battle-for-bushido-next-level-titles-echoing-tsushis-spirit-for-2024/"><u>[Updated] Battle for Bushido Next-Level Titles Echoing Tsushi's Spirit for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-videos-that-vibe-a-novices-roadmap-on-a-mac-and-youtube/"><u>[Updated] In 2024, Videos That Vibe A Novice's Roadmap on a Mac and YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pushing-boundaries-in-mobile-game-mastery-kinemasters-reviewed-journey/"><u>[Updated] Pushing Boundaries in Mobile Game Mastery - KineMaster's Reviewed Journey</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-youtube-sounds-to-mp3-using-mac-for-2024/"><u>[Updated] Streamline YouTube Sounds to MP3 Using Mac for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamlined-approach-save-youtube-videos-for-2024/"><u>[Updated] Streamlined Approach Save YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-potential-of-your-mobile-content-for-youtube-wealth-for-2024/"><u>[Updated] Unlocking the Potential of Your Mobile Content for YouTube Wealth for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-video-potential-the-art-of-youtube-live-360-streaming-for-2024/"><u>[Updated] Unlocking Video Potential The Art of YouTube Live 360 Streaming for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtubes-profit-distribution-to-content-makers/"><u>2024 Approved YouTube's Profit Distribution to Content Makers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oppo-reno-10-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Oppo Reno 10 5G</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ce-visibility-top-9-thumbnail-design-tools-for-creators-for-2024/"><u>Enhance Visibility Top 9 Thumbnail Design Tools for Creators for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-ensure-complete-game-showcases-on-egs-digital-store/"><u>How to Ensure Complete Game Showcases on EG’s Digital Store</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-nokia-105-classic-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Nokia 105 Classic?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-teleport-your-gps-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-fiscal-footprint-of-the-mr-beast-empire/"><u>In 2024, Fiscal Footprint of the Mr. Beast Empire</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mavix-m9-gaming-chair-for-long-gaming-sessions/"><u>In-Depth Evaluation of the Mavix M9 Gaming Chair for Long Gaming Sessions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/prime-retailers-for-acquiring-new-or-used-mobile-phones/"><u>Prime Retailers for Acquiring New or Used Mobile Phones</u></a></li>
+</ul></div>
 

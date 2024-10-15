@@ -1,7 +1,7 @@
 ---
 title: "The Art of Inserting Descriptive Commentary in YouTube Videos"
-date: 2024-09-16T20:13:17.440Z
-updated: 2024-09-22T17:52:45.422Z
+date: 2024-10-14T16:55:27.424Z
+updated: 2024-10-15T17:59:16.135Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-easy-way-to-establish-collaborative-conversations-on-skype-regardless-of-your-operating-system/"><u>[New] 2024 Approved Easy Way to Establish Collaborative Conversations on Skype, Regardless of Your Operating System</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uick-paced-fortnite-visual-artistry-for-2024/"><u>[New] Quick-Paced Fortnite Visual Artistry for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nraveling-youtubes-platform-for-content-crafting-for-2024/"><u>[New] Unraveling YouTube’s Platform for Content Crafting for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlocking-the-secrets-to-counting-youtube-traffic-and-profits/"><u>[Updated] 2024 Approved Unlocking the Secrets to Counting YouTube Traffic and Profits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essentials-of-earning-on-youtube-latest-changes/"><u>[Updated] The Essentials of Earning on YouTube Latest Changes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-spoofing-success-the-path-to-parody-proficiency/"><u>2024 Approved Spoofing Success The Path to Parody Proficiency</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-stepwise-integration-technique-for-youtube-playlists-on-web/"><u>2024 Approved Stepwise Integration Technique for YouTube Playlists on Web</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-your-channels-selecting-prime-microphones-for-every-content-category/"><u>Elevate Your Channels Selecting Prime Microphones for Every Content Category</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-new-pc-up-and-running-free-usb-c-windows-11-drivers/"><u>Get Your New PC Up and Running: Free USB-C Windows 11 Drivers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-movavi-screen-recorder-11/"><u>In 2024, Movavi Screen Recorder 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-transferring-tv-episodes-downloading-youtube-content-ios-style/"><u>In 2024, Transferring TV Episodes Downloading YouTube Content iOS-Style</u></a></li>
+<li><a href="https://fox-place.techidaily.com/macos-support-does-an-equivalent-of-flipbuilder-exist-on-apples-os/"><u>MacOS Support: Does an Equivalent of FlipBuilder Exist on Apple's OS?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-sound-shifts-in-free-fire-for-2024/"><u>Mastering Sound Shifts in Free Fire for 2024</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/step-by-step-guide-removing-applications-from-your-kindle-fire-device/"><u>Step-by-Step Guide: Removing Applications From Your Kindle Fire Device</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-solutions-resolving-mp4-file-compatibility-in-powerdirector/"><u>Step-by-Step Solutions: Resolving MP4 File Compatibility in PowerDirector</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-free-video-editing-software-for-dummies-top-picks-for-easy-edits-for-2024/"><u>Updated Free Video Editing Software for Dummies Top Picks for Easy Edits for 2024</u></a></li>
+</ul></div>
 
