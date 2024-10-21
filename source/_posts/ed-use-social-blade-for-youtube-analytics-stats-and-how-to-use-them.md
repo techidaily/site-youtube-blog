@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Use Social Blade for YouTube Analytics - Stats & How to Use Them\""
-date: 2024-10-10T17:07:12.356Z
-updated: 2024-10-15T17:52:16.805Z
+date: 2024-10-13T23:04:26.861Z
+updated: 2024-10-20T23:30:22.515Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,10 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -80,16 +80,10 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Make Your Videos Stand Out with Powerful Video Editor
@@ -97,19 +91,19 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,17 +127,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/trategies-to-remove-youtube-trailers-and-clips/"><u>[New] Strategies to Remove YouTube Trailers and Clips</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-the-essentials-to-establish-a-singular-hashtag-on-tiktok/"><u>[Updated] 2024 Approved The Essentials to Establish a Singular Hashtag on TikTok</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-check-your-channels-revenue-flow/"><u>[Updated] Check Your Channel's Revenue Flow</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-budding-buyers-guide-monetization-platforms-for-novice-channels/"><u>[Updated] In 2024, Budding Buyers Guide Monetization Platforms for Novice Channels</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-from-idea-to-income-a-comprehensive-instagram-guide/"><u>[Updated] In 2024, From Idea to Income A Comprehensive Instagram Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mobile-mastery-secure-your-favorite-igtv-content-easily-for-2024/"><u>[Updated] Mobile Mastery Secure Your Favorite IGTV Content Easily for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-on-demand-video-text-transformers-prime-selections/"><u>[Updated] On-Demand Video-Text Transformers Prime Selections</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/best-manycam-alternatives-top-live-streaming-apps-and-online-cameras/"><u>Best ManyCam Alternatives: Top Live Streaming Apps and Online Cameras</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/blizzard-joins-microsoft-empire-discovering-the-role-of-ai-in-artistry-and-translation-on-our-latest-podcast/"><u>Blizzard Joins Microsoft Empire: Discovering the Role of AI in Artistry and Translation on Our Latest Podcast</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-iphone-6s-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On iPhone 6s How to Bypass?</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-audio-issues-resolving-lack-of-sound-from-pc-after-linking-it-to-display-and-television/"><u>Solving Audio Issues: Resolving Lack of Sound From PC After Linking It to Display & Television</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-razer-naga-software-a-step-by-step-guide-for-windows-users/"><u>Update Razer Naga Software: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-youtube-to-mp3-converters-free-download-onlinewinmac/"><u>[New] 2024 Approved Best YouTube to MP3 Converters Free Download [Online/Win/Mac]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-success-pushing-your-video-into-top-charts/"><u>[New] 2024 Approved Crafting Success Pushing Your Video Into Top Charts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-customizing-youtube-viewing-policies-for-your-content/"><u>[New] 2024 Approved Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>[New] 2024 Approved Cut the Clutter, Convert Videos Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-fullframe-alliance-how-to-choose-your-mcn-strategically/"><u>[New] 2024 Approved FullFrame Alliance How to Choose Your MCN Strategically</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-fast-thumbnail-design-for-valorants-highlighted-screenshots/"><u>[New] 2024 Approved Mastering Fast Thumbnail Design for Valorant's Highlighted Screenshots</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-insiders-secrets-of-screencastify-recording/"><u>2024 Approved The Insider’s Secrets of Screencastify Recording</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-motorola-moto-g14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-skills-post-fifty-milestone/"><u>Age-Defying Linguistic Skills Post-Fifty Milestone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-pitfalls-maintaining-youtube-thumbnail-quality/"><u>Avoid Pitfalls Maintaining YouTube Thumbnail Quality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/best-video-download-tools-for-streaming-f4v-content-across-pc-and-mac/"><u>Best Video Download Tools for Streaming F4V Content Across PC and Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/crafting-an-elite-home-computer-for-professional-4k-editing/"><u>Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-oppo-reno-11f-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/l-giga-viewers-worlds-favorite-youtube-stars/"><u>Global Giga-Viewers World's Favorite YouTube Stars</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-huawei-p60-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Huawei P60 Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-film-producer-yt-for-2024/"><u>Short Film Producer YT for 2024</u></a></li>
 </ul></div>
 

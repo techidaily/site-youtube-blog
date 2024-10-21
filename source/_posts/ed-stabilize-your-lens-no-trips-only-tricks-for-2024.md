@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Stabilize Your Lens  No Trips, Only Tricks for 2024\""
-date: 2024-09-15T16:08:26.004Z
-updated: 2024-09-17T17:54:05.930Z
+date: 2024-10-14T19:14:30.367Z
+updated: 2024-10-21T01:40:50.121Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
@@ -81,10 +88,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -96,10 +103,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -124,6 +131,19 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,5 +163,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-strategies-for-longer-use-of-gopro-power-source/"><u>[New] In 2024, Strategies for Longer Use of GoPro Power Source</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remier-microphone-picks-for-blogging-pros/"><u>[New] Premier Microphone Picks for Blogging Pros</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premiere-pro-mastering-full-screen-views/"><u>[New] Premiere Pro Mastering Full-Screen Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-media-makers-software-linux-edition/"><u>[Updated] 2024 Approved Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-swift-techniques-mastering-effective-double-exposure/"><u>[Updated] In 2024, Swift Techniques Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reduce-buffering-and-lag-turn-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Reduce Buffering & Lag - Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-profit-enabling-youtuber-earnings-via-mobile-devices-for-2024/"><u>[Updated] The Pathway to Profit Enabling YouTuber Earnings via Mobile Devices for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/asus-rog-phone-7-ultimate-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Asus ROG Phone 7 Ultimate ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/evaluating-the-benefits-of-upgrading-to-an-rtx-gpu/"><u>Evaluating The Benefits of Upgrading to an RTX GPU.</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-dynamic-voice-training-in-free-fire-games/"><u>In 2024, Dynamic Voice Training in Free Fire Games</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimize-windows-steam-streams-stopping-zero-rate-issues/"><u>Optimize Windows Steam Streams: Stopping Zero-Rate Issues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/h-integration-of-youtube-playlists-via-web-tech/"><u>Smooth Integration of YouTube Playlists via Web Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-efficient-workhorse-inside-the-robust-capabilities-of-the-fujitsu-scansnap-ix1600-office-scanner/"><u>The Efficient Workhorse: Inside the Robust Capabilities of the Fujitsu ScanSnap iX1600 Office Scanner</u></a></li>
+<li><a href="https://games-able.techidaily.com/turbocharge-your-play-upgrade-windows-fps-rate/"><u>Turbocharge Your Play: Upgrade Window's FPS Rate</u></a></li>
+</ul></div>
 

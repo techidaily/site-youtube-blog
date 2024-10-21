@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Which Platform Triumphs in Revenue Generation? Dailymotion Vs YouTube"
-date: 2024-10-09T16:38:53.523Z
-updated: 2024-10-15T19:38:39.956Z
+date: 2024-10-20T05:22:42.087Z
+updated: 2024-10-21T00:39:44.273Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ This article compares Dailymotion monetization to YouTube on privacy, audience, 
 
 ![dailymotion monetization vs youtube](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [YouTube](https://www.youtube.com/): What is it?
 
 A three-person team, Chad Hurley, Steve Chen, and Jawed Karim, founded YouTube in 2005\. Their goal is to create YouTube as a global platform for sharing videos. A huge $1.65 billion was paid by Google for buying YouTube. YouTube then became a more popular website with over two billion users every month.
@@ -80,6 +73,13 @@ YouTube allows you to upload 12-hour-long videos to increase your watch time. Yo
 
 There's something special about Dailymotion. The site provides YouTube videos, animated shorts, music, documentaries, and TV shows. Although Dailymotion has upload limits, its videos are still of high quality, up to 1080p. There is a vibrant community of creators looking to connect with their audiences as well. There were 545.3 million visits to Dailymotion in April 2023, making it a strong competitor. Depending on your taste and the content you're looking for, you can choose either.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. YouTube vs. Dailymotion Monetization: Unraveling the Key Differences
 
 ### YouTube and Dailymotion monetization features and opportunities
@@ -108,6 +108,13 @@ The Dailymotion Partner Program monetizes your videos. The least number of views
 
 ![choosing between dailymotion and youtube](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that you've seen a YouTube vs. Dailymotion comparison, you are leaning toward one. Let's dive into some key questions if you're still not sure ( you can use both platforms ):
 
 * Do you have a specific group in mind? It's important to think about who your audience is.
@@ -127,13 +134,6 @@ Let's take a look at a powerful tool to enhance your gaming experience. It's Won
 
 ![filmora wondershare](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-6.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
@@ -146,17 +146,38 @@ Filmora's video templates make it easy to create nice videos. With these templat
 
 ![filmora creative templates](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-7.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. [Advanced Audio Editing](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create engaging content, you must have great audio. With Filmora's audio tools, you can stretch, denoise, and duck audio to improve your videos. Having engaged viewers means you're more likely to generate income from ads and sales.
 
 ![filmora advanced audio editing](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-8.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3\. [Enhancing Your Videos with Video Effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Using Wondershare Filmora, you can transform your ordinary videos into something extraordinary. There are a variety of effects available, such as overlays, filters, and transitions. Filters allow you to change your videos' feel and appearance. With overlays, like glitch overlays, you can enhance your videos.
 
 ![filmora video effects](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-9.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4\. [Color Correction](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -174,16 +195,16 @@ If you put captions on your videos, more people will watch. Think of Filmora as 
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1\. Exploring YouTube and Dailymotion: Platforms for Creators
 
 ![dailymotion monetization vs youtube](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [YouTube](https://www.youtube.com/): What is it?
 
@@ -194,10 +215,10 @@ Lots of creators, like makeup artists and gamers, make money on YouTube. With th
 ![youtube: what is it](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### [Dailymotion](https://www.dailymotion.com/): What is it?
@@ -248,13 +269,6 @@ The Dailymotion Partner Program has made several French video creators extremely
 
 ![programs and options for dailymotion monetization](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Monetization Requirements and Earning Potential
 
 YouTube's YPP monetizes accounts with 1,000 subscribers and earns revenue through advertising. You'll get 55% of the revenue generated by the ads shown during, before, and after your videos. It is also possible to charge channel memberships. For every 1,000 views, the average YouTuber makes about $18.
@@ -278,6 +292,13 @@ YouTube is your best bet if you want organic search traffic, a wide audience, an
 
 Whatever you pick, remember to add captions to your videos. Transcription tools can help with that, making your content more accessible and engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Enhance Your Monetization Journey with Wondershare Filmora: A Video Editing Solution
 
 Let's take a look at a powerful tool to enhance your gaming experience. It's Wondershare Filmora. Creating engaging and valuable videos is easy with Wondershare Filmora. An attractive user interface, a media library, and many useful features make it a great choice. A video tool that turns content creators' vision into professional content. Filmora is perfect for YouTubers, filmmakers, and vloggers of all skill levels.
@@ -296,25 +317,11 @@ Filmora's video templates make it easy to create nice videos. With these templat
 
 ![filmora creative templates](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-7.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. [Advanced Audio Editing](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create engaging content, you must have great audio. With Filmora's audio tools, you can stretch, denoise, and duck audio to improve your videos. Having engaged viewers means you're more likely to generate income from ads and sales.
 
 ![filmora advanced audio editing](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-8.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3\. [Enhancing Your Videos with Video Effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -325,13 +332,6 @@ Using Wondershare Filmora, you can transform your ordinary videos into something
 #### 4\. [Color Correction](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Wondershare Filmora's color correction tool can make your videos much better. You can change the colors and mood of your videos with Filmora's color options. To make your videos look more professional, you can adjust their brightness or darkness. Using vibrant colors can help you earn more and draw in more customers.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -362,24 +362,24 @@ If you put captions on your videos, more people will watch. Think of Filmora as 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-journey-through-time-the-best-history-yt-channels-ranked-1-10/"><u>[New] 2024 Approved Journey Through Time The Best History YT Channels Ranked #1-10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-innovative-video-marketing-youtube-trailers-with-filmora/"><u>[New] In 2024, Innovative Video Marketing YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[New] In 2024, Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-cinematographers-journey-shooting-top-notch-youtube-content/"><u>[New] In 2024, The Cinematographer's Journey Shooting Top-Notch YouTube Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-potential-access-premium-sound-effects/"><u>[New] In 2024, Unleash Potential Access Premium Sound Effects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-orderly-path-to-youtubes-hidden-treasure-troves/"><u>[Updated] In 2024, Orderly Path to YouTube's Hidden Treasure Troves</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-legality-taking-content-offline/"><u>[Updated] YouTube Legality Taking Content Offline</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-vivo-y78t-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-your-essential-guide-to-mobile-asmr-sounds/"><u>2024 Approved Your Essential Guide to Mobile ASMR Sounds</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nstant-subscription-lead-to-higher-watch-time-for-2024/"><u>Can Instant Subscription Lead to Higher Watch Time for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/clip-groove-best-bgm-choices-for-todays-popular-yt-shorts/"><u>Clip Groove Best BGM Choices For Today's Popular YT Shorts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/essential-techniques-for-efficient-utilization-of-zooms-whiteboard-feature-for-2024/"><u>Essential Techniques for Efficient Utilization of Zoom's Whiteboard Feature for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-xiaomi-redmi-note-12-pro-4g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Xiaomi Redmi Note 12 Pro 4G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tart-your-channel-key-hashtags-for-6-figure-impact/"><u>Jumpstart Your Channel Key Hashtags for 6-Figure Impact</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/kostenloze-omzetting-3gp-in-flv-met-veilige-webtools-movavi/"><u>Kostenloze Omzetting 3GP in FLV Met Veilige Webtools - Movavi</u></a></li>
-<li><a href="https://driver-download.techidaily.com/maintain-and-improve-print-quality-by-updating-drivers-of-your-epson-wf-7620-in-windows-expert-advice/"><u>Maintain and Improve Print Quality by Updating Drivers of Your Epson WF-7620 in Windows - Expert Advice</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigate-the-excellent-world-of-top-vr-cycling-for-2024/"><u>Navigate the Excellent World of Top VR Cycling for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/six-effortless-steps-to-recalibrate-and-optimize-your-iphones-battery-life/"><u>Six Effortless Steps to Recalibrate and Optimize Your iPhone's Battery Life</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/winning-at-file-tracking-the-ultimate-guide-to-copying-windows-11-filesystem-trails-6-methods/"><u>Winning at File Tracking: The Ultimate Guide to Copying Windows 11 Filesystem Trails (6 Methods)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[New] 2024 Approved Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-how-to-get-free-views-on-youtube-2-easy-ways/"><u>[New] 2024 Approved How to Get Free Views on YouTube [2 Easy Ways]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-dominant-click-through-rates-in-youtube-advertising/"><u>[New] In 2024, Strategies for Dominant Click-Through Rates in YouTube Advertising</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-art-of-self-recording-improving-your-youtube-presence-for-2024/"><u>[New] The Art of Self-Recording Improving Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-twitchstars-engaging-on-snapchat/"><u>[New] Twitchstars Engaging on Snapchat</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ubiquitous-display-dynamics-choosing-a-media-company/"><u>[New] Ubiquitous Display Dynamics Choosing a Media Company</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-earnings-in-the-age-of-streaming-how-youtube-pays-creators/"><u>[Updated] Earnings in the Age of Streaming How YouTube Pays Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-overcome-artificial-watches-for-natural-views/"><u>[Updated] In 2024, Overcome Artificial Watches for Natural Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-indulge-with-top-youtube-movies-guides/"><u>[Updated] Indulge with Top YouTube Movies Guides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-simplify-your-video-sharing-with-our-youtube-upload-strategy/"><u>[Updated] Simplify Your Video Sharing with Our YouTube Upload Strategy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license-for-2024/"><u>[Updated] Skyrocketing View Figures by Sustaining YouTube's Creative Commons License for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-thoroughly-assessing-the-performance-of-theta-s-for-2024/"><u>[Updated] Thoroughly Assessing the Performance of Theta S for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>2024 Approved Twitter's Viral Spotlight Top 10 TikToks of the Week</u></a></li>
+<li><a href="https://win-forum.techidaily.com/detecting-suspicious-android-apps-a-guide-using-revouninstaller/"><u>Detecting Suspicious Android Apps: A Guide Using RevoUninstaller</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/1000-followers-on-youtube-with-agile-strategies-for-2024/"><u>Gain 1,000 Followers on YouTube with Agile Strategies for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/lever-le-defi-du-deploiement-meilleures-alternatives-a-wds-recommandees-pour-optimiser-votre-infrastructure-windows/"><u>Lever Le Défi Du Déploiement : Meilleures Alternatives À WDS Recommandées Pour Optimiser Votre Infrastructure Windows</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/make-movies-without-breaking-the-bank-10-essential-low-budget-tools-for-2024/"><u>Make Movies Without Breaking the Bank 10 Essential Low-Budget Tools for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/schlanke-anleitung-dvd-dateien-effizient-in-hochwertiges-mp4-konvertieren/"><u>Schlanke Anleitung: DVD-Dateien Effizient in Hochwertiges MP4 Konvertieren</u></a></li>
 </ul></div>
 

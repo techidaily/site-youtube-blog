@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Digital Artisans Gathering Haven\""
-date: 2024-10-14T19:19:25.650Z
-updated: 2024-10-15T18:38:51.862Z
+date: 2024-10-18T22:18:34.105Z
+updated: 2024-10-21T06:23:17.404Z
 tags:
   - ai video
   - ai youtube
@@ -64,26 +64,26 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -92,18 +92,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -118,19 +125,6 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -155,16 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/-winter-youtube-background-ideas-to-warm-up-your-videos-for-2024/"><u>[New] 5 Winter YouTube Background Ideas to Warm Up Your Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-beginners-blueprint-to-building-top-10-easy-to-create-biz-youtubes-for-2024/"><u>[New] The Beginner's Blueprint to Building Top 10 Easy-to-Create Biz YouTubes for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-creative-summit-top-talent-junction/"><u>[Updated] 2024 Approved The Creative Summit Top Talent Junction</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-livestream-on-facebook-from-android-and-ios/"><u>[Updated] In 2024, How to Livestream on Facebook From Android and iOS?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-fb-to-mp4-conversion-high-definition-options-now/"><u>[Updated] In 2024, Seamless FB to MP4 Conversion, High Definition Options Now</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-to-the-shadows-of-youtube-videos-for-2024/"><u>[Updated] Navigating to the Shadows of YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploiting-slow-motion-magic-in-phantom/"><u>2024 Approved Exploiting Slow-Motion Magic in Phantom</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-precision-shooting-leading-10-gimbals-ranked/"><u>2024 Approved Precision Shooting Leading 10 Gimbals Ranked</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/comment-copier-un-film-sous-forme-de-fichier-iso-avec-winx-dvd-copy-pro-pour-une-sauvegarde-facile/"><u>Comment Copier Un Film Sous Forme De Fichier ISO Avec WinX DVD Copy Pro Pour Une Sauvegarde Facile</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/k-the-full-potential-of-video-content-with-studios-power/"><u>Unlock the Full Potential of Video Content with Studio's Power</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-pc-components-with-tom-a-hardware-guide/"><u>Unveiling the Latest in PC Components with Tom - A Hardware Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-essential-tips-enhancing-focus-in-your-youtube-video/"><u>[New] 2024 Approved Essential Tips Enhancing Focus in Your YouTube Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-free-youtube-end-screen-templates-plushow-tos/"><u>[New] 2024 Approved Free YouTube End Screen Templates [+How-Tos]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-how-to-create-a-sports-highlight-video-a-simple-guide/"><u>[New] 2024 Approved How to Create a Sports Highlight Video - a Simple Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-optimizing-video-exposure-on-youtube-with-high-impact-channels/"><u>[New] 2024 Approved Optimizing Video Exposure on YouTube with High-Impact Channels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-reactive-content-unveiled/"><u>[New] In 2024, Twitter's Reactive Content Unveiled</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-outstanding-10-screenshot-and-recording-titles-for-gamers-for-2024/"><u>[New] Outstanding 10 Screenshot and Recording Titles for Gamers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-building-powerful-relationships-through-strategic-social-media-engagement/"><u>[Updated] 2024 Approved Building Powerful Relationships Through Strategic Social Media Engagement</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-redmi-note-12-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi Redmi Note 12 5G FRP</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-pixels-customizing-gaming-banners-with-style/"><u>Brand Pixels Customizing Gaming Banners with Style</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-footage-frequent-flows-dos-and-donts-for-streamlining-video-content-for-2024/"><u>Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-on-apple-iphone-13-pro-max-without-password-by-drfone-ios/"><u>How to Delete iCloud Account On Apple iPhone 13 Pro Max without Password?</u></a></li>
+<li><a href="https://games-able.techidaily.com/ios-gaming-renaissance-the-nintendo-experience/"><u>IOS Gaming Renaissance: The Nintendo Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/outwiththeold-camerasbeyondmycam/"><u>OutWithTheOld CamerasBeyondMyCam</u></a></li>
 </ul></div>
 

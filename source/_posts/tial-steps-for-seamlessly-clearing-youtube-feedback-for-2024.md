@@ -1,7 +1,7 @@
 ---
 title: "Essential Steps for Seamlessly Clearing YouTube Feedback for 2024"
-date: 2024-09-10T17:26:10.585Z
-updated: 2024-09-17T17:22:52.472Z
+date: 2024-10-18T01:28:49.084Z
+updated: 2024-10-20T18:24:26.137Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,13 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -73,6 +80,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -89,16 +103,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -121,13 +129,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -147,18 +148,24 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -179,5 +186,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/udiovisual-excellence-on-youtube-through-enhancements/"><u>[New] Audiovisual Excellence on YouTube Through Enhancements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-carminatis-gig-economy-ajays-youtube-wealth-stream/"><u>[Updated] 2024 Approved Carminati's Gig Economy AJay's YouTube Wealth Stream</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-clear-cut-content-how-to-minimize-unwanted-elements-in-video/"><u>[Updated] In 2024, Clear Cut Content How to Minimize Unwanted Elements in Video</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-ultimate-fb-video-player-guide-top-picks-listed/"><u>[Updated] In 2024, Ultimate FB Video Player Guide Top Picks Listed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>[Updated] In 2024, Youtube's Prime Moments Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-live-stream-success-obs-steps-to-shine-on-youtube-for-2024/"><u>[Updated] Live Stream Success OBS Steps to Shine on Youtube for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-obs-alternatives-reviewed-by-experienced-broadcinas-for-2024/"><u>[Updated] OBS Alternatives Reviewed by Experienced Broadcinas for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premiere-visionary-film-glimpses/"><u>[Updated] Premiere Visionary Film Glimpses</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-steps-to-produce-empowerment-driven-livestreams/"><u>[Updated] Steps to Produce Empowerment-Driven Livestreams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-device-uninterrupted-revealing-the-top-7-android-adblockers-for-2024/"><u>[Updated] Your Device, Uninterrupted Revealing the Top 7 Android AdBlockers for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/44cm44kq44oz44op44kk44oz5psplus6ycb44gu6yyy55s75oml6acg44ks44kk44oj44cn/"><u>「オンライン放送の録画手順ガイド」</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-realme-c67-4g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Realme C67 4G to PC? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-nubia-red-magic-8s-proplus-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Nubia Red Magic 8S Pro+ Face Lock?</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-heat-dynamics-for-peak-pc-gaming-experience/"><u>Navigating Heat Dynamics for Peak PC Gaming Experience</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-income-impact-of-sharing-on-youtube-shorts-for-2024/"><u>The Income Impact of Sharing on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-encyclopedia-to-youtube-thumbnail-mastery-for-2024/"><u>The Ultimate Encyclopedia to YouTube Thumbnail Mastery for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/dvd-pc/"><u>スマートフォンで DVD の内容を素早く保存するためのシンプル技術：PCやソフト無しで！</u></a></li>
+</ul></div>
 

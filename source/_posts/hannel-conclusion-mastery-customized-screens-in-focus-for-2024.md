@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Conclusion Mastery  Customized Screens in Focus for 2024\""
-date: 2024-10-10T16:06:55.039Z
-updated: 2024-10-15T18:53:29.334Z
+date: 2024-10-15T05:40:53.219Z
+updated: 2024-10-21T00:58:57.515Z
 tags:
   - ai video
   - ai youtube
@@ -90,29 +90,22 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -121,16 +114,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
@@ -149,6 +136,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -156,10 +150,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -183,21 +177,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-countdown-configuration-for-obs-users-a-compreenas-guide-for-2024/"><u>[New] Countdown Configuration for OBS Users A Compreenas Guide for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-agile-approaches-storing-ppt-speeches/"><u>[Updated] In 2024, Agile Approaches Storing PPT Speeches</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-definitive-guide-to-proportion-perfection-in-youtube/"><u>[Updated] In 2024, The Definitive Guide to Proportion Perfection in YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-perfecting-audio-rates-in-youtube-playback/"><u>[Updated] Perfecting Audio Rates in YouTube Playback</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-prime-selection-of-screen-capture-software-for-gaming/"><u>[Updated] Prime Selection of Screen Capture Software for Gaming</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-synergizing-social-media-exporting-fb-videos-to-whatsapp/"><u>[Updated] Synergizing Social Media Exporting FB Videos to WhatsApp</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-perils-of-faux-youtube-supporter-purchases/"><u>[Updated] The Perils of Faux YouTube Supporter Purchases</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-top-30-tag-strategies-for-boosting-views-in-freefire-gaming/"><u>2024 Approved Top 30 Tag Strategies for Boosting Views in FreeFire Gaming</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/behebung-von-problemen-bei-der-anerkennung-ihres-datentragers-im-versionierungsweg/"><u>Behebung Von Problemen Bei Der Anerkennung Ihres Datenträgers Im Versionierungsweg</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/lyric-video-makers-you-should-try-for-2024/"><u>Best Lyric Video Makers You Should Try for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-vivo-x100-pro-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo X100 Pro in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-vivo-y28-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Vivo Y28 5G FRP</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-and-easy-guide-to-surface-drivers-downloading-and-updating/"><u>Quick and Easy Guide to Surface Drivers Downloading & Updating</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/outube-concepts-for-channel-motivation-and-creativity/"><u>Top YouTube Concepts for Channel Motivation and Creativity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-discovering-the-hidden-truth-behind-youtubes-viewer-numbers/"><u>[New] 2024 Approved Discovering the Hidden Truth Behind YouTube's Viewer Numbers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-guide-to-choosing-ideal-youtube-thumbnail-shapes/"><u>[New] 2024 Approved Guide to Choosing Ideal Youtube Thumbnail Shapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-the-craft-how-to-produce-mukbang-videos/"><u>[New] 2024 Approved Mastering the Craft How to Produce Mukbang Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-optimize-content-collaboration-in-youtube-for-increased-engagement/"><u>[New] 2024 Approved Optimize Content Collaboration in YouTube for Increased Engagement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-professionals-playbook-to-profitable-youtube-ventures/"><u>[New] A Professional's Playbook to Profitable YouTube Ventures</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-captivating-imagery-with-these-20-top-video-thumbnail-fonts/"><u>[Updated] 2024 Approved Captivating Imagery with These 20 Top Video Thumbnail Fonts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-karma-drone-review/"><u>2024 Approved GoPro Karma Drone Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlocking-engagement-top-5-compelling-book-trailers/"><u>2024 Approved Unlocking Engagement Top 5 Compelling Book Trailers</u></a></li>
+<li><a href="https://os-tips.techidaily.com/access-iphones-covert-rain-sounds-a-guide-to-improving-your-sleep-quality/"><u>Access iPhone's Covert Rain Sounds: A Guide to Improving Your Sleep Quality</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/decrypt-and-rip-dvds-with-handbrake-and-libdvdcss-on-windows/"><u>Decrypt and Rip DVDs with Handbrake & Libdvdcss on Windows</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-step-guide-free-yourself-from-youtube-shorts-for-2024/"><u>Final Step Guide Free Yourself From YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-how-to-perform-a-forced-shutdown-of-applications-in-windows-11/"><u>Step-by-Step Guide: How to Perform a Forced Shutdown of Applications in Windows 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
 </ul></div>
 

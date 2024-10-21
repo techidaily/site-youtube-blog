@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Self-Filmed Flair  Tips for Captivating Solo Videos\""
-date: 2024-09-12T17:48:10.187Z
-updated: 2024-09-17T16:48:21.820Z
+date: 2024-10-16T17:36:18.386Z
+updated: 2024-10-20T22:14:43.237Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -81,10 +88,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -103,6 +110,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -112,10 +126,10 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -137,5 +151,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-enhancing-mobile-broadcasting-via-obs-strategies/"><u>[New] Enhancing Mobile Broadcasting via OBS Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-asmr-knowledge-beyond-what-you-see/"><u>[New] In 2024, ASMR Knowledge Beyond What You See</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-designing-striking-valorant-thumbnails-for-online-platforms/"><u>[New] In 2024, Designing Striking Valorant Thumbnails for Online Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-more-views-on-youtube-with-pro-tag-optimization/"><u>[New] In 2024, Unleash More Views on YouTube with Pro Tag Optimization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-recording-to-broadcast-masterful-podcast-editing-with-garageband-for-2024/"><u>[Updated] From Recording to Broadcast Masterful Podcast Editing with GarageBand for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-principles-for-designing-fb-ad-content-for-2024/"><u>[Updated] Principles for Designing FB Ad Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-script-to-screen-youtube-video-creation-made-simple/"><u>2024 Approved From Script to Screen YouTube Video Creation Made Simple</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-hashtags-for-a-6-figure-view-spike-on-youtube/"><u>2024 Approved Navigating Hashtags for a 6-Figure View Spike on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ate-niche-markets-with-tailored-youtube-shorts-for-2024/"><u>Dominate Niche Markets with Tailored YouTube Shorts for 2024</u></a></li>
+<li><a href="https://win-tips.techidaily.com/get-your-favorite-films-and-show-interviews-on-demand-with-rotten-tomatoes-downloads/"><u>Get Your Favorite Films and Show Interviews on Demand with Rotten Tomatoes Downloads!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-direct-path-to-mp3-converting-fb-video-files/"><u>In 2024, Direct Path to MP3 Converting FB Video Files</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-restoring-your-online-presence-post-strike/"><u>In 2024, Restoring Your Online Presence Post-Strike</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-nokia-c22-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Nokia C22 FRP</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-your-own-melodic-treasure-trove-in-youtubes-vault-for-2024/"><u>Locating Your Own Melodic Treasure Trove in YouTube's Vault for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-macbook-videoleap-download-a-quick-and-simple-process-for-2024/"><u>Updated MacBook Videoleap Download A Quick and Simple Process for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "20+ Amazing YouTube Shortcuts You Should Know for 2024"
-date: 2024-10-14T16:45:51.760Z
-updated: 2024-10-15T18:03:38.356Z
+date: 2024-10-16T02:35:16.687Z
+updated: 2024-10-21T05:35:12.732Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,19 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -74,19 +87,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -100,10 +100,10 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
@@ -131,10 +131,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
@@ -148,13 +148,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -178,6 +171,19 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -199,15 +205,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-digital-domination-worlds-top-10-video-content-kings-and-queens/"><u>[New] In 2024, Digital Domination World's Top 10 Video Content Kings & Queens</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-rhythm-rendezvous-optimal-dj-video-selections/"><u>[Updated] Rhythm Rendezvous Optimal DJ Video Selections</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-comparison-of-gif-creators-for-2024/"><u>[Updated] The Ultimate Comparison of GIF Creators for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-your-roadmap-to-monetization-mastery-the-straightforward-strategy-for-analyzing-youtube-earnings/"><u>2024 Approved Your Roadmap to Monetization Mastery The Straightforward Strategy for Analyzing YouTube Earnings</u></a></li>
-<li><a href="https://driver-install.techidaily.com/efficient-scansnap-driver-update-for-s1500/"><u>Efficient ScanSnap Driver Update for S1500</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/elevate-your-site-performance-using-cookiebot-technology/"><u>Elevate Your Site Performance Using Cookiebot Technology</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-link-a-chromecast-device-for-enhanced-viewing-on-amazon-fire-tv/"><u>How to Link a Chromecast Device for Enhanced Viewing on Amazon Fire TV</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-x-fold-2-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo X Fold 2 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/re-engineering-your-typing-experience-layout-changes-in-win-11/"><u>Re-Engineering Your Typing Experience: Layout Changes in Win 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enhance-and-clean-up-youtube-footage-borderless-tutorial/"><u>[New] 2024 Approved Enhance and Clean Up YouTube Footage Borderless Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-hypergame-hub-your-portal-to-infinite-titles/"><u>[New] 2024 Approved HyperGame Hub Your Portal to Infinite Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-insights-into-average-gain-from-each-watched-online-content/"><u>[New] 2024 Approved Insights Into Average Gain From Each Watched Online Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-kitchen-kings-and-queens-crown-your-channel-with-a-name/"><u>[New] 2024 Approved Kitchen Kings & Queens Crown Your Channel With a Name</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-masterclass-in-glamour-beauty-tutorials-for-all/"><u>[New] 2024 Approved Masterclass in Glamour Beauty Tutorials for All</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-optimizing-channels-with-tubebuddy-expertise/"><u>[New] 2024 Approved Optimizing Channels with TubeBuddy Expertise</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-professional-audio-tactics-achieving-excellence-without-a-microphone/"><u>[New] 2024 Approved Professional Audio Tactics Achieving Excellence without a Microphone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-straightforward-approach-turn-video-upside-down-with-vlc/"><u>[Updated] 2024 Approved Straightforward Approach Turn Video Upside Down with VLC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-10-free-passport-photo-maker-for-desktop-and-online/"><u>2024 Approved 10 Free Passport Photo Maker for Desktop and Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-hack-the-airwaves-mastering-a-viral-solo-podcast/"><u>2024 Approved Hack the Airwaves Mastering a Viral Solo Podcast</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/frontier-ai-chipsets-and-processors-the-quintessential-innovations/"><u>Frontier AI Chipsets and Processors: The Quintessential Innovations</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-nubia-red-magic-8s-proplus-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-honor-magic-5-lite-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Honor Magic 5 Lite to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722857473723-the-ultimate-guide-to-samsung-unpacked-2025-what-you-need-to-know-before-the-big-reveal/"><u>The Ultimate Guide to Samsung Unpacked 2025: What You Need to Know Before the Big Reveal!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-13t-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi 13T Phone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-and-solutions-for-geforce-experience-crashes-learn-how-to-stay-in-control/"><u>Troubleshooting and Solutions for GeForce Experience Crashes - Learn How to Stay in Control</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-visionaries-coordinated-consumption-across-channels-for-2024/"><u>Video Visionaries Coordinated Consumption Across Channels for 2024</u></a></li>
 </ul></div>
 

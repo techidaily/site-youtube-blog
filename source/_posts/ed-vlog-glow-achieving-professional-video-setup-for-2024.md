@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vlog Glow  Achieving Professional Video Setup for 2024\""
-date: 2024-09-15T17:40:09.111Z
-updated: 2024-09-17T16:47:59.363Z
+date: 2024-10-14T16:09:25.877Z
+updated: 2024-10-21T05:12:44.580Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -77,17 +84,38 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-securing-access-to-public-broadcasts-no-fee-for-c-span-videos/"><u>[New] Securing Access to Public Broadcasts No Fee for C-Span Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-youtube-content-editing-in-adobe-premiere-for-2024/"><u>[Updated] Elevate Your YouTube Content Editing in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-perfect-your-yt-artistry-the-ultimate-music-reaction-video-playbook/"><u>[Updated] Perfect Your YT Artistry The Ultimate Music Reaction Video Playbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-conquer-the-blackened-canvas-of-youtube/"><u>2024 Approved Conquer the Blackened Canvas of YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-20-asmr-youtubers-to-watch/"><u>2024 Approved Top 20 ASMR Youtubers to Watch</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/achieve-excellence-in-fb-video-marketing-essential-free-kit-included/"><u>Achieve Excellence in FB Video Marketing - Essential FREE Kit Included</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/connecting-audiences-across-platforms-how-to-embed-pinterest-content-into-facebook/"><u>Connecting Audiences Across Platforms: How to Embed Pinterest Content Into Facebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-xr21-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from XR21.</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/fraudulent-app-alert-spot-sham-gpt-tools-and-secure-info/"><u>Fraudulent App Alert: Spot Sham GPT Tools & Secure Info</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-maximize-learning-free-tools-for-online-video-texts/"><u>In 2024, Maximize Learning Free Tools for Online Video Texts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-psychology-of-crafting-engaging-podcast-intros/"><u>In 2024, The Psychology of Crafting Engaging Podcast Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ct-tripod-positioning-for-quality-vlogs/"><u>Perfect Tripod Positioning for Quality Vlogs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-premier-selection-of-smart-frames/"><u>The Premier Selection of Smart Frames</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/virtual-camcorder-solutions-leading-tools-including-manycam/"><u>Virtual Camcorder Solutions: Leading Tools Including ManyCam</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Directed Focus  YouTube's Easy Ways for Smoother Borders for 2024\""
-date: 2024-09-14T16:26:09.246Z
-updated: 2024-09-17T16:03:02.421Z
+date: 2024-10-19T05:00:10.529Z
+updated: 2024-10-21T05:12:28.596Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,13 @@ If you need to blur the video background after shooting, you can use some video 
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -82,10 +89,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -96,6 +103,13 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
@@ -104,14 +118,14 @@ You see, the video background is blurred, and the people are highlighted. Now it
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -132,5 +146,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-best-soundshapers-for-content-makers-on-youtube/"><u>[New] Best Soundshapers for Content Makers on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-quick-start-guide-to-arranging-engaging-google-sessions/"><u>[New] Quick Start Guide to Arranging Engaging Google Sessions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-diy-gif-creation-extracting-motion-from-youtube-videos/"><u>[Updated] 2024 Approved DIY GIF Creation Extracting Motion From YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-stepwise-approach-to-add-youtube-videos-into-slate/"><u>[Updated] A Stepwise Approach to Add YouTube Videos Into Slate</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ranking-the-top-value-video-resources-online/"><u>[Updated] In 2024, Ranking the Top Value Video Resources Online</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-innovative-5-web-video-capturing-technologies/"><u>2024 Approved Innovative 5 Web Video Capturing Technologies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-more-than-just-likes-and-watch-time-the-complexity-of-youtubes-view-tally/"><u>2024 Approved More than Just Likes and Watch Time The Complexity of YouTube's View Tally</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-tecno-spark-go-2023-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Tecno Spark Go (2023) Face Lock?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-snapslowly-the-art-of-time-lapse-via-samsung/"><u>In 2024, SnapSlowly The Art of Time-Lapse via Samsung</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sticker-enhanced-imagery-ios-and-androids-best-app-companions/"><u>In 2024, Sticker-Enhanced Imagery IOS and Android's Best App Companions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/rca-video-doorbell-camera-review/"><u>RCA Video Doorbell Camera Review</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-honor-play-8t-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Honor Play 8T Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-tech-basics-essential-equipment-guide/"><u>YouTube Tech Basics Essential Equipment Guide</u></a></li>
+</ul></div>
 

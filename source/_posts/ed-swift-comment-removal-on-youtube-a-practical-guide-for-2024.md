@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Swift Comment Removal on YouTube  A Practical Guide for 2024\""
-date: 2024-10-12T19:29:06.867Z
-updated: 2024-10-15T19:31:51.457Z
+date: 2024-10-20T07:06:05.150Z
+updated: 2024-10-20T23:43:51.540Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -89,10 +96,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -128,25 +135,18 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -155,10 +155,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -182,22 +182,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-turning-youtube-shorts-into-a-money-machine-essentials-and-earnings-prospects/"><u>[New] 2024 Approved Turning YouTube Shorts Into a Money Machine Essentials and Earnings Prospects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pioneering-brands-spotlight-on-top-9-free-youtube-logos-craftors/"><u>[New] In 2024, Pioneering Brands Spotlight on Top 9 Free YouTube Logos Craftors</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-anti-fog-gear-for-clear-shot-capture-in-cold-weather/"><u>[Updated] 2024 Approved Anti-Fog Gear for Clear Shot Capture in Cold Weather</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-seamless-streaming-screen-record-and-upload-from-macpc/"><u>[Updated] Seamless Streaming Screen Record & Upload From Mac/PC</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-what-is-the-youtube-creator-studio-in-2024/"><u>[Updated] What Is the YouTube Creator Studio, In 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-key-technique-to-integrate-gopro-content-within-cohesive-spherical-videography/"><u>2024 Approved Key Technique to Integrate GoPro Content Within Cohesive Spherical Videography</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-shine-on-mastering-the-art-of-illumination-for-youtube-videos/"><u>2024 Approved Shine On Mastering the Art of Illumination for YouTube Videos</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-steams-offline-content-servers-problem-in-windows/"><u>Addressing Steam's Offline Content Servers Problem in Windows</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/htenment-streams-foremost-ed-resources-online-for-2024/"><u>Enlightenment Streams Foremost Ed Resources Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/forgot-the-code-no-stress-reset-and-restore-fb-account/"><u>Forgot the Code, No Stress! Reset & Restore FB Account</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-xiaomi-redmi-13c-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Xiaomi Redmi 13C 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-oppo-find-x6-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Oppo Find X6 for Free? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-identifying-and-accessing-your-music-picks-on-youtube/"><u>In 2024, Identifying and Accessing Your Music Picks on Youtube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-top-practices-in-producing-trustworthy-video-product-reviews/"><u>In 2024, Top Practices in Producing Trustworthy Video Product Reviews</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-the-genius-widecam-f100-camera-battling-pixilation-and-audio-echos/"><u>In-Depth Analysis of the Genius WideCam F100 Camera: Battling Pixilation & Audio Echos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-refresher-green-screen-film-tech-basics/"><u>Quick Refresher Green Screen Film Tech Basics</u></a></li>
-<li><a href="https://common-error.techidaily.com/solve-your-pcs-no-bootable-device-dilemma-step-by-step-fixes/"><u>Solve Your PC's 'No Bootable Device' Dilemma: Step-by-Step Fixes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[New] 2024 Approved Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ownload-premium-quality-designs-at-no-cost-for-youtube-creators-for-2024/"><u>[New] Download Premium-Quality Designs at No Cost – For YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unraveling-monetization-strategies-in-the-realm-of-video-shorts/"><u>[New] In 2024, Unraveling Monetization Strategies in the Realm of Video Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ourney-through-time-with-these-top-10-historical-youtube-sources-for-2024/"><u>[New] Journey Through Time with These Top 10 Historical YouTube Sources for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-smartphone-guide-crafting-engaging-video-content/"><u>[Updated] Smartphone Guide Crafting Engaging Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-quirky-quotables-tailoring-hilarious-content-for-brief-videography/"><u>2024 Approved Quirky Quotables Tailoring Hilarious Content for Brief Videography</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/6-easy-ways-to-search-for-people-using-facebook/"><u>6 Easy Ways to Search for People Using Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-update-lenovo-thinkpad-t420-drivers-on-windows-simple-steps/"><u>Download & Update Lenovo ThinkPad T420 Drivers on Windows: Simple Steps</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-techniques-for-slicing-ts-videos-offline-vs-online-methods/"><u>Effective Techniques for Slicing .TS Videos: Offline vs Online Methods</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-zte-nubia-flip-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on ZTE Nubia Flip 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-6s-plus-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/metodos-seguros-para-crear-copias-de-seguridad-de-tus-archivos-de-dropbox-en-una-memoria-usb/"><u>Métodos Seguros Para Crear Copias De Seguridad De Tus Archivos De Dropbox en Una Memoria USB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-excellence-celebrated-by-google-plays-annual-app-awards/"><u>Mondly Kids Excellence Celebrated by Google Play’s Annual App Awards</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/step-by-step-guide-to-optimizing-fb-in-stream-advertising-for-2024/"><u>Step-by-Step Guide to Optimizing FB In-Stream Advertising for 2024</u></a></li>
 </ul></div>
 

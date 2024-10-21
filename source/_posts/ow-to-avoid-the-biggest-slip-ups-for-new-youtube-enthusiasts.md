@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts\""
-date: 2024-09-11T16:19:18.070Z
-updated: 2024-09-17T17:44:36.100Z
+date: 2024-10-16T20:05:03.864Z
+updated: 2024-10-20T23:44:06.853Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -50,16 +57,16 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
@@ -70,18 +77,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -98,10 +105,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -139,5 +146,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/uide-to-10-top-ranked-entrepreneurial-youtube-platforms/"><u>[New] Guide to 10 Top-Ranked Entrepreneurial YouTube Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-finding-those-who-fled-my-insta-friends/"><u>[New] In 2024, Finding Those Who Fled My Insta Friends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-channel-names-a-complete-list-for-vloggers-keep-it-at-or-below-156-characters/"><u>[New] In 2024, Mastering YouTube Channel Names A Complete List for Vloggers (Keep It at or Below 156 Characters)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-stardom-made-easy-essential-editing-strategies-explored/"><u>[New] In 2024, YouTube Stardom Made Easy Essential Editing Strategies Explored</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/olishing-your-channels-auditory-appeal-on-youtube/"><u>[New] Polishing Your Channel's Auditory Appeal on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-beginners-obs-techniques-for-youtube-live-streaming-for-2024/"><u>[Updated] Beginner's OBS Techniques for YouTube Live Streaming for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-minimize-mbs-avoid-fb-video-ads/"><u>[Updated] Minimize MBs Avoid FB Video Ads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-visual-appeal-making-top-tier-video-banner-templates-for-2024/"><u>[Updated] Unlocking Visual Appeal Making Top-Tier Video Banner Templates for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-maximize-video-discoverability-key-youtube-seo-techniques/"><u>2024 Approved Maximize Video Discoverability Key YouTube SEO Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/creating-a-fortified-mc-homebase-for-2024/"><u>Creating a Fortified MC Homebase for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dissecting-shake-control-does-it-truly-enhance-editing-results-for-2024/"><u>Dissecting Shake Control Does It Truly Enhance Editing Results for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/fifa-footage-analysis-trendy-video-patterns/"><u>FIFA Footage Analysis Trendy Video Patterns</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/meet-the-titans-discovering-the-worlds-most-innovative-large-scale-language-models/"><u>Meet the Titans: Discovering the World's Most Innovative Large-Scale Language Models</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-realme-narzo-60x-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Realme Narzo 60x 5G? Here is How | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-monetization-changes-500-subscribers-now-eligible/"><u>YouTube Monetization Changes 500 Subscribers Now Eligible</u></a></li>
+</ul></div>
 

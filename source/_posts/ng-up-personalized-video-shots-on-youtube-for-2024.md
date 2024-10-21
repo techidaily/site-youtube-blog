@@ -1,7 +1,7 @@
 ---
 title: "Setting Up Personalized Video Shots on YouTube for 2024"
-date: 2024-10-13T18:50:29.076Z
-updated: 2024-10-15T19:28:21.521Z
+date: 2024-10-20T04:56:12.863Z
+updated: 2024-10-21T00:46:29.181Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -64,6 +64,13 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -86,13 +93,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -117,19 +117,19 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,17 +153,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/-top-rated-free-mobile-apps-for-video-downloads/"><u>[New] 7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rtedit-master-for-2024/"><u>[New] ArtEdit Master for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/emystifying-youtube-premium-membership-benefits-for-2024/"><u>[New] Demystifying YouTube Premium Membership Benefits for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-disguise-techniques-in-picart-for-2024/"><u>[New] Disguise Techniques in PicArt for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-leading-free-art-pages-for-easy-no-cost-illustrations/"><u>[New] Leading Free Art Pages for Easy, No-Cost Illustrations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-channels-templates-at-no-charge/"><u>[Updated] 2024 Approved Elevate Your Channels - Templates at No Charge</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-simplified-telegram-web-navigation-procedures/"><u>[Updated] 2024 Approved Simplified Telegram Web Navigation Procedures</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-create-impact-with-intro-excellence-best-free-services-reviewed-for-2024/"><u>[Updated] Create Impact with Intro Excellence Best Free Services Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-surge-your-viewer-numbers-a-comprehensive-guide-to-youtube-growth/"><u>[Updated] Surge Your Viewer Numbers A Comprehensive Guide to YouTube Growth</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guia-paso-a-paso-para-cambiar-formatos-dpx-a-png-sin-coste-mediante-movavi/"><u>Guía Paso a Paso Para Cambiar Formatos DPX a PNG Sin Coste Mediante Movavi</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/freedom-awaits-explore-these-top-6-youtube-shortdowners/"><u>Your Freedom Awaits Explore These Top 6 YouTube Shortdowners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-cutting-edge-pc-editing-techniques-enhancing-your-youtube-presence/"><u>[New] 2024 Approved Cutting-Edge PC Editing Techniques Enhancing Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[New] 2024 Approved Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-convert-facebook-to-mp4-hack-for-quick-access-for-2024/"><u>[Updated] Convert Facebook to MP4 – Hack for Quick Access for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-excellence-in-starting-points-for-panzoids/"><u>[Updated] In 2024, Excellence in Starting Points for Panzoids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-your-study-of-the-past-with-these-top-10-channels-for-2024/"><u>Craft Your Study of the Past with These Top 10 Channels for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-frame-rate-showdown-evaluating-30fps-and-60fps-in-videography/"><u>In 2024, Frame Rate Showdown Evaluating 30Fps and 60Fps in Videography</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimal-high-quality-image-browser/"><u>In 2024, Optimal High-Quality Image Browser</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-content-transcriber-for-2024/"><u>Video Content Transcriber for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win-os-device-compatibility-achieved/"><u>Win OS Device Compatibility Achieved</u></a></li>
 </ul></div>
 

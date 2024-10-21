@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Comprehensive Strategies for Swiftly Clearing Feedback\""
-date: 2024-09-16T18:28:17.063Z
-updated: 2024-09-17T18:08:41.929Z
+date: 2024-10-18T23:35:20.395Z
+updated: 2024-10-20T19:29:08.913Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -109,10 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -124,13 +131,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -138,6 +138,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -148,10 +155,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -173,5 +180,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-artisans-exclusive-summit/"><u>[New] 2024 Approved Digital Artisans' Exclusive Summit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gnite-your-passion-launching-an-epic-youtube-game-streaming-venture-for-2024/"><u>[New] Ignite Your Passion Launching an Epic YouTube Game-Streaming Venture for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-tailored-touch-up-top-6-apps-to-exclude-unwanted-elements-from-photos/"><u>[New] Tailored Touch-Up Top 6 Apps to Exclude Unwanted Elements From Photos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-youtube-to-wav-4-budget-friendly-solutions-revealed-for-2024/"><u>[Updated] Seamless YouTube to WAV 4 Budget-Friendly Solutions Revealed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-ultimate-mobile-sound-treat-asmr/"><u>2024 Approved The Ultimate Mobile Sound Treat ASMR</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/decoding-the-instagram-story-viewer-experience/"><u>Decoding the Instagram Story Viewer Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-viewers-with-ease-the-art-of-confidently-filming-for-2024/"><u>Engaging Viewers with Ease The Art of Confidently Filming for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-iphone-12-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your iPhone 12 Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-itel-a70-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Itel A70 Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ts-to-smoothly-resolving-youtube-short-issues/"><u>Secrets to Smoothly Resolving YouTube Short Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-on-how-to-purchase-and-deliver-a-steam-gift-card-online/"><u>Step-by-Step Instructions on How to Purchase and Deliver a Steam Gift Card Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylish-and-smart-detailed-review-of-garmins-vivomove-hr-watch-for-fitness-buffs/"><u>Stylish and Smart: Detailed Review of Garmin's Vivomove HR Watch for Fitness Buffs</u></a></li>
+<li><a href="https://techidaily.com/t2-pro-5g-music-recovery-recover-deleted-music-from-t2-pro-5g-by-fonelab-android-recover-music/"><u>T2 Pro 5G Music Recovery - Recover Deleted Music from T2 Pro 5G</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-youtube-promo-tactics-for-max-impact/"><u>Top 5 YouTube Promo Tactics for Max Impact</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-essential-links-for-obtaining-high-quality-ding-sound-samples/"><u>Updated In 2024, Essential Links for Obtaining High-Quality Ding Sound Samples</u></a></li>
+</ul></div>
 

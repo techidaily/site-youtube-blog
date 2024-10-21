@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Art of Audience Engagement  Emulate Your Idols Online\""
-date: 2024-09-16T18:18:44.188Z
-updated: 2024-09-17T17:07:37.581Z
+date: 2024-10-18T08:40:21.864Z
+updated: 2024-10-20T20:26:33.557Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -70,6 +77,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -84,10 +98,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -100,19 +114,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -122,19 +123,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -160,6 +148,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -181,5 +176,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-download-facebook-videos-on-windows-and-mac/"><u>[New] How to Download Facebook Videos on Windows and Mac</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-multimedia-designers-space/"><u>[New] Multimedia Designer's Space</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ro-gif-makers-roundup-online-vs-desktop-platforms/"><u>[New] Pro-Gif Makers Roundup Online vs Desktop Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-melody-seeker-find-mp3-on-fb/"><u>[Updated] 2024 Approved Melody Seeker Find MP3 on FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-combat-common-youtube-short-obstacles-for-2024/"><u>[Updated] Combat Common YouTube Short Obstacles for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-affordable-excellence-a-selection-of-best-free-srt-tools/"><u>[Updated] In 2024, Affordable Excellence A Selection of Best FREE SRT Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-shot-securement-keeping-cameras-still-on-arms-only-for-2024/"><u>[Updated] Shot Securement Keeping Cameras Still on Arms Only for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-content-seo-mastery-starts-here/"><u>2024 Approved Elevate Your Content SEO Mastery Starts Here</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ace-your-way-through-windows-with-mouseclicklock-techniques/"><u>Ace Your Way Through Windows with MouseClickLock Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/5-non-youtube-editing-tools-for-vids/"><u>Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-tecno-spark-20-proplus-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dissecting-video-platform-features-youtube-vs-dailymention/"><u>In 2024, Dissecting Video Platform Features YouTube Vs. DailyMention</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-htc-u23-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast HTC U23 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-methodology-creating-life-changing-video-guides/"><u>In 2024, Methodology Creating Life-Changing Video Guides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-most-reliable-platforms-to-gather-video-intro-templates/"><u>In 2024, Most Reliable Platforms to Gather Video Intro Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-satire-spectacle-youtubes-top-comedic-talent-list/"><u>In 2024, Satire Spectacle YouTube's Top Comedic Talent List</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-lava-blaze-pro-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Lava Blaze Pro 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 

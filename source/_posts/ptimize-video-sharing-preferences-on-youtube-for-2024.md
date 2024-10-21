@@ -1,7 +1,7 @@
 ---
 title: "[New] Optimize Video Sharing Preferences on YouTube for 2024"
-date: 2024-10-12T18:08:02.691Z
-updated: 2024-10-15T18:39:16.512Z
+date: 2024-10-18T17:16:50.415Z
+updated: 2024-10-20T19:44:52.999Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -83,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -90,23 +104,10 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -115,20 +116,13 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -152,18 +146,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-premier-online-entrepreneurs/"><u>[New] In 2024, Premier Online Entrepreneurs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion-for-2024/"><u>[Updated] Digital Content Contenders Compare & Contrast Vimeo, YouTube + Dailymotion for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-exclusive-guide-to-affordable-premium-video-editors/"><u>[Updated] In 2024, Exclusive Guide to Affordable, Premium Video Editors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-melody-match-maker-audio-ambience-for-videos/"><u>[Updated] In 2024, Melody Match-Maker Audio Ambience For Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-revenue-building-for-youtube-creators-for-2024/"><u>[Updated] Step-by-Step Revenue Building for YouTube Creators for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-free-and-easy-explore-the-top-webm-video-tools/"><u>2024 Approved Free and Easy Explore the Top WebM Video Tools</u></a></li>
-<li><a href="https://win11.techidaily.com/bypassing-0x80246007-flaw-in-windows-11-updates/"><u>Bypassing 0X80246007 Flaw in Windows 11 Updates</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-redmi-note-12-pro-4g-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Xiaomi Redmi Note 12 Pro 4G has native HEVC support?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-exploring-the-essence-of-vimeo-a-leader-in-video-platforms/"><u>In 2024, Exploring the Essence of Vimeo A Leader in Video Platforms</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y200-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y200? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/seamless-srt-to-video-leading-10-free-online-conversion-tools/"><u>Seamless SRT to Video - Leading 10 Free Online Conversion Tools</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-your-android-devices-wi-fi-connection-issues-a-step-by-step-guide/"><u>Solving Your Android Device's Wi-Fi Connection Issues: A Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-top-tier-hardware-innovations-with-toms-technology-guide/"><u>Unveiling Top-Tier Hardware Innovations with Tom's Technology Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tips-for-capturing-youtube-sounds/"><u>[New] In 2024, Tips for Capturing YouTube Sounds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximize-engagement-and-impact-premier-tracking-applications-for-content-creators-for-2024/"><u>[New] Maximize Engagement and Impact Premier Tracking Applications for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-vision-navigating-video-degrees-with-ease/"><u>[New] YouTube Vision Navigating Video Degrees with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-bargain-microphones-for-youtube-creators-starting-small/"><u>[Updated] 2024 Approved Bargain Microphones for YouTube Creators Starting Small</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-prime-time-editing-selecting-the-best-software/"><u>[Updated] In 2024, Prime-Time Editing Selecting the Best Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-your-hashtags-the-path-to-6-figure-youtube-success-for-2024/"><u>[Updated] Master Your Hashtags The Path to 6-Figure Youtube Success for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/b4b-gobi-crash-troubleshooting-on-udk-fixing-ue4-game-issues-easily/"><u>B4B Gobi Crash Troubleshooting on UDK - Fixing UE4 Game Issues Easily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576630083-exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-get-and-install-the-latest-amd-vega-64-graphics-card-drivers-on-windows/"><u>How to Get and Install the Latest AMD Vega #64 Graphics Card Drivers on Windows</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-motorola-moto-g24-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G24 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-metaverse-advertising-techniques/"><u>Mastering Metaverse Advertising Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/seamless-sound-selecting-4-websites-for-ringtones-for-2024/"><u>Seamless Sound Selecting 4 Websites for Ringtones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/for-effective-youtube-end-screen-usage/"><u>Tips for Effective YouTube End Screen Usage</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-nokia-c32-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-temporary-file-hassles-resolved-instantly/"><u>Windows' Temporary File Hassles Resolved Instantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/next-favorite-youtuber-might-be-just-a-test-away-six-categories-explored-for-2024/"><u>Your Next Favorite YouTuber Might Be Just a Test Away Six Categories Explored for 2024</u></a></li>
 </ul></div>
 

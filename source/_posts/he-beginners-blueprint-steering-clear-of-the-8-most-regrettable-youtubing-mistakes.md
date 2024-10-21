@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Beginner's Blueprint  Steering Clear of the 8 Most Regrettable YouTubing Mistakes\""
-date: 2024-10-11T19:08:14.503Z
-updated: 2024-10-15T17:53:23.412Z
+date: 2024-10-15T07:26:18.639Z
+updated: 2024-10-21T08:40:15.671Z
 tags:
   - ai video
   - ai youtube
@@ -43,18 +43,18 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -64,18 +64,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -86,10 +86,10 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
@@ -98,18 +98,18 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -142,17 +142,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/-key-aspects-to-consider-when-sizing-your-youtube-thumbnail/"><u>[New] 5 Key Aspects to Consider When Sizing Your YouTube Thumbnail</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-the-power-of-persuasion-perfecting-your-shorts-visual-hook/"><u>[New] In 2024, Unlock the Power of Persuasion Perfecting Your Shorts' Visual Hook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-infographics-leveraging-social-media-videos/"><u>[Updated] 2024 Approved Infographics Leveraging Social Media Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-5-best-snipping-tools-for-windows-for-2024/"><u>[Updated] 5 Best Snipping Tools for Windows for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-audiovisual-perfection-leading-audio-enhancement-apps/"><u>[Updated] In 2024, Audiovisual Perfection Leading Audio Enhancement Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-path-to-higher-engagement-essential-shortcuts-for-youtubers-for-2024/"><u>[Updated] The Path to Higher Engagement Essential Shortcuts for YouTubers for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/decoding-the-best-live-streams-a-compreehsive-guide/"><u>Decoding the Best Live Streams A Compreehsive Guide</u></a></li>
-<li><a href="https://driver-download.techidaily.com/efficiently-set-up-your-epson-ds-530-with-windows-10-driver-included/"><u>Efficiently Set Up Your Epson DS-530 with Windows 10 [Driver Included]</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/making-a-lasting-impression-with-profile-clips-for-2024/"><u>Making a Lasting Impression with Profile Clips for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-fixes-for-dvd-playback-issues-in-the-windows-operating-system/"><u>Quick Fixes for DVD Playback Issues in the Windows Operating System</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/it-in-pro-level-techniques-for-youtube-video-editors-for-2024/"><u>Reel It In Pro-Level Techniques for YouTube Video Editors for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transformative-talk-20-words-to-bolster-marketing-success-for-2024/"><u>Transformative Talk 20 Words to Bolster Marketing Success for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>[New] 2024 Approved Channeling Changes Transition to YouTube's Updated Membership Model</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-financial-foresight-select-youtube-stocks-hubs/"><u>[New] 2024 Approved Financial Foresight Select YouTube Stocks Hubs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-identifying-your-individual-song-collection-on-youtube/"><u>[New] 2024 Approved Identifying Your Individual Song Collection on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-incorporating-cards-and-annotations-in-youtube-content/"><u>[New] 2024 Approved Incorporating Cards and Annotations in YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-eliminating-robotic-ratings-to-grow-views/"><u>[New] In 2024, Eliminating Robotic Ratings to Grow Views</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-streamline-screen-capture-on-google-chat/"><u>[New] In 2024, Streamline Screen Capture on Google Chat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-enhancing-beauty-on-streams-via-color-grading/"><u>[Updated] Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-uniform-iptv-system-utilization/"><u>2024 Approved Uniform IPTV System Utilization</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/building-blocks-to-successful-video-editing-on-windows-8-for-2024/"><u>Building Blocks to Successful Video Editing on Windows 8 for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/preventing-constant-interruptions-from-spooler-service-in-win107/"><u>Preventing Constant Interruptions From Spooler Service in Win10/7</u></a></li>
 </ul></div>
 

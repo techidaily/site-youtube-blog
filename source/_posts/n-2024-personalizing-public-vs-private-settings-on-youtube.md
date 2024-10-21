@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Personalizing Public vs Private Settings on YouTube"
-date: 2024-09-10T17:56:58.432Z
-updated: 2024-09-17T17:38:41.020Z
+date: 2024-10-18T17:04:27.078Z
+updated: 2024-10-20T19:07:35.515Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -75,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -83,11 +97,25 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -95,27 +123,7 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -136,5 +144,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-quick-steps-for-effective-double-take-filming/"><u>[New] 2024 Approved Essential Quick Steps for Effective Double Take Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/lipping-the-script-online-video-reversals-for-2024/"><u>[New] Flipping the Script Online Video Reversals for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-sync-vimeo-videos-with-powerpoint-a-step-by-step-approach/"><u>[New] In 2024, Sync Vimeo Videos with PowerPoint A Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-it-illegal-to-archive-your-youtube-watch-history-for-2024/"><u>[New] Is It Illegal to Archive Your YouTube Watch History for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-a-close-look-at-t-series-revenue-from-online-channels/"><u>[Updated] A Close Look at T-Series Revenue From Online Channels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-techniques-for-saving-teams-meetings-desktopmobile-for-2024/"><u>[Updated] Techniques for Saving Teams Meetings (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-present-state-of-drones-and-their-future-expansion/"><u>[Updated] The Present State of Drones and Their Future Expansion</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/cambia-facilmente-tus-videos-webm-a-la-calidad-superior-del-codigo-aac-por-internet-completamente-gratis-guia-paso-a-paso-usando-movavi/"><u>Cambia Fácilmente Tus Vídeos WEBM a La Calidad Superior Del Código AAC Por Internet, Completamente Gratis: Guía Paso a Paso Usando Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/a-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-v29-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo V29 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-look-youtube-lives-image-interpretation-for-2024/"><u>Inside Look YouTube Live's Image Interpretation for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leveraging-the-power-of-ai-how-chatgpt-and-whisper-apis-can-transform-your-business/"><u>Leveraging the Power of AI: How ChatGPT and Whisper APIs Can Transform Your Business</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-360-streaming-landscape-with-ease-on-youtube-for-2024/"><u>Navigating the 360° Streaming Landscape with Ease on Youtube for 2024</u></a></li>
+</ul></div>
 

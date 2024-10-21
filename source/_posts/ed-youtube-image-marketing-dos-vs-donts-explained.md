@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-09-14T17:26:28.390Z
-updated: 2024-09-17T16:17:15.265Z
+date: 2024-10-16T17:24:37.197Z
+updated: 2024-10-20T20:11:11.644Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
@@ -98,6 +105,19 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -111,10 +131,10 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
@@ -137,24 +157,18 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -177,5 +191,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-ultimate-guide-freepaid-screen-recorders-for-meet-video/"><u>[New] 2024 Approved Ultimate Guide Free/Paid Screen Recorders for Meet Video</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-perfecting-fade-out-techniques-in-audacity/"><u>[New] Perfecting Fade-Out Techniques in Audacity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-avoiding-files-enjoying-animated-gifs-youtube-video-mastery-for-2024/"><u>[Updated] Avoiding Files, Enjoying Animated GIFs YouTube Video Mastery for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-design-channels-get-free-visuals-now-for-2024/"><u>[Updated] Design Channels - Get Free Visuals Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-depth-insights-for-youtube-sound-enhancement-for-2024/"><u>[Updated] In-Depth Insights for YouTube Sound Enhancement for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-quick-turn-artistry-professionally-crafted-valorant-game-imagery-for-2024/"><u>[Updated] Quick-Turn Artistry Professionally Crafted Valorant Game Imagery for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubers-first-steps-starting-your-channel-and-earning-revenue-for-2024/"><u>[Updated] Youtuber's First Steps Starting Your Channel & Earning Revenue for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-historical-insights-from-youtubes-top-10-vlogs/"><u>2024 Approved Historical Insights From YouTube's Top 10 Vlogs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-90-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor 90 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-x8b-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from X8b</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-imageinterplay-hub/"><u>In 2024, ImageInterplay Hub</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-2024-solutions-fixing-minecraft-stuttering-issues-on-your-pc/"><u>Top 2024 Solutions: Fixing Minecraft Stuttering Issues on Your PC</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-monetization-tips-how-many-views-do-you-really-need-to-make-money-for-2024/"><u>YouTube Monetization Tips How Many Views Do You Really Need to Make Money for 2024</u></a></li>
+</ul></div>
 

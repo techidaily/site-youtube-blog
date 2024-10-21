@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Innovative Thumbnail Tips for Mac Users - YouTube\""
-date: 2024-09-14T18:07:22.615Z
-updated: 2024-09-17T16:14:28.094Z
+date: 2024-10-14T01:42:04.226Z
+updated: 2024-10-21T00:45:09.407Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -63,13 +70,6 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -77,10 +77,17 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -90,10 +97,10 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -131,5 +138,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-best-free-youtube-intro-makers-to-create-awesome-intros/"><u>[New] In 2024, Best Free YouTube Intro Makers to Create Awesome Intros</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-everlasting-capture-no-limit-savings-available/"><u>[Updated] Everlasting Capture, No Limit Savings Available</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-through-the-top-10-making-magic-on-youtube/"><u>[Updated] Navigating Through the Top 10 Making Magic on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-8-most-effective-authentic-promotion-techniques/"><u>[Updated] The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-ultimate-playbook-to-monetize-youtube-traffic-for-2024/"><u>[Updated] Your Ultimate Playbook to Monetize Youtube Traffic for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-nubia-z50-ultra-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Nubia Z50 Ultra Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>In 2024, Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-problem-is-over-your-shorts-show-up-now/"><u>In 2024, The Problem Is Over Your Shorts Show Up Now</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-the-secrets-of-creative-youtube-channel-names-for-vloggers-and-filmmakers-maximum-length-156-characters-for-2024/"><u>Unlocking the Secrets of Creative YouTube Channel Names for Vloggers & Filmmakers (Maximum Length 156 Characters) for 2024</u></a></li>
+</ul></div>
 

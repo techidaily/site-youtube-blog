@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Capture Clearness Without a Tripod Tool\""
-date: 2024-10-14T17:46:12.990Z
-updated: 2024-10-15T18:45:52.835Z
+date: 2024-10-18T02:48:11.360Z
+updated: 2024-10-20T18:11:21.843Z
 tags:
   - ai video
   - ai youtube
@@ -41,13 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -71,10 +64,10 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -95,16 +88,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -114,6 +101,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -138,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,18 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-picture-puns-smilesketchers/"><u>[New] 2024 Approved Picture Puns SmileSketchers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-masterful-free-fb-picture-and-film-producer-for-2024/"><u>[New] Masterful Free FB Picture & Film Producer for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-syncing-social-media-post-videos-on-twitter-and-tumblr/"><u>[New] Syncing Social Media Post Videos on Twitter and Tumblr</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-fresh-film-views-ranked-alternatives-1-7-for-2024/"><u>[Updated] Fresh Film Views Ranked Alternatives #1-7 for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-game-development-behind-the-scenes-for-2024/"><u>[Updated] Game Development Behind-the-Scenes for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-to-record-screencast-from-youtube-for-free/"><u>[Updated] In 2024, How To Record Screencast From YouTube For Free</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-master-control-over-your-youtube-viewing-rhythm/"><u>2024 Approved Master Control Over Your YouTube Viewing Rhythm</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-oppo-a59-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Oppo A59 5G? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube/"><u>In 2024, Spin the Wheel of Viewers How to Stream Round-the-Clock Videos on YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/winning-strategies-for-accelerating-your-ssd-performance-in-windows-10/"><u>Winning Strategies for Accelerating Your SSD Performance in Windows 10</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-choose-wisely-the-ultimate-list-of-mac-gif-tools/"><u>[New] In 2024, Choose Wisely The Ultimate List of Mac GIF Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-12-flip-screen-cams-for-dynamic-videography/"><u>[New] In 2024, Top 12 Flip-Screen Cams for Dynamic Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-digitalscreen-app-assessment-review-for-2024/"><u>[Updated] DigitalScreen App Assessment Review for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-boosting-your-content-visibility-with-youtubes-spotlight-channels/"><u>[Updated] In 2024, Boosting Your Content Visibility with YouTube's Spotlight Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-learn-to-craft-eye-catching-youtube-thumbnails-using-your-phone/"><u>[Updated] In 2024, Learn to Craft Eye-Catching YouTube Thumbnails Using Your Phone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unparalleled-online-success-stories-from-youtube-for-2024/"><u>[Updated] Unparalleled Online Success Stories From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-guide-to-maximizing-your-youtube-brands-impact/"><u>2024 Approved Step-by-Step Guide to Maximizing Your YouTube Brand's Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-essential-list-6-diverse-websites-for-youtube-visuals/"><u>2024 Approved The Essential List 6 Diverse Websites for YouTube Visuals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-conclusion-mastery-customized-screens-in-focus/"><u>Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-reverse-youtube-video-in-creative-ways-for-2024/"><u>How to Reverse YouTube Video in Creative Ways for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-x-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone X Without Passcode?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-lighting-essentials-17-tops-reviewed/"><u>In 2024, YouTube Lighting Essentials - #17 Tops Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-amazing-deals-limited-time-offers-on-high-quality-samsung-tech-for-prime-day/"><u>Score Amazing Deals: Limited-Time Offers on High-Quality Samsung Tech for Prime Day</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-vivo-y02t-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Vivo Y02T ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ackward-playbook-youtubes-video-flip/"><u>The Backward Playbook YouTube's Video Flip</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/k-your-best-freefire-videos-with-key-insights-for-2024/"><u>Unlock Your Best FreeFire Videos with Key Insights for 2024</u></a></li>
 </ul></div>
 
