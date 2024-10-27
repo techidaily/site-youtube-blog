@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The No-Tripod Path to Flawless Images for 2024\""
-date: 2024-10-15T19:57:21.046Z
-updated: 2024-10-21T06:22:02.357Z
+date: 2024-10-21T00:56:17.661Z
+updated: 2024-10-26T19:50:56.825Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -63,16 +63,16 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -80,15 +80,22 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -106,13 +113,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -165,17 +165,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-leading-tactics-sourcing-high-quality-photo-and-video-backdrops/"><u>[New] 2024 Approved Leading Tactics Sourcing High-Quality Photo & Video Backdrops</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-online-broadcasting-basics-a-streamers-guide-to-capture/"><u>[New] Online Broadcasting Basics A Streamer’s Guide to Capture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streamline-your-online-listening-experience-with-direct-capture/"><u>[Updated] 2024 Approved Streamline Your Online Listening Experience with Direct Capture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-monthly-earnings-potential-on-youtube/"><u>[Updated] Monthly Earnings Potential on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-streamline-conferencing-top-tactics-using-zoom-coder/"><u>[Updated] Streamline Conferencing Top Tactics Using Zoom Coder</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-editors-guide-best-for-youtube-content/"><u>[Updated] The Ultimate Editor's Guide Best for YouTube Content</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-uncovering-the-currency-behind-product-discussions/"><u>[Updated] Uncovering the Currency Behind Product Discussions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>2024 Approved Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-essential-ios-video-editor-apps-top-10-best-to-know/"><u>2024 Approved Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-samsung-gear-s3-frontier-the-ultimate-feature-packed-smartwatch/"><u>Comprehensive Review of the Samsung Gear S3 Frontier: The Ultimate Feature-Packed Smartwatch</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-play-your-srt-files-easily-winmac-tips/"><u>In 2024, Play Your SRT Files Easily Win/Mac Tips</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-behind-the-scenes-sound-management-expert-insights-into-using-ducking-effects/"><u>Updated 2024 Approved Behind-the-Scenes Sound Management Expert Insights Into Using Ducking Effects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>[New] In 2024, Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nternets-influencers-top-10-global-youtube-sensations/"><u>[New] Internet's Influencers Top 10 Global YouTube Sensations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unmatched-value-game-changing-voice-switcher-for-valorant-awaits-you/"><u>[New] Unmatched Value, Game-Changing Voice Switcher for Valorant Awaits You</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/atch-9-free-full-length-christmas-movies-on-youtube-for-2024/"><u>[New] Watch 9 Free Full Length Christmas Movies On Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-create-with-colors-youtube-banner-creation-guide/"><u>[Updated] 2024 Approved Create with Colors YouTube Banner Creation Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unveiling-the-shadows-a-systematic-guide-to-hidden-youtube-content/"><u>[Updated] In 2024, Unveiling the Shadows A Systematic Guide to Hidden YouTube Content</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-inshot-video-magic-mastering-segment-shifts/"><u>[Updated] Inshot Video Magic Mastering Segment Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-exits-the-rationale-behind-facebooks-stay/"><u>Beyond Exits: The Rationale Behind Facebook's Stay</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/electric-vehicles-the-ultimate-checklist-of-questions-before-buying/"><u>Electric Vehicles: The Ultimate Checklist of Questions Before Buying</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-audience-accessibility-switching-from-srt-to-sub/"><u>In 2024, Audience Accessibility Switching From SRT to SUB</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-apple-iphone-13-pro-max-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your Apple iPhone 13 Pro Max From Your Apple ID</u></a></li>
 </ul></div>
 

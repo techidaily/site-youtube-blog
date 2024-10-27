@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Zeroing in on Audio Quality  Achievable Sans Mic\""
-date: 2024-09-16T18:28:39.291Z
-updated: 2024-09-17T17:29:02.326Z
+date: 2024-10-23T03:04:39.165Z
+updated: 2024-10-27T03:30:06.773Z
 tags:
   - ai video
   - ai youtube
@@ -52,11 +52,25 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -65,13 +79,6 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -87,6 +94,13 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
@@ -98,13 +112,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -120,14 +127,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -148,5 +155,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-direct-streaming-use-vlc-for-webcam-video/"><u>[New] Direct Streaming Use VLC for Webcam Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levate-your-marketing-game-free-50-youtube-adornments-here/"><u>[New] Elevate Your Marketing Game - Free 50 YouTube Adornments Here</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>[New] In 2024, How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-morning-tweets-essential-rules-and-prohibitions/"><u>[New] Mastering Morning Tweets Essential Rules & Prohibitions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-pinnacle-of-propagation-valheim-seeds-unveiled/"><u>[New] The Pinnacle of Propagation Valheim Seeds Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-exposing-sham-numbers-the-danger-of-fabricated-youtube-views/"><u>[Updated] In 2024, Exposing Sham Numbers The Danger of Fabricated YouTube Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-outro-techniques-for-videos-for-2024/"><u>[Updated] Mastering Outro Techniques for Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-audience-connection-top-video-formats-for-youtube-success/"><u>[Updated] Unlocking Audience Connection Top Video Formats for YouTube Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[Updated] Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-flying-brain-games-top-11-knowledge-channels/"><u>2024 Approved High-Flying Brain Games Top 11 Knowledge Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-pursuing-profits-the-path-to-fiscal-gains-through-videography/"><u>2024 Approved Pursuing Profits The Path to Fiscal Gains Through Videography</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-tips-for-preventing-invisible-thumbnails-on-shorts-videos/"><u>2024 Approved Tips for Preventing Invisible Thumbnails on Shorts Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/advanced-slidecasting-powerpoint-and-webcam-perfection-for-2024/"><u>Advanced Slidecasting PowerPoint & Webcam Perfection for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondly-among-worlds-premier-educational-apps/"><u>Apple Acknowledges Mondly Among World’s Premier Educational Apps</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y02t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y02T | Dr.fone</u></a></li>
+</ul></div>
 

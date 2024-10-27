@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering the Art of Instantaneous Deletion of YouTube Discussions"
-date: 2024-10-16T04:28:18.734Z
-updated: 2024-10-20T17:17:40.586Z
+date: 2024-10-22T05:45:23.894Z
+updated: 2024-10-26T16:30:04.234Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -68,13 +61,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -87,6 +73,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -123,10 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -137,6 +130,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -155,10 +155,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -182,24 +182,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/arnings-estimation-a-trifecta-of-tips-and-strategies-for-tracking-your-youtube-earnings-for-2024/"><u>[New] Earnings Estimation A Trifecta of Tips and Strategies for Tracking Your YouTube Earnings for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-delete-facebook-story-in-2024/"><u>[New] How to Delete Facebook Story, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-tele-loop-triumph-youtube-videos-endlessly-enjoyable-on-tv/"><u>[Updated] 2024 Approved Tele-Loop Triumph YouTube Videos, Endlessly Enjoyable on Tv</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-diy-tips-for-crafting-your-own-iphone-tones-for-2024/"><u>[Updated] DIY Tips for Crafting Your Own iPhone Tones for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-fiscally-flourishing-through-film-reviewing-retail-relics-for-2024/"><u>[Updated] Fiscally Flourishing Through Film Reviewing Retail Relics for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-crafting-exceptional-freefire-content-on-youtube-platforms/"><u>[Updated] In 2024, Crafting Exceptional FreeFire Content on YouTube Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-discover-the-best-beat-detectors-free-and-easy-to-use/"><u>[Updated] In 2024, Discover the Best Beat Detectors – Free & Easy to Use</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-integrating-youtube-tracks-into-imovie-projects-easily/"><u>[Updated] Integrating YouTube Tracks Into iMovie Projects Easily</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-key-techniques-for-a-thorough-review-of-youtube-stats-for-2024/"><u>[Updated] Key Techniques for a Thorough Review of YouTube Stats for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-taking-photos-steadily-on-one-leg-in-2024/"><u>[Updated] Taking Photos Steadily on One Leg, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-transforming-viewers-into-revenue-youtube-money-secrets-unveiled-for-2024/"><u>[Updated] Transforming Viewers Into Revenue YouTube Money Secrets Unveiled for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2022-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2022) to other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-x-flip-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo X Flip</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-snapshot-verbalizer/"><u>In 2024, Snapshot Verbalizer</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-infinix-note-30-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Infinix Note 30 Phone Now with These Tips</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/seamless-photo-transfer-guide-moving-images-from-your-previous-iphone-model-to-iphone-x-via-macos/"><u>Seamless Photo Transfer Guide: Moving Images From Your Previous iPhone Model to iPhone X via macOS</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/transform-ordinary-moments-into-extraordinary-art-creating-slow-motion-video-from-still-images-online/"><u>Transform Ordinary Moments Into Extraordinary Art Creating Slow Motion Video From Still Images Online</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-the-best-boxing-streaming-websites-for-the-latest-match-coverage/"><u>Updated In 2024, The Best Boxing Streaming Websites for the Latest Match Coverage</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/why-chatgpt-might-not-be-the-best-tool-for-your-crypto-market-insights-a-guide-to-its-5-main-drawbacks/"><u>Why ChatGPT Might Not Be the Best Tool for Your Crypto Market Insights – A Guide to Its 5 Main Drawbacks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-video-format-for-youtube-uploading/"><u>[New] Best Video Format for YouTube Uploading</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ngage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method-for-2024/"><u>[New] Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-understanding-what-makes-a-comment-noteworthy-on-youtube/"><u>[New] In 2024, Understanding What Makes a Comment Noteworthy on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-master-your-visuals-with-optimal-dimensions/"><u>[New] Master Your Visuals with Optimal Dimensions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-preserving-youtube-music-3-secure-complimentary-techniques/"><u>[Updated] 2024 Approved Preserving YouTube Music 3 Secure, Complimentary Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions-for-2024/"><u>[Updated] Enhancing Your YouTube Profiles A Guide to Crafting Descriptions for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-insiders-choice-best-picks-for-snappable-soundtracks-for-2024/"><u>[Updated] Insider's Choice Best Picks for Snappable Soundtracks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pinnacle-panoramics-selecting-the-best-8k-cameras/"><u>[Updated] Pinnacle Panoramics Selecting the Best 8K Cameras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-speedy-sketching-techniques-for-fortnite-tiles/"><u>[Updated] Speedy Sketching Techniques for Fortnite Tiles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tecting-authoritative-adjuncts-for-2024/"><u>Architecting Authoritative Adjuncts for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account From Apple iPhone 15 Pro Max?</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/how-to-save-yahoo-screen-shows-and-autvyahoo-series-from-your-computer/"><u>How to Save Yahoo Screen Shows and au.tv.yahoo Series From Your Computer</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oneplus-ace-2v-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On OnePlus Ace 2V Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-personalized-cost-free-epilogue-soundscape-creation/"><u>In 2024, Personalized, Cost-Free Epilogue Soundscape Creation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/introducing-the-latest-upgrade-microsofts-revamped-sticky-notes-in-windows-11/"><u>Introducing the Latest Upgrade: Microsoft's Revamped Sticky Notes in Windows 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revive-lost-memories-find-and-restore-deleted-instagram-reels-with-ease/"><u>Revive Lost Memories: Find and Restore Deleted Instagram Reels with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/screens-guide-to-smart-stocks-for-2024/"><u>Your Screen's Guide to Smart Stocks for 2024</u></a></li>
 </ul></div>
 

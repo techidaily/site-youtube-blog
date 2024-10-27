@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Eyes on the Digital Winners  Top Channels\""
-date: 2024-10-14T22:37:53.465Z
-updated: 2024-10-21T09:23:55.682Z
+date: 2024-10-19T19:12:44.771Z
+updated: 2024-10-26T20:48:31.161Z
 tags:
   - ai video
   - ai youtube
@@ -75,22 +75,15 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  4\.  Smosh
@@ -98,10 +91,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -109,13 +102,6 @@ Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and An
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -133,7 +119,21 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -156,22 +156,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-clearing-focus-techniques-for-blurring-meeting-backdrops/"><u>[New] 2024 Approved Clearing Focus Techniques for Blurring Meeting Backdrops</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/astering-playlist-conversion-5-preferred-tools-for-youtube-streams-for-2024/"><u>[New] Mastering Playlist Conversion 5 Preferred Tools for YouTube Streams for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ptimizing-your-music-library-transitioning-from-spotify-to-youtube-music-for-2024/"><u>[New] Optimizing Your Music Library Transitioning From Spotify To YouTube Music for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-enhancing-podcast-appeal-crafting-effective-intros/"><u>[Updated] 2024 Approved Enhancing Podcast Appeal Crafting Effective Intros</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-top-talents-merging-photography-and-sound-in-videos/"><u>[Updated] 2024 Approved Top Talents Merging Photography & Sound in Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>[Updated] 2024 Approved YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-safe-methods-transforming-youtube-audio-into-mp3-files-efficiently/"><u>[Updated] Safe Methods Transforming YouTube Audio Into MP3 Files Efficiently</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-scoping-out-the-12-most-popular-flip-screen-video-cameras/"><u>[Updated] Scoping Out the 12 Most Popular Flip-Screen Video Cameras</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[Updated] Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-audio-experiences-on-iphones/"><u>2024 Approved Top 5 Audio Experiences on iPhones</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/oms-ender-the-ultimate-list-of-jovial-youtube-content-for-2024/"><u>Boredom's Ender The Ultimate List of Jovial YouTube Content for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exploring-the-ultimate-portable-music-player-selection-insights/"><u>Exploring the Ultimate Portable Music Player Selection - Insights</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/freelancing-in-the-age-of-ai-should-you-choose-bing-chat-over-chatgpt-eight-essential-factors-for-making-an-informed-decision/"><u>Freelancing in the Age of AI: Should You Choose Bing Chat Over ChatGPT? Eight Essential Factors for Making an Informed Decision</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/futureproofing-your-internet-the-premier-long-distance-routers-launched/"><u>Futureproofing Your Internet: The Premier Long-Distance Routers Launched</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unparalleled-selection-of-budget-stock-media-sites/"><u>In 2024, Unparalleled Selection of Budget Stock Media Sites</u></a></li>
-<li><a href="https://fox-links.techidaily.com/innovative-recording-methods-windows-10-guide-for-2024/"><u>Innovative Recording Methods Windows 10 Guide for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pinpointing-the-finest-six-locations-to-buy-a-new-laptop-today/"><u>Pinpointing the Finest Six Locations To Buy a New Laptop Today</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-exploring-gopros-peak-adapters-the-ultimate-6-selection-guide-for-2024/"><u>[New] Exploring GoPro's Peak Adapters The Ultimate 6 Selection Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ideal-tags-elevating-your-contents-discovery-potential/"><u>[New] In 2024, Ideal Tags Elevating Your Content's Discovery Potential</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-stepwise-guide-to-youtube-video-enhancement-in-imovie/"><u>[New] In 2024, Stepwise Guide to YouTube Video Enhancement in iMovie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ntegrating-youtube-into-tv-sets-with-loop-features/"><u>[New] Integrating YouTube Into TV Sets with Loop Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-flawless-footage-with-best-stabilizer-brands-for-2024/"><u>[Updated] Flawless Footage with Best Stabilizer Brands for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-identifying-the-most-fitting-vimeo-membership-level-for-2024/"><u>[Updated] Identifying the Most Fitting Vimeo Membership Level for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-deep-dive-into-youtube-writers-workshop-space/"><u>[Updated] In 2024, A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-harmonizing-visuals-and-soundtracks-with-youtubes-video-editor/"><u>[Updated] In 2024, Harmonizing Visuals & Soundtracks with YouTube's Video Editor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-swift-channels-growth-optimizing-viewership-with-collaborative-videos/"><u>[Updated] Swift Channels Growth Optimizing Viewership with Collaborative Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-6-video-formats-for-captivated-audiences/"><u>In 2024, Top 6 Video Formats for Captivated Audiences</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/kostenlose-migration-von-windows-10-32-auf-64-bit-schritt-fur-schritt-mit-datenschutz/"><u>Kostenlose Migration Von Windows 10 32 Auf 64 Bit - Schritt Für Schritt Mit Datenschutz</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/laptop-display-off-quick-fixes-and-tips/"><u>Laptop Display Off - Quick Fixes and Tips</u></a></li>
+<li><a href="https://win-docs.techidaily.com/wie-legen-sie-post-it-notizen-in-microsoft-windows-11-speichern-schritt-fur-schritt-anleitung/"><u>Wie Legen Sie Post-It-Notizen in Microsoft Windows 11 Speichern | Schritt-Für-Schritt-Anleitung</u></a></li>
 </ul></div>
 

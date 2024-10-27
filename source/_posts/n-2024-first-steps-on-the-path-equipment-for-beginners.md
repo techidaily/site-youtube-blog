@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, First Steps on the Path  Equipment for Beginners\""
-date: 2024-10-19T18:32:56.310Z
-updated: 2024-10-20T20:23:36.990Z
+date: 2024-10-21T17:05:59.182Z
+updated: 2024-10-27T02:43:51.146Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -87,22 +94,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -112,31 +113,24 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -160,17 +154,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-reimagining-cityscapes-the-integration-of-ecosystem-services/"><u>[New] In 2024, Reimagining Cityscapes The Integration of Ecosystem Services</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-mobile-experience-apple-android-and-youtube/"><u>[New] In 2024, The Ultimate Mobile Experience Apple, Android and YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/asterpiece-maker-scenery-and-sound-unite/"><u>[New] Masterpiece Maker Scenery & Sound Unite</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-tune-into-success-constructing-your-youtube-playlist/"><u>[Updated] In 2024, Tune Into Success Constructing Your YouTube Playlist</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-power-play-enhancing-your-pages-popularity-ranking-for-2024/"><u>[Updated] The Power Play Enhancing Your Page's Popularity Ranking for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-leading-talents-premier-instragram-hlv-creators/"><u>2024 Approved Leading Talents Premier Instragram HLV Creators</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/beyond-invincibility-exploring-frequent-errors-in-understanding-vpn-safety-measures/"><u>Beyond Invincibility: Exploring Frequent Errors in Understanding VPN Safety Measures</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/eal-number-of-youtube-views-you-need-to-make-a-living-for-2024/"><u>The Real Number of YouTube Views You Need to Make a Living for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-guide-resolving-halinitializationfailed-error-stop-0x0000005c/"><u>Troubleshooting Guide: Resolving HAL_INITIALIZATION_FAILED Error STOP 0X0000005C</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/ultimate-troubleshooting-guide-resolving-your-microphone-issues-due-to-rust/"><u>Ultimate Troubleshooting Guide: Resolving Your Microphone Issues Due to Rust</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/visual-virtuosity-mastering-motivation-on-instagram/"><u>Visual Virtuosity Mastering Motivation on Instagram</u></a></li>
-<li><a href="https://techidaily.com/vivo-v27e-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Vivo V27e Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-foundation-principles-of-tale-telling-for-2024/"><u>[New] Foundation Principles of Tale-Telling for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-state-of-the-art-gaming-capture-systems-not-just-fbx-files-for-2024/"><u>[New] State-of-the-Art Gaming Capture Systems, Not Just FBX Files for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-cross-platform-streaming-techniques-from-youtube-to-30plus-platforms/"><u>[Updated] Cross-Platform Streaming Techniques From YouTube to 30+ Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-captured-moment-to-moving-picture/"><u>[Updated] From Captured Moment to Moving Picture</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-key-elements-to-consider-in-asmr-video-watching-for-2024/"><u>[Updated] Key Elements to Consider in ASMR Video Watching for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-keywords-that-catapult-hashtag-hacks-in-gameplay-videos-for-2024/"><u>[Updated] Keywords that Catapult Hashtag Hacks in Gameplay Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-securing-your-contents-reputation-while-gaining-a-million-viewer-engagements/"><u>[Updated] Securing Your Content's Reputation While Gaining A Million Viewer Engagements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-no-cost-melodies-for-content-makers-for-2024/"><u>[Updated] The Ultimate Guide to No-Cost Melodies for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-virtual-victors-the-leading-ladies-in-gaming/"><u>2024 Approved Virtual Victors The Leading Ladies in Gaming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-entrepreneurship-building-a-recognizable-brand/"><u>2024 Approved YouTube Entrepreneurship Building a Recognizable Brand</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-a-closer-look-at-the-alcatel-joy-tab-a-tablet-for-on-the-go-savings-and-lte-performance/"><u>Exploring the Features: A Closer Look at the Alcatel Joy Tab 지, a Tablet for On-the-Go Savings and LTE Performance</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/hidden-methods-for-dodging-digital-study-vids/"><u>Hidden Methods for Dodging Digital Study Vids</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-13-pro-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone 13 Pro Passcode not Working?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-oppo-find-x6-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Oppo Find X6 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-slides-with-youtube-content-for-2024/"><u>Mastering Slides with YouTube Content for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-itel-p40-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Itel P40</u></a></li>
 </ul></div>
 

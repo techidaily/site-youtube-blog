@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unearth Unique YouTube Chats"
-date: 2024-10-15T16:48:56.501Z
-updated: 2024-10-21T04:21:08.382Z
+date: 2024-10-20T19:51:16.547Z
+updated: 2024-10-26T18:19:34.120Z
 tags:
   - ai video
   - ai youtube
@@ -76,15 +76,22 @@ It is one of the most user-friendly and ad-free random comment pickers available
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
@@ -99,22 +106,16 @@ Everything you have to do now follows the steps below. For the following methods
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
@@ -134,10 +135,10 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Change the Comments View Order?
@@ -148,13 +149,6 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -190,19 +184,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-chromebook-shutter-magic-4-simple-steps-for-2024/"><u>[New] Chromebook Shutter Magic - 4 Simple Steps for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-exploring-flawless-blending-in-music-production-crossfade-for-2024/"><u>[New] Exploring Flawless Blending in Music Production (Crossfade) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/inancial-gains-the-youtube-money-flow-from-1m-views-for-2024/"><u>[New] Financial Gains The Youtube Money Flow From 1M Views for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-transform-your-youtube-sign-up-rate-learn-anime-subscribe-buttons-in-filmora/"><u>[New] In 2024, Transform Your YouTube Sign-Up Rate - Learn Anime Subscribe Buttons in Filmora</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-photo-transformations-3dlut-on-the-go/"><u>[New] Mastering Photo Transformations 3DLUT On-the-Go</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-design-channels-get-free-visuals-now/"><u>[Updated] 2024 Approved Design Channels - Get Free Visuals Now</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-scripting-engaging-youtube-videos/"><u>[Updated] Step-by-Step Guide to Scripting Engaging YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-money-trail-exploring-mr-beasts-path/"><u>[Updated] The Money Trail Exploring Mr. Beast's Path</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-exploring-successful-strategies-to-elevate-audience-numbers-on-youtube-shorts/"><u>2024 Approved Exploring Successful Strategies to Elevate Audience Numbers on YouTube Shorts</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-phone-without-pin-by-drfone-android/"><u>How to Unlock Nubia Phone without PIN</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-blur-hide-protect-the-ultimate-guide-to-face-blurring-in-video/"><u>In 2024, Blur, Hide, Protect The Ultimate Guide to Face Blurring in Video</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/overcoming-challenges-in-dvd-to-pc-transfers-a-guide-to-successful-video-copies/"><u>Overcoming Challenges in DVD-to-PC Transfers: A Guide to Successful Video Copies</u></a></li>
-<li><a href="https://review-topics.techidaily.com/reinstall-your-drivers-with-device-manager-on-windows-1110-by-drivereasy-guide/"><u>Reinstall your drivers with Device Manager on Windows 11/10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-techniques-with-youtube-a-practical-approach-for-2024/"><u>Teaching Techniques with YouTube A Practical Approach for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-beginners-blueprint-for-mobile-youtube-videos/"><u>[New] In 2024, The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-threefold-way-to-extract-and-save-youtubes-subtitles-srt/"><u>[New] In 2024, The Threefold Way to Extract and Save YouTube's Subtitles (SRT)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-boosting-subscriber-commitment-top-strategies-for-keeping-viewers-coming-back-on-youtube/"><u>[Updated] Boosting Subscriber Commitment Top Strategies for Keeping Viewers Coming Back on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-trending-image-memes-unveiling-the-real-story/"><u>[Updated] Trending Image Memes Unveiling the Real Story</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/best-ways-to-record-video-without-sound/"><u>Best Ways to Record Video Without Sound</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/vering-top-10-must-watch-business-video-hubs/"><u>Discovering Top 10 Must-Watch Business Video Hubs</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/herstellen-van-verloren-gegeten-extern-harde-schijven-op-een-seagate-hard-drive-effektieve-oplossingen/"><u>Herstellen Van Verloren Gegeten Extern Harde Schijven Op Een Seagate Hard Drive - Effektieve Oplossingen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-motorola-edge-40-neo-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Motorola Edge 40 Neo PC | Dr.fone</u></a></li>
+<li><a href="https://fox-place.techidaily.com/mastering-sqlite-connections-essential-tips-and-steps-for-setup/"><u>Mastering SQLite Connections: Essential Tips and Steps for Setup</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/in-viewers-mastery-of-live-360-video-broadcasts-on-youtube-for-2024/"><u>Reel In Viewers Mastery of Live 360 Video Broadcasts on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
 </ul></div>
 

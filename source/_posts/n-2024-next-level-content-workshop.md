@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Next Level Content Workshop"
-date: 2024-10-15T18:40:04.821Z
-updated: 2024-10-21T07:48:26.839Z
+date: 2024-10-19T20:29:55.474Z
+updated: 2024-10-27T06:18:26.559Z
 tags:
   - ai video
   - ai youtube
@@ -64,6 +64,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -73,10 +80,10 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -87,23 +94,9 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -120,13 +113,20 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,22 +149,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/rom-basic-to-exceptional-a-step-by-step-thumbnail-guide/"><u>[New] From Basic to Exceptional A Step-by-Step Thumbnail Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-create-and-grow-an-online-space-for-beauty-product-reviews/"><u>[New] How To Create and Grow an Online Space for Beauty Product Reviews</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-pinnacle-of-picture-perfection-with-video-enhance-v22/"><u>[Updated] In 2024, Pinnacle of Picture Perfection with Video Enhance V2.2</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-rapidly-crafting-valorant-image-highlights-for-gamers/"><u>[Updated] In 2024, Rapidly Crafting Valorant Image Highlights for Gamers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-angle-alchemists-guide-to-transforming-your-videos-youtube-edition/"><u>[Updated] The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-soundscapes-of-success-building-youtube-playlists-with-precision-for-2024/"><u>[Updated] The Soundscapes of Success Building YouTube Playlists with Precision for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-visual-potential-the-9-best-mobile-accessories-for-vloggers-for-2024/"><u>[Updated] Unlocking Visual Potential The 9 Best Mobile Accessories for Vloggers for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-quality-edits-the-ultimate-guide-to-pixlr/"><u>2024 Approved Quick, Quality Edits The Ultimate Guide to Pixlr</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-honor-x8b-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Honor X8b Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-nonfunctioning-hdmi-sound-output-on-windows-7/"><u>Effective Fixes for Nonfunctioning HDMI Sound Output on Windows 7</u></a></li>
-<li><a href="https://extra-information.techidaily.com/foremost-equipment-in-round-the-clock-filming/"><u>Foremost Equipment in Round-The-Clock Filming</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-streaming-wars-recap-fb-live-yt-live-and-twitter-spaces/"><u>In 2024, Streaming Wars Recap FB LIVE, YT Live & Twitter Spaces</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-paying-up-to-20-a-month-for-enhanced-apple-features-worth-it-industry-predictions-revealed-by-zdnet/"><u>Is Paying Up to $20 a Month for Enhanced Apple Features Worth It? Industry Predictions Revealed by ZDNet</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-ranking-roku-streaming-devices-a-comprehensive-guide/"><u>Top-Ranking Roku Streaming Devices : A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/k-creativity-idea-driven-youtube-channel-titles-for-2024/"><u>Unlock Creativity Idea-Driven YouTube Channel Titles for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/whos-saving-my-creations-learn-how-to-find-out-on-instagram-easily/"><u>Who's Saving My Creations? Learn How to Find Out on Instagram Easily</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/bes-top-5-apps-that-trim-your-long-video-links-down-for-2024/"><u>Youtube’s Top 5 Apps That Trim Your Long Video Links Down for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decoding-the-capabilities-of-samsung-photo-studio/"><u>[New] Decoding the Capabilities of Samsung Photo Studio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/our-complete-manual-on-live-streaming-platforms/"><u>[New] Your Complete Manual on Live Streaming Platforms</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-thumbnail-extract-from-youtube-videos-today/"><u>[Updated] 2024 Approved Free Thumbnail Extract From YouTube Videos Today</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-mastery-leverage-customizable-description-templates-for-more-followers-for-2024/"><u>[Updated] Channel Mastery Leverage Customizable Description Templates for More Followers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-top-rated-pc-and-mobile-video-extractors-for-2024/"><u>[Updated] Unlocking YouTube Top-Rated PC & Mobile Video Extractors for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videos-impact-with-customizable-youtube-thumbnails/"><u>2024 Approved Elevate Your Video's Impact with Customizable YouTube Thumbnails</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-state-of-the-art-gaming-capture-systems-not-just-fbx-files/"><u>2024 Approved State-of-the-Art Gaming Capture Systems, Not Just FBX Files</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unlock-potential-while-unwinding-top-tasks-for-podcast-lovers/"><u>2024 Approved Unlock Potential While Unwinding Top Tasks for Podcast Lovers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/p-dive-into-youtube-app-features-on-smartphones-for-2024/"><u>A Deep Dive Into YouTube App Features on Smartphones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/free-downloader-turn-youtube-audio-into-premium-mp3s-for-2024/"><u>Best Free Downloader Turn YouTube Audio Into Premium MP3s for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/enhance-your-cameras-outputs-10-free-paid-upgrade-lut-sets-available-for-2024/"><u>Enhance Your Cameras' Outputs 10 FREE, Paid-Upgrade LUT Sets Available for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-oppo-find-x7-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Oppo Find X7? Try These Fixes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/join-forces-and-jam-out-a-guide-to-group-streaming-on-spotify/"><u>Join Forces and Jam Out: A Guide to Group Streaming on Spotify</u></a></li>
 </ul></div>
 

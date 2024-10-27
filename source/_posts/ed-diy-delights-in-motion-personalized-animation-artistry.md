@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DIY Delights in Motion  Personalized Animation Artistry\""
-date: 2024-10-15T18:41:15.658Z
-updated: 2024-10-21T04:33:22.224Z
+date: 2024-10-24T23:27:56.959Z
+updated: 2024-10-27T04:25:24.230Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,15 +120,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-encompassing-critique-hero4-black-features/"><u>[New] 2024 Approved Encompassing Critique Hero4 Black Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-ranked-drones-synced-seamlessly-with-gopros/"><u>[New] Top-Ranked Drones Synced Seamlessly With GoPros</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-exploring-advanced-gameplay-with-kinemaster-on-android/"><u>[Updated] In 2024, Exploring Advanced Gameplay with KineMaster on Android</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-flashcapture-screen-tools/"><u>[Updated] In 2024, FlashCapture Screen Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-through-paid-product-evaluations-online/"><u>[Updated] Navigating Through Paid Product Evaluations Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-profitable-video-content-starting-and-scaling-up/"><u>[Updated] Profitable Video Content Starting and Scaling Up</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-escape-artists-manual-to-disguised-youtube-archives-for-2024/"><u>[Updated] The Escape Artist's Manual to Disguised YouTube Archives for 2024</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/emeditor-professional-v11990-release-candidate-enhanced-text-editing-with-head-start-features/"><u>EmEditor Professional v11.9.90 Release Candidate: Enhanced Text Editing with Head Start Features</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/fan-to-earner-understanding-view-requirements/"><u>From Fan to Earner Understanding View Requirements</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ssional-filmmaking-made-easy-with-right-lenses/"><u>Professional Filmmaking Made Easy with Right Lenses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-essential-guide-keeping-your-memories-of-snapchats-intact/"><u>[New] 2024 Approved Essential Guide Keeping Your Memories of Snapchats Intact</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lix-fortune-hashtags-for-high-impact-low-length-video-content-for-2024/"><u>[New] Flix Fortune Hashtags for High Impact, Low-Length Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>[New] In 2024, Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-channel-gain-traction-comprehensive-guide-to-youtubes-featured-placement/"><u>[New] In 2024, Channel Gain Traction Comprehensive Guide to YouTube's Featured Placement</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-relaunching-windows-photo-viewer-two-tactics-for-w10-users/"><u>[New] Relaunching Windows Photo Viewer Two Tactics for W10 Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-youtube-video-editing-techniques/"><u>[Updated] 2024 Approved Essential YouTube Video Editing Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-guidelines-for-eliminating-obs-fullscreen-freeze/"><u>[Updated] 2024 Approved Guidelines for Eliminating OBS Fullscreen Freeze</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-beyond-vidcon-top-50-youtube-celebrations-for-2024/"><u>[Updated] Beyond VidCon Top 50 YouTube Celebrations for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-digital-footprint-how-to-share-your-short-videos-on-computers-and-phones/"><u>[Updated] In 2024, Digital Footprint How to Share Your Short Videos on Computers & Phones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-journey-of-a-movie-maker-youtube-tutorials-and-more/"><u>[Updated] In 2024, Journey of a Movie Maker YouTube Tutorials & More</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-world-of-youtube-live-visual-representations-for-2024/"><u>[Updated] Navigating the World of YouTube Live Visual Representations for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swift-restoration-of-photos-viewer-performance-in-windows-10/"><u>2024 Approved Swift Restoration of Photos Viewer Performance in Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-tv-for-everyone-no-expertise-required/"><u>2024 Approved YouTube TV for Everyone No Expertise Required</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/explore-these-9-essential-chatgpt-extensions-for-immediate-use/"><u>Explore These 9 Essential ChatGPT Extensions for Immediate Use</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-mobile-media-a-guide-to-the-9-smartest-gadgets-for-filmmakers-for-2024/"><u>Mastering Mobile Media A Guide to the 9 Smartest Gadgets for Filmmakers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/maximize-your-visuals-10-free-image-editing-tools-for-smartphones-for-2024/"><u>Maximize Your Visuals 10 Free Image Editing Tools for Smartphones for 2024</u></a></li>
 </ul></div>
 
