@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Optimize Video Sharing Preferences on YouTube\""
-date: 2024-10-21T02:39:55.349Z
-updated: 2024-10-26T17:24:17.832Z
+date: 2024-10-29T20:20:07.588Z
+updated: 2024-11-01T16:29:19.509Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -82,6 +75,19 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -90,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -97,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -110,20 +123,13 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,22 +152,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-journey-to-profitable-youtube-video-creation/"><u>[New] 2024 Approved The Journey to Profitable YouTube Video Creation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-learning-legends-esteemed-ed-streams-online/"><u>[New] In 2024, Learning Legends Esteemed Ed Streams Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-strategies-for-purchasing-clear-visual-content/"><u>[New] In 2024, Strategies for Purchasing Clear Visual Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximize-video-potential-a-complete-guide-to-youtube-thumbnail-dimensions-for-2024/"><u>[New] Maximize Video Potential A Complete Guide to YouTube Thumbnail Dimensions for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/his-years-unexpected-cinematic-gems-for-2024/"><u>[New] This Year's Unexpected Cinematic Gems for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ransform-your-video-appeal-incorporating-own-thumbnails/"><u>[New] Transform Your Video Appeal Incorporating Own Thumbnails</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unraveling-the-best-video-formats-for-youtube-success-for-2024/"><u>[Updated] Unraveling the Best Video Formats for YouTube Success for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-streamline-screenshots-and-videos-with-premier-stabilizer-gear/"><u>2024 Approved Streamline Screenshots & Videos with Premier Stabilizer Gear</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/oad-youtube-gallery-files-instantly-for-2024/"><u>Download YouTube Gallery Files Instantly for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/game-crashing-issues-heres-how-to-stabilize-your-pc-games-in-2eight-twenty-four/"><u>Game Crashing Issues? Here's How to Stabilize Your PC Games in 2Eight-Twenty-Four</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-samsung-galaxy-z-fold-5-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Samsung Galaxy Z Fold 5 to Gmail | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/keeping-your-gamer-goals-intact-a-guide-to-epic-saves/"><u>Keeping Your Gamer Goals Intact: A Guide to Epic Saves</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aging-youtube-studio-across-devices-for-2024/"><u>Leveraging Youtube Studio Across Devices for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/supercharge-with-leading-winning-apps-for-windows/"><u>Supercharge with Leading Winning Apps for Windows</u></a></li>
-<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-apple-iphone-se-2020-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From Apple iPhone SE (2020) Making It Possible</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-blogging-essentials-choosing-the-best-cameras-and-lenses/"><u>Video Blogging Essentials Choosing the Best Cameras and Lenses</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/waveform-wisdom-dimming-audio-with-expertise-in-premiere/"><u>Waveform Wisdom Dimming Audio with Expertise in Premiere</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-capturing-snapchat-moments-mobile-screen-recording-guide/"><u>[New] 2024 Approved Capturing Snapchat Moments Mobile Screen-Recording Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-leading-10-sound-intensification-apps-for-multiple-systems/"><u>[New] 2024 Approved Leading 10 Sound Intensification Apps for Multiple Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rom-streams-to-statements-decoding-the-3-step-process-for-calculating-youtube-earnings/"><u>[New] From Streams to Statements Decoding the 3-Step Process for Calculating YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-a-review-of-youtubes-integration-with-iphone-and-android-devices/"><u>[New] In 2024, A Review of YouTube's Integration with iPhone & Android Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-free-access-worlds-biggest-youtube-short-downloaders/"><u>[New] In 2024, Free Access World’s Biggest YouTube Short Downloaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleashing-the-power-of-youtube-short-form-videos/"><u>[New] In 2024, Unleashing the Power of YouTube Short Form Videos</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-amplify-your-social-impact-with-these-innovative-fb-growth-tactics-for-2024/"><u>[Updated] Amplify Your Social Impact with These Innovative FB Growth Tactics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-elevate-your-channel-vision-selecting-ideal-content-strategies/"><u>[Updated] In 2024, Elevate Your Channel Vision Selecting Ideal Content Strategies</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-privilege-access-denial-error-error-0x80070522-on-modern-windows-pcs/"><u>Fixing Privilege Access Denial Error (Error 0X80070522) on Modern Windows PCs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-poco-x5-pro-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Poco X5 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-openais-vulnerability-disclosure-scheme-your-step-by-step-tutorial-to-participation/"><u>Navigating Through OpenAI's Vulnerability Disclosure Scheme – Your Step-by-Step Tutorial to Participation</u></a></li>
 </ul></div>
 

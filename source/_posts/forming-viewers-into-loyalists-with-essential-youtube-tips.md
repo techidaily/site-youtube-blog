@@ -1,7 +1,7 @@
 ---
 title: "Transforming Viewers Into Loyalists with Essential YouTube Tips"
-date: 2024-10-22T23:32:09.170Z
-updated: 2024-10-27T01:38:52.229Z
+date: 2024-10-26T00:53:04.965Z
+updated: 2024-11-01T21:02:28.935Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,19 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -96,6 +109,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -111,10 +131,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
@@ -129,13 +149,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -148,13 +161,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -164,10 +170,10 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -193,16 +199,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/obile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[New] Mobile Sound Library Explore the Best Free Downloader Apps for YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-taking-the-leap-essential-video-gatherings-post-vidcon/"><u>[New] Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-personalizing-who-can-see-your-youtube-content/"><u>[Updated] 2024 Approved Personalizing Who Can See Your YouTube Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-guide-elevating-your-fb-video-content-game/"><u>[Updated] 2024 Approved The Ultimate Guide Elevating Your FB Video Content Game</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-cut-to-the-chase-strategies-top-20-youtube-tips-for-growth/"><u>[Updated] In 2024, Cut-to-the-Chase Strategies Top 20 YouTube Tips for Growth</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-selecting-excellent-steadicams-for-dslr-cinematography/"><u>[Updated] Selecting Excellent Steadicams for DSLR Cinematography</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unleash-your-youtube-earnings-a-triad-approach-to-financial-examination-and-analysis-for-2024/"><u>[Updated] Unleash Your YouTube Earnings A Triad Approach to Financial Examination and Analysis for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/s-guide-to-video-recording-for-2024/"><u>Gamer's Guide to Video Recording for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-lava-yuva-2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Lava Yuva 2 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/section-2b-five-factes-to-remember/"><u>Section 2B: Five Factes to Remember</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-sound-forward-enrich-your-mp3s-with-these-basic-editing-advice-for-2024/"><u>Updated Sound Forward Enrich Your MP3s with These Basic Editing Advice for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-navigating-social-sharing-pining-on-snapchat/"><u>[New] 2024 Approved Navigating Social Sharing Pining on Snapchat</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-engaging-vlogger-subjects-each-day/"><u>[New] In 2024, Engaging Vlogger Subjects Each Day</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-vlog-anxieties-unmasked-how-to-combat-them/"><u>[New] In 2024, Vlog Anxieties Unmasked How to Combat Them</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sounding-off-on-channel-titling-tips-from-experienced-filmmakers/"><u>[Updated] 2024 Approved Sounding Off on Channel Titling Tips From Experienced Filmmakers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-deciphering-youtubes-new-earning-standards-for-2024/"><u>[Updated] Deciphering YouTube's New Earning Standards for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-media-mastery-youtube-vs-tiktoks-best-fit/"><u>[Updated] In 2024, Media Mastery Youtube Vs. TikTok's Best Fit</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-itel-a60-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Itel A60</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eral-clip-creator/"><u>Ephemeral Clip Creator</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-ten-mobile-sticker-adornment-apps-for-photos/"><u>In 2024, Top Ten Mobile Sticker Adornment Apps for Photos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unleashing-potential-the-art-of-youtube-seo-keywords/"><u>In 2024, Unleashing Potential The Art of YouTube SEO Keywords</u></a></li>
+<li><a href="https://win-updates.techidaily.com/ransomware-explained-insights-and-prevention-tips-from-malwarefox/"><u>Ransomware Explained: Insights and Prevention Tips From MalwareFox</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/scopri-gli-ottimi-converter-mp4-liberi-facili-guida-alla-conversione-dei-tuoi-contenuti-inda-formato-mp4/"><u>Scopri Gli Ottimi Converter MP4 Liberi: Facili Guida Alla Conversione Dei Tuoi Contenuti In/Da Formato MP4</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/syntax-spectacle-chatgpt-versus-googles-game/"><u>Syntax Spectacle: ChatGPT Versus Google's Game</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-key-to-stellar-zoom-calls-smart-use-of-filters-for-2024/"><u>The Key to Stellar Zoom Calls Smart Use of Filters for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-with-icloud-on-your-iphone-the-ultimate-guide-7-tips-inside/"><u>Unstuck with iCloud on Your iPhone – The Ultimate Guide (7 Tips Inside)</u></a></li>
 </ul></div>
 

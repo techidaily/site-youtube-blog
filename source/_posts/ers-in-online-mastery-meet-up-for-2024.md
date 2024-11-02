@@ -1,7 +1,7 @@
 ---
 title: "\"Pioneers in Online Mastery Meet-Up for 2024\""
-date: 2024-10-20T23:45:36.959Z
-updated: 2024-10-26T20:02:49.505Z
+date: 2024-10-30T19:47:23.618Z
+updated: 2024-11-01T19:13:18.827Z
 tags:
   - ai video
   - ai youtube
@@ -64,15 +64,22 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
@@ -85,13 +92,26 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -104,13 +124,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -120,13 +133,6 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,14 +155,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-audience-market-leaders-in-youtubes-short-clips-downloads/"><u>[New] In 2024, Audience’ Market Leaders in YouTube's Short Clips Downloads</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pop-culture-with-a-click-using-kinemaster/"><u>[New] Pop Culture with a Click Using KineMaster</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-earning-edge-reached-for-subscribers-above-500/"><u>[Updated] 2024 Approved Earning Edge Reached for Subscribers Above 500</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-engage-viewers-from-the-start-mobile-film-techniques-for-thumbnails-for-2024/"><u>[Updated] Engage Viewers From the Start Mobile Film Techniques for Thumbnails for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-quick-tips-eliminate-signature-bg-in-minutes/"><u>[Updated] Quick Tips Eliminate Signature Bg in Minutes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>[Updated] Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/rediscover-precious-moments-with-aura-waldens-immersive-memory-frames/"><u>Rediscover Precious Moments with Aura Walden's Immersive Memory Frames</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-youtubes-discussions/"><u>Scouring YouTubes' Discussions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-oppo-reno-11-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Oppo Reno 11 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-youtube-banner-size-and-channel-art-dimension-the-ultimate-guide/"><u>[New] 2024 Approved Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-direct-from-device-to-digital-world-recording-your-apple-gadgets/"><u>[New] 2024 Approved Direct From Device to Digital World Recording Your Apple Gadgets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-speedy-fortnite-cover-art-creation/"><u>[New] 2024 Approved Speedy Fortnite Cover Art Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-charting-updates-youtube-money-standards/"><u>[New] In 2024, Charting Updates YouTube Money Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-lightning-share-youtube-playlist-hacks/"><u>[New] In 2024, Lightning Share YouTube Playlist Hacks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-mobile-melodies-personalize-ios-ringtones/"><u>[New] Mastering Mobile Melodies Personalize iOS Ringtones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-ultimate-crops-and-cultivation-compilation/"><u>[Updated] 2024 Approved The Ultimate Crops & Cultivation Compilation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-securely-sharing-video-on-youtube-with-settings-for-2024/"><u>[Updated] Securely Sharing Video on YouTube with Settings for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-nokia-c210-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Nokia C210 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/correcting-msvcr100dll-missing-errors-on-your-pc-comprehensive-guide/"><u>Correcting 'MSVCR100.DLL Missing' Errors on Your PC – Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722749772093-horizon-hours-exploring-auto-advancements-through-reading-book-five-of-fourth-series/"><u>Horizon Hours - Exploring Auto Advancements Through Reading, Book Five of Fourth Series!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-storytelling-at-its-simplest/"><u>In 2024, Storytelling at Its Simplest</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/personalized-touchscreen-display-by-jdi-the-2vd-screen-that-sees-who-you-are-and-adapts-to-your-fingerprint/"><u>Personalized Touchscreen Display by JDI: The 2VD Screen That Sees Who You Are and Adapts to Your Fingerprint</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-5-best-free-wmv-video-joiners/"><u>Updated Top 5 Best Free WMV Video Joiners</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, YouTube Elites  Creator Conclave\""
-date: 2024-10-25T06:14:34.624Z
-updated: 2024-10-26T23:06:57.915Z
+date: 2024-10-28T19:36:10.027Z
+updated: 2024-11-02T00:42:14.803Z
 tags:
   - ai video
   - ai youtube
@@ -65,10 +65,10 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -86,19 +86,19 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -122,10 +122,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,16 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-beyond-imagination-vrs-present-future-prospects/"><u>[New] In 2024, Beyond Imagination VR's Present, Future Prospects</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-drones-as-a-creative-tool-in-filmmaking/"><u>[Updated] 2024 Approved Drones as a Creative Tool in Filmmaking</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-making-your-mark-with-youtubes-creative-commons-tools/"><u>2024 Approved Making Your Mark with YouTube’s Creative Commons Tools</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-htc-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on HTC</u></a></li>
-<li><a href="https://win-dash.techidaily.com/simple-steps-to-enhance-video-quality-in-windows-a-beginners-guide/"><u>Simple Steps to Enhance Video Quality in Windows: A Beginner's Guide</u></a></li>
-<li><a href="https://windows11.techidaily.com/steps-for-repairing-windows-fragmented-file-issue/"><u>Steps for Repairing Windows Fragmented File Issue</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/form-your-classroom-with-youtubes-educational-content/"><u>Transform Your Classroom with YouTube's Educational Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/de-your-videography-with-the-top-10-flv-to-youtube-devices-for-2024/"><u>Upgrade Your Videography with the Top 10 Flv-to-YouTube Devices for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-video-legends-youtubed-for-millions/"><u>Viral Video Legends YouTubed for Millions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-charting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[New] 2024 Approved Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-world-of-streamed-games/"><u>[New] In 2024, Navigating the World of Streamed Games</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-secret-sauce-for-successful-youtubers-channel-featuring-techniques/"><u>[New] In 2024, The Secret Sauce for Successful YouTubers Channel Featuring Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-smart-approach-to-video-marketing-for-smbs/"><u>[Updated] In 2024, The SMART Approach to Video Marketing for SMBs</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/breaking-down-abbyy-omzets-successful-year-of-2abbreviation-benelux-metrics-reflect-a-23-upsurge-in-2019/"><u>Breaking Down ABBYY OMZET's Successful Year of 2Abbreviation; Benelux Metrics Reflect a 23% Upsurge in 2019</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-12-proplus-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme 12 Pro+ 5G?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-guide-to-fixing-hps-built-in-camera-issues-when-running-on-windows-11/"><u>Comprehensive Guide to Fixing HP's Built-In Camera Issues When Running on Windows 11</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-triggering-a-manual-windows-boot-to-safe-mode/"><u>Expert Advice: Triggering a Manual Windows Boot to Safe Mode</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-how-tseries-harnesses-revenue-from-online-viewer-base-youtube/"><u>Exploring How TSeries Harnesses Revenue From Online Viewer Base (YouTube)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-apple-iphone-13-pro-max-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your Apple iPhone 13 Pro Max Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/saving-external-media-a-comprehensive-guide-on-exporting-images-from-ms-word/"><u>Saving External Media: A Comprehensive Guide on Exporting Images From MS Word</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-lava-yuva-3-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Lava Yuva 3 Pro Location By Mobile Number | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unlock Your YouTube Potential  Expert Tips on Writing Video Outlines\""
-date: 2024-10-23T17:58:57.189Z
-updated: 2024-10-27T05:27:28.802Z
+date: 2024-10-26T23:46:40.947Z
+updated: 2024-11-01T16:27:39.750Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -63,13 +70,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -77,6 +77,13 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -104,31 +111,11 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -137,6 +124,13 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,18 +153,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-navigate-through-youtube-content-with-flexibility/"><u>[New] 2024 Approved Navigate Through YouTube Content with Flexibility</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-how-do-i-schedule-a-screen-recording/"><u>[New] In 2024, How Do I Schedule A Screen Recording</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-approach-fine-tuning-your-youtube-videos-dimensions-and-sizes/"><u>[New] In 2024, Step-by-Step Approach Fine-Tuning Your YouTube Videos' Dimensions & Sizes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-thorough-examination-an-in-depth-review-of-gecata-log/"><u>[New] In 2024, Thorough Examination An In-Depth Review of Gecata Log</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-art-of-youtube-thumbnails-for-mac-professionals/"><u>[Updated] 2024 Approved The Art of YouTube Thumbnails for Mac Professionals</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complete-driver-package-for-hp-photosmart-7520-ready-to-download-now/"><u>Complete Driver Package for HP Photosmart 7520 Ready to Download Now</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/hdr-mastery-for-home-and-professional-pcs/"><u>HDR Mastery for Home and Professional PCs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-channel-command-center-masterminding-visionary-content/"><u>In 2024, Channel Command Center Masterminding Visionary Content</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-get-ahead-with-these-must-know-pixlr-techniques/"><u>In 2024, Get Ahead with These Must-Know Pixlr Techniques</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-venture-into-virtuality-comprehensively-reviewing-top-10-vr-streamers/"><u>In 2024, Venture Into Virtuality Comprehensively Reviewing Top 10 VR Streamers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-zoom-and-gmail-collaboration-methods-for-2024/"><u>The Ultimate Zoom and Gmail Collaboration Methods for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-sides-novel-strategies-for-inverting-your-youtube-views/"><u>Unseen Sides Novel Strategies for Inverting Your YouTube Views</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>What is Geo-Blocking and How to Bypass it On Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-accelerating-learning-on-tiktok-changing-your-profile-number-for-2024/"><u>[New] Accelerating Learning on TikTok Changing Your Profile Number for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/lashing-feathersticks-short-film-characters-music/"><u>[New] Flashing Feathersticks Short Film Characters' Music</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/resh-concepts-for-youtube-channels-inspiration-at-its-peak-for-2024/"><u>[New] Fresh Concepts for YouTube Channels Inspiration at Its Peak for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-elite-filmmakers-merging-sounds-images/"><u>[New] In 2024, Elite Filmmakers Merging Sounds, Images</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/inpointing-youtubes-favorite-remarks/"><u>[New] Pinpointing YouTube's Favorite Remarks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubes-rivalry-the-leading-3-video-streaming-sites-for-2024/"><u>[New] YouTube's Rivalry The Leading 3 Video Streaming Sites for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-rpg-origins-vs-hybrid-designs-evolution/"><u>[Updated] 2024 Approved RPG Origins Vs. Hybrid Designs Evolution</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mobile-streams-on-youtube-less-than-1000-subs-no-problem/"><u>[Updated] Mobile Streams on YouTube Less Than 1000 Subs? No Problem</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-taste-the-thrill-crafting-engaging-food-network-names-for-2024/"><u>[Updated] Taste the Thrill Crafting Engaging Food Network Names for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-painters-touch-mastering-color-artistry/"><u>2024 Approved The Painter's Touch Mastering Color Artistry</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-your-blueprint-for-effective-professional-practice/"><u>ChatGPT: Your Blueprint for Effective Professional Practice</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-cutting-edge-youtube-end-card-tactics-and-layouts/"><u>In 2024, Cutting Edge Youtube End Card Tactics & Layouts</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-apple-iphone-14-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On Apple iPhone 14 Smoothly</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-how-to-install-missing-drivers-for-your-device-on-windows-10-8-and-7/"><u>Solved: How to Install Missing Driver(s) for Your Device on Windows 10, 8 & 7</u></a></li>
 </ul></div>
 

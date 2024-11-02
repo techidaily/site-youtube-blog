@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Zero to Hero  Crafting an Authoritative Online Self for 2024\""
-date: 2024-10-24T01:11:15.342Z
-updated: 2024-10-27T05:06:55.775Z
+date: 2024-10-29T17:09:19.962Z
+updated: 2024-11-01T20:32:39.631Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,10 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
@@ -58,16 +58,16 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
+<span id="1531879">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Elevator Pitch
@@ -87,10 +87,10 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -102,13 +102,6 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -129,6 +122,13 @@ The answers to these questions make up your brand. They may change gradually ove
 When you intentionally create your personal brand on YouTube, you take charge of the message you're sending.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,20 +151,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-proven-techniques-to-elevate-your-videos-sonic-palette-on-youtube/"><u>[New] 2024 Approved Proven Techniques to Elevate Your Video's Sonic Palette on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-essence-of-time-stretching-detailed-review-of-slomo-2e1924/"><u>[New] 2024 Approved The Essence of Time Stretching Detailed Review of SloMo, 2E1924</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-affiliate-acquaintanceships-elevating-budget-channels-with-ease-for-2024/"><u>[New] Affiliate Acquaintanceships Elevating Budget Channels with Ease for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/est-android-apps-youtube-video-downloads-compared/"><u>[New] Best Android Apps YouTube Video Downloads Compared</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/est-sites-to-buy-monetized-youtube-channels-for-beginners-for-2024/"><u>[New] Best Sites to Buy Monetized YouTube Channels for Beginners for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/eciphering-content-control-youtube-vs-creative-commons-license-for-2024/"><u>[New] Deciphering Content Control YouTube Vs. Creative Commons License for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-top-picks-best-amazon-prime-content-2023/"><u>[New] Twitter's Top Picks Best Amazon Prime Content 2023</u></a></li>
-<li><a href="https://network-issues.techidaily.com/recovered-state-after-glitch-nvidia-shows-stability/"><u>[Recovered State] After Glitch, Nvidia Shows Stability</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-essential-tv-gear-for-premium-live-broadcasts-for-2024/"><u>[Updated] Essential TV Gear for Premium Live Broadcasts for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-high-cash-content-creators/"><u>[Updated] High-Cash Content Creators</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-navigating-the-world-of-gopro-streaming-and-social-media-networks/"><u>[Updated] In 2024, Navigating the World of Gopro Streaming and Social Media Networks</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-unique-and-effective-the-best-username-options-to-dominate-tiktok/"><u>2024 Approved Unique and Effective The Best Username Options to Dominate TikTok</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/best-5-ai-powered-writers-to-ignite-imagination-and-ideas/"><u>Best 5 AI-Powered Writers to Ignite Imagination and Ideas</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-poco-m6-pro-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Poco M6 Pro 5G</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>In 2024, Unfolding Wonders Your Practical Guide to Travel Vlogging</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-from-still-screens-to-mp3-beats-insta-video-tips/"><u>[New] 2024 Approved From Still Screens to MP3 Beats - Insta Video Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rowth-galore-strategies-for-surpassing-yield-with-youtube-mobile-audiences-for-2024/"><u>[New] Growth Galore Strategies for Surpassing Yield with YouTube Mobile Audiences for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-gaming-history-told-by-top-video-makers/"><u>[New] In 2024, Gaming History Told by Top Video Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-spotlight-on-shared-screen-space/"><u>[New] In 2024, Spotlight on Shared Screen Space</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-your-youtube-potential-with-easy-techniques/"><u>[New] In 2024, Unleash Your YouTube Potential with Easy Techniques</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-premier-live-chat-platforms-for-virtual-gatherings-for-2024/"><u>[New] Premier Live-Chat Platforms for Virtual Gatherings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-storytelling-potential-making-youtube-trailers-in-filmora/"><u>[New] Unleashing Storytelling Potential Making YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-entry-level-mic-tips-for-youtube-voice-talents/"><u>[Updated] 2024 Approved Entry-Level Mic Tips for YouTube Voice Talents</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-preserve-your-favorite-tracks-from-youtube-safely-and-for-free/"><u>[Updated] 2024 Approved How to Preserve Your Favorite Tracks From YouTube Safely & for Free</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-content-revenue-accessing-youtubes-partner-benefits/"><u>[Updated] Unlock Content Revenue Accessing YouTube's Partner Benefits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-techniques-for-selective-youtube-video-downloading/"><u>2024 Approved Techniques for Selective YouTube Video Downloading</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/6l275p2plus5lplusu5asn5zkm5yis5yig56ob55uy5pww5o2u77ym5aac5l2v5pyj5pwi5zyw5pcs6lplusq5yiw5paw6k6plus5ash77yf/"><u>轻松修复和划分磁盘数据，如何有效地搬运到新设备？</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/detecting-and-removing-dplinka-trojan-o97m-variant-a-comprehensive-guide-by-malwarefox/"><u>Detecting & Removing DPLink.A Trojan (O97M Variant): A Comprehensive Guide by MalwareFox</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-15-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 15 Data From iOS iTunes? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-maximize-your-gameplay-in-depth-tips-and-tricks-for-freefirers/"><u>In 2024, Maximize Your Gameplay In-Depth Tips & Tricks for FreeFirers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-era-of-education-pearsons-precision-gsl-with-mondly/"><u>The New Era of Education: Pearson's Precision GSL with Mondly</u></a></li>
 </ul></div>
 

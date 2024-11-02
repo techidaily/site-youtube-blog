@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Perfect Your Presentation  The YT Guide to Background Softening\""
-date: 2024-10-24T00:55:33.756Z
-updated: 2024-10-26T20:55:13.714Z
+date: 2024-10-29T19:06:13.272Z
+updated: 2024-11-01T23:38:42.430Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -72,10 +79,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -96,22 +103,21 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
@@ -119,10 +125,10 @@ You see, the video background is blurred, and the people are highlighted. Now it
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -148,24 +154,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-transform-youtube-soundtracks-on-iphone-with-these-6-choices/"><u>[New] 2024 Approved Transform YouTube Soundtracks on iPhone with These 6 Choices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-step-by-step-guide-to-youtube-shorts-excellence/"><u>[New] A Step-by-Step Guide to YouTube Shorts Excellence</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximize-youtube-traction-affordable-audience-expansion-for-2024/"><u>[New] Maximize YouTube Traction Affordable Audience Expansion for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nderstanding-your-youtube-earnings-adsense-payments-per-thousand-viewer/"><u>[New] Understanding Your Youtube Earnings AdSense Payments per Thousand Viewer</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-increase-your-videos-impact-essential-keyword-analysis-resources/"><u>[Updated] 2024 Approved Increase Your Video's Impact Essential Keyword Analysis Resources</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-audacity-workshop-eloquent-silent-transitions/"><u>[Updated] Audacity Workshop Eloquent Silent Transitions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-co-create-content-to-maximize-youtube-follower-count/"><u>[Updated] Co-Create Content to Maximize YouTube Follower Count</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-add-chapters-to-youtube-videos/"><u>[Updated] How to Add Chapters to YouTube Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-real-time-videoimage-editing-easy-3dlut-use/"><u>[Updated] Real-Time Video/Image Editing Easy 3DLUT Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-and-effective-the-tp-link-archer-c9-an-in-depth-reevaluation/"><u>Affordable and Effective: The TP-Link Archer C9 - An In-Depth Reevaluation</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/discover-the-premier-complimentary-voice-transform-for-valorant/"><u>Discover the Premier, Complimentary Voice Transform for Valorant</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-scriptwriting-a-comprerancial-guide-to-slug-lines/"><u>In 2024, Scriptwriting A Comprerancial Guide to Slug Lines</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-taking-your-photos-and-videos-to-new-heights/"><u>In 2024, Taking Your Photos and Videos to New Heights</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-10-decibel-boosters-windows-macos-iphones/"><u>Leading 10 Decibel Boosters Windows, MacOS, iPhones</u></a></li>
-<li><a href="https://facebook.techidaily.com/reestablishing-access-a-step-by-step-password-guide/"><u>Reestablishing Access: A Step-by-Step Password Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/the-non-advanced-path-to-disk-replication/"><u>The Non-Advanced Path to Disk Replication</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ifa-scoreboard-tactics-in-infographics/"><u>Top FIFA Scoreboard Tactics in Infographics</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshoot-a-non-responsive-huion-pen-with-these-5-effective-techniques/"><u>Troubleshoot a Non-Responsive Huion Pen with These 5 Effective Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/anner-bliss-savor-your-complimentary-set-of-designs-for-2024/"><u>[New] Banner Bliss Savor Your Complimentary Set of Designs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gnite-your-passion-launching-an-epic-youtube-game-streaming-venture-for-2024/"><u>[New] Ignite Your Passion Launching an Epic YouTube Game-Streaming Venture for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-creme-de-la-fluid-simulation-games/"><u>[New] The Crème De La Fluid Simulation Games</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-video-presence-with-stellar-intros-in-imovie/"><u>[Updated] Elevate Your Video Presence with Stellar Intros in iMovie</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-building-a-brand-on-instagram-establishing-a-business-entity/"><u>[Updated] In 2024, Building a Brand on Instagram Establishing a Business Entity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-cutting-edge-gaming-earpieces-for-youtubers-for-2024/"><u>[Updated] The Cutting-Edge Gaming Earpieces for YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unmasking-youtubes-covert-video-collections/"><u>[Updated] Unmasking YouTube’s Covert Video Collections</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016030865-masterclass-overcoming-hearthstone-audio-malfunctions/"><u>Masterclass: Overcoming Hearthstone Audio Malfunctions !</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/maximize-your-savings-step-by-step-strategies-for-accessing-student-discounts-on-dell-products/"><u>Maximize Your Savings: Step-by-Step Strategies for Accessing Student Discounts on Dell Products</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ts-to-smoothly-resolving-youtube-short-issues/"><u>Secrets to Smoothly Resolving YouTube Short Issues</u></a></li>
+<li><a href="https://techidaily.com/sign-a-pdf-v12-document-with-digital-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Sign a PDF v1.2 document with digital signature software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/what-are-luts-and-how-they-change-your-photo-for-2024/"><u>What Are LUTs and How They Change Your Photo for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-10-25T03:18:44.726Z
-updated: 2024-10-27T04:58:28.086Z
+date: 2024-10-29T23:30:59.267Z
+updated: 2024-11-01T17:47:34.240Z
 tags:
   - ai video
   - ai youtube
@@ -36,16 +36,10 @@ If you are looking for Christmas entertainment this season you may be quick to l
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
@@ -53,10 +47,10 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
@@ -71,13 +65,6 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
@@ -90,6 +77,13 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
@@ -97,10 +91,10 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +118,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-illuminating-origins-a-comprehensible-guide-to-inverted-images-in-instagram/"><u>[New] 2024 Approved Illuminating Origins A Comprehensible Guide to Inverted Images in Instagram</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-seamless-video-transfer-from-youtube-to-instagram/"><u>[New] 2024 Approved Seamless Video Transfer From YouTube to Instagram</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-visual-storytelling-for-online-platforms-for-2024/"><u>[New] The Art of Visual Storytelling for Online Platforms for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-free-6-best-youtube-to-mp3-downloader-for-android/"><u>[Updated] In 2024, FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-youtube-income-101-from-ideas-to-earnings-in-action/"><u>2024 Approved YouTube Income 101 From Ideas to Earnings in Action</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/facile-extraction-et-sauvegarde-de-dvd-sur-pcs-avec-windows-ou-macos/"><u>Facile Extraction Et Sauvegarde De DVD Sur PCs Avec Windows Ou macOS</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-add-a-hidden-items-context-menu-option-in-windows-10-and-11/"><u>How to Add a Hidden Items Context Menu Option in Windows 10 & 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/reviving-madden-nfl-21-stability-a-step-by-step-fix-for-pc-players/"><u>Reviving Madden NFL 21 Stability: A Step-by-Step Fix for PC Players</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-product-analysis-into-income-via-video-platforms-for-2024/"><u>Turning Product Analysis Into Income via Video Platforms for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-cutting-edge-ai-photo-enhancement-suite/"><u>[New] 2024 Approved Cutting-Edge AI Photo Enhancement Suite</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-crafting-journeys-a-comprehensive-guide-for-aspiring-travel-content-creators/"><u>[New] In 2024, Crafting Journeys A Comprehensive Guide for Aspiring Travel Content Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-thumbnails-with-ease/"><u>[New] In 2024, Mastering YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-budget-channels-to-big-brands-youtube-sponsorships-demystified/"><u>[Updated] 2024 Approved From Budget Channels to Big Brands YouTube Sponsorships Demystified</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-make-a-youtube-subscribe-link-easy/"><u>[Updated] In 2024, How to Make a YouTube Subscribe Link - Easy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-essential-video-stock-investment-guides/"><u>2024 Approved Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-rise-to-the-top-mastering-youtube-descriptions-with-customizable-templates/"><u>2024 Approved Rise to the Top Mastering YouTube Descriptions with Customizable Templates</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-comprehensive-blueprint-for-vimeo-video-logging/"><u>2024 Approved The Comprehensive Blueprint for Vimeo Video Logging</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-14-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 14</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>In 2024, 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-poco-f5-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Poco F5 5G?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/ultimate-guide-10-budget-friendly-online-tools-to-convert-mp3s-into-text-documents/"><u>Ultimate Guide 10 Budget-Friendly Online Tools to Convert MP3s Into Text Documents</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-full-potential-of-windows-11-calendar/"><u>Unlocking Full Potential of Windows 11 Calendar</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Master the Art of Budget-Friendly YouTubes Intros and Ends\""
-date: 2024-10-24T23:39:47.078Z
-updated: 2024-10-27T01:16:42.033Z
+date: 2024-10-25T17:38:27.878Z
+updated: 2024-11-01T22:20:23.600Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,16 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,24 +158,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-watch-list-top-10-music-clips-on-facebook/"><u>[New] 2024 Approved The Ultimate Watch List Top 10 Music Clips on Facebook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/apturing-live-sounds-directly-from-youtube-videos/"><u>[New] Capturing Live Sounds Directly From YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-edit-your-way-to-success-iosandroid-apps-for-youtube-shorts/"><u>[New] In 2024, Edit Your Way to Success IOS/Android Apps for YouTube Shorts</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-perfecting-professional-productions-using-vimeos-tools/"><u>[New] Perfecting Professional Productions Using Vimeo's Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-creating-impactful-youtube-thumbnails-and-ads-for-2024/"><u>[Updated] Creating Impactful YouTube Thumbnails & Ads for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-growth-hacks-the-ultimate-list-of-5-youtube-strategies/"><u>[Updated] In 2024, Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-guide-what-is-it-and-how-to-make-shorts-video/"><u>[Updated] In 2024, YouTube Shorts Guide What Is It and How To Make Shorts Video?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-macs-2023-update-youtube-audio-to-mp3-step-by-step-for-2024/"><u>[Updated] Mac's 2023 Update YouTube Audio to MP3 Step-by-Step for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-tagging-elevate-your-youtube-content-for-2024/"><u>[Updated] Mastering Tagging Elevate Your YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-seo-101-boost-your-videos-visibility/"><u>[Updated] YouTube SEO 101 Boost Your Video's Visibility</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-fast-forward-memories-samsung-timelapse-basics/"><u>2024 Approved Fast-Forward Memories Samsung Timelapse Basics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-growth-hurdle-cleared-500-subscribers-win/"><u>2024 Approved Growth Hurdle Cleared 500 Subscribers Win</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovation-unleashed-cutting-edge-ar-games/"><u>2024 Approved Innovation Unleashed Cutting-Edge AR Games</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722976435667-approach-recall-the-standard-curing-period-from-the-facts-provided/"><u>Approach: Recall the Standard Curing Period From the Facts Provided</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-tasty-tales-ideal-naming-for-culinary-broadcasts/"><u>In 2024, Tasty Tales Ideal Naming for Culinary Broadcasts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-spoken-words-into-written-text-using-in-built-tools-of-office-suite-ms-word/"><u>In 2024, Transforming Spoken Words Into Written Text Using In-Built Tools of Office Suite - MS Word</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/leading-tech-choices-for-virtual-meetings/"><u>Leading Tech Choices for Virtual Meetings</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-asus-rog-phone-7-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Asus ROG Phone 7</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-13-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 13 Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-channel-roundup-students-best-picks-for-historical-insights-online/"><u>[New] 2024 Approved Channel Roundup Students' Best Picks for Historical Insights Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-from-words-to-memos-iphone-sound-guide/"><u>[New] From Words to Memos IPhone Sound Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigate-youtube-success-a-compreehensive-guide-to-analytics/"><u>[New] In 2024, Navigate YouTube Success A Compreehensive Guide to Analytics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/earn-youtube-editing-tricks-for-flawless-shortening-for-2024/"><u>[New] Learn YouTube Editing Tricks for Flawless Shortening for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-notes-and-alerts-implementation-for-2024/"><u>[Updated] Mastering YouTube Notes & Alerts Implementation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-small-business-video-markets-for-2024/"><u>[Updated] Navigating Small Business Video Markets for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-audible-mac-visual-record-functionality/"><u>2024 Approved Audible Mac Visual Record Functionality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-optimizing-income-a-trifecta-methodology-for-youtube-earnings-assessment/"><u>2024 Approved Optimizing Income A Trifecta Methodology for YouTube Earnings Assessment</u></a></li>
+<li><a href="https://extra-information.techidaily.com/boxing-battlegrounds-live-vs-virtual-warriors/"><u>Boxing Battlegrounds Live VS Virtual Warriors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/er-massive-content-views-on-youtube-efficiently-for-2024/"><u>Conquer Massive Content Views on YouTube Efficiently for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-llama-2-features-uses-and-advantages/"><u>Exploring LLAMA 2: Features, Uses & Advantages</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-enhancing-productivity-a-guide-to-ez-grabbers-use/"><u>In 2024, Enhancing Productivity A Guide to EZ Grabber's Use</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/simple-systems-a-step-by-step-guide-to-documenting-google-hangoutsmeet/"><u>Simple Systems A Step-by-Step Guide to Documenting Google Hangouts/Meet</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209643614-9781780990576-the-high-heeled-guide-to-enlightenment/"><u>The High Heeled Guide to Enlightenment | Free Book</u></a></li>
 </ul></div>
 
