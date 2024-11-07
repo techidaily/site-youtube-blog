@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less\""
-date: 2024-10-30T20:39:42.643Z
-updated: 2024-11-01T20:53:31.328Z
+date: 2024-11-05T16:32:17.150Z
+updated: 2024-11-07T19:42:06.324Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,10 @@ If you would like to change the on-screen position of the overlay clip, you shou
 ![Create reaction video with Filmora Picture in Picture feature ](https://images.wondershare.com/filmora/article-images/adjust-reaction-video-size-position.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Filmora offers more than sixty motion effects, hundreds of transitions, and visual effects that can make your reaction video more visually appealing to the audience.
@@ -78,13 +78,6 @@ Besides the Picture-in-Picture option, Filmora also enables you to [play two or 
 
 ![create reaction video with Filmora  Split Screen Templates](https://images.wondershare.com/filmora/article-images/add-split-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Afterward, you should drag the video clips from the Media tab and drop them onto the section of the preview window where you want them to be located. Keep in mind that you cannot add more than six videos to a split-screen template.
 
 ![Filmora  Edit Reaction Video with Split Screen Video](https://images.wondershare.com/filmora/article-images/reaction-video-advanced-split-screen-edit.jpg)
@@ -98,10 +91,10 @@ Check the details about [How to make a split-screen video](https://tools.techida
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 3: Create A YouTube Reaction Video with AI Portrait
@@ -111,6 +104,13 @@ With the human segmentation effect in AI Portrait, you can now blend the reactio
 Note: You can use this feature after version after V 10.5 for Windows, and V 10.4 for Mac. Click the button below to get the latest version of Filmora on your desktop.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 1:** Import the videos to the media library, and then drag the background video to the first video track, and the reaction video to the track above.
 
@@ -125,16 +125,10 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 ![adjust reaction video size](https://images.wondershare.com/filmora/article-images/customize-reaction-video-size.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4:** That’s the basic editing of making a reaction video. You can also add the neon or flashing effect to the video. If everything goes well, click Export and save the video.
@@ -142,10 +136,10 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 ![add neon flash effects to reaction video](https://images.wondershare.com/filmora/article-images/add-neon-flash-effects-to-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -169,10 +163,16 @@ Anyone can master the technical aspects of making a reaction video, but the topi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -196,17 +196,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-enhance-motion-capture-choose-wisely-among-gear/"><u>[New] 2024 Approved Enhance Motion Capture - Choose Wisely Among Gear</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-create-a-sports-highlight-video/"><u>[Updated] 2024 Approved How to Create a Sports Highlight Video</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-compendium-best-of-the-bunch-historical-youtubes-for-study/"><u>[Updated] In 2024, Channel Compendium Best of the Bunch - Historical YouTubes For Study</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-flutter-freedom-for-videos-the-best-tools-to-flv-to-youtubes/"><u>[Updated] In 2024, Flutter Freedom for Videos The Best Tools to Flv-to-YouTubes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-rookie-riches-economical-channels-for-monetization-for-2024/"><u>[Updated] Rookie Riches Economical Channels for Monetization for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-earnings-the-mean-daily-pay-from-youtube-adsense-per-k-viewers/"><u>[Updated] Unlocking Earnings The Mean Daily Pay From YouTube AdSense per K Viewers</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-the-ultimate-blueprint-for-assembling-engaging-tiktok-videos/"><u>2024 Approved The Ultimate Blueprint for Assembling Engaging TikTok Videos</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-switch-from-mbr-to-uefi-using-gpt-on-a-secure-boot-configuration-without-compromising-system-integrity/"><u>How to Switch From MBR to UEFI Using GPT on a Secure Boot Configuration Without Compromising System Integrity</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/e-views-effective-strategies-for-optimizing-youtube-collaborations/"><u>Ignite Views Effective Strategies for Optimizing YouTube Collaborations</u></a></li>
-<li><a href="https://article-files.techidaily.com/master-your-chromebooks-pitch-and-tone-with-our-top-5-web-tools-for-2024/"><u>Master Your Chromebook's Pitch and Tone with Our Top 5 Web Tools for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/newly-released-apple-unveils-13-and-15-macbook-air-models-powered-by-the-latest-m3-processor-key-features-highlighted-tech-news-on-zdnet/"><u>Newly Released: Apple Unveils 13 & 15 MacBook Air Models Powered by the Latest M3 Processor - Key Features Highlighted | Tech News on ZDNet.</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ultimate-solution-for-cyberpunk-2077-computer-freezing-issues/"><u>Ultimate Solution for Cyberpunk 2077 Computer Freezing Issues</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-background-video-recording-solutions/"><u>[New] 2024 Approved Background Video Recording Solutions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[New] 2024 Approved Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-the-secrets-of-swift-youtube-subtitle-insertion/"><u>[New] In 2024, Unveiling the Secrets of Swift YouTube Subtitle Insertion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-seo-mastery-balancing-titles-and-tags/"><u>[New] In 2024, YouTube SEO Mastery Balancing Titles and Tags</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nowledge-hub-leading-educational-youtube-sources/"><u>[New] Knowledge Hub Leading Educational YouTube Sources</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-smart-strategies-for-securely-saving-movie-moments-across-gadgets/"><u>[New] Smart Strategies for Securely Saving Movie Moments Across Gadgets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-simplicity-in-code-constructing-a-streamlined-youtube-sign-up/"><u>[Updated] Simplicity in Code Constructing a Streamlined YouTube Sign-Up</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-thriving-in-stardew-insiders-guide-to-ginger-island-for-2024/"><u>[Updated] Thriving in Stardew Insider's Guide to Ginger Island for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-design-a-great-gaming-youtube-banner-with-templates/"><u>2024 Approved How to Design a Great Gaming YouTube Banner with Templates</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/beginners-journey-into-langchain-llm-unveiling-the-basics/"><u>Beginner's Journey Into LangChain LLM: Unveiling the Basics</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-motorola-edge-40-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Motorola Edge 40 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ultimate-guide-to-installing-logitech-racing-wheels-on-windows-7810-free-download-links/"><u>Ultimate Guide to Installing Logitech Racing Wheels on Windows 7/8/10: Free Download Links!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/table-video-popularity-tracker-in-youtube-arena/"><u>Unbeatable Video Popularity Tracker in YouTube Arena</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ling-the-secrets-to-successful-youtube-channel-earnings/"><u>Unveiling the Secrets to Successful YouTube Channel Earnings</u></a></li>
 </ul></div>
 

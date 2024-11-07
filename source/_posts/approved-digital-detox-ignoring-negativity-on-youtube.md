@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Digital Detox  Ignoring Negativity on YouTube\""
-date: 2024-09-06T17:27:52.935Z
-updated: 2024-09-07T17:27:52.935Z
+date: 2024-11-06T16:36:53.699Z
+updated: 2024-11-07T18:35:43.058Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,18 @@ keywords: "Digital Detox Tips,Positive YouTubing,Screen Time Reduction,Mental We
 thumbnail: https://thmb.techidaily.com/2df210d64d34d4b3dc09759541c3c9d53d18577f1202b54d6fbdf849bf81ed68.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Digital Detox: Ignoring Negativity on YouTube
 
 # How To Deal with YouTube Trolls and Negative Comments
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -72,26 +54,17 @@ thumbnail: https://thmb.techidaily.com/2df210d64d34d4b3dc09759541c3c9d53d18577f1
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,4 +73,31 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discovering-the-best-drone-motor-choices-for-enhanced-control/"><u>[New] 2024 Approved Discovering the Best Drone Motor Choices for Enhanced Control</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-from-idea-to-live-stream-a-comprehensive-guide-for-instagram-and-obs-users/"><u>[New] 2024 Approved From Idea to Live Stream A Comprehensive Guide for Instagram & OBS Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/xpert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-taking-your-tweets-public-on-facebook/"><u>[New] In 2024, Taking Your Tweets Public on Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-key-to-successful-collaborations-in-the-digital-age-for-2024/"><u>[New] The Key to Successful Collaborations in the Digital Age for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-discover-the-10-yt-channels-with-swift-ascendancy-and-intellect-for-2024/"><u>[Updated] Discover the 10 YT Channels with Swift Ascendancy and Intellect for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-premier-templates-for-zooid-introduction/"><u>[Updated] In 2024, Premier Templates for Zooid Introduction</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-switching-spotify-playlists-transferring-to-youtube-music-format/"><u>[Updated] Switching Spotify Playlists Transferring to YouTube Music Format</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-high-stakes-hardware-showdown-for-2024/"><u>[Updated] YouTube’s High-Stakes Hardware Showdown for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-prime-windows-11-photo-inspector/"><u>2024 Approved Prime Windows 11 Photo Inspector</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/apex-1-written-by-assistant/"><u>Apex 1 Written by Assistant</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crucial-questions-before-acquiring-a-wi-fi-device/"><u>Crucial Questions Before Acquiring a Wi-Fi Device</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/moments-in-gameplay-with-casters/"><u>Epic Moments in Gameplay with Casters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-how-to-analyze-your-and-competitors-youtube-video/"><u>In 2024, How to Analyze Your and Competitor’s YouTube Video</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-maximize-your-screen-recording-experience-with-w8-tools/"><u>In 2024, Maximize Your Screen Recording Experience with W8 Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-your-fb-profile-top-tips-for-impressive-biographies/"><u>Mastering Your FB Profile Top Tips for Impressive Biographies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/6-youtube-beginnings-for-higher-engagement-for-2024/"><u>Top 16 YouTube Beginnings for Higher Engagement for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

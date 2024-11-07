@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Keep the Vision Clear Without Rests\""
-date: 2024-10-28T22:21:56.324Z
-updated: 2024-11-01T17:06:42.285Z
+date: 2024-11-03T16:26:31.964Z
+updated: 2024-11-07T18:38:37.316Z
 tags:
   - ai video
   - ai youtube
@@ -41,13 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -62,26 +55,26 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -101,6 +94,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -110,10 +110,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -159,20 +159,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[New] 2024 Approved Unleash Your FB Potential A Strategic Plan for More Likes and Shares</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-penny-pinching-picks-microphones-under-50/"><u>[New] In 2024, Penny-Pinching Picks Microphones Under $50</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-punpixel-producer/"><u>[New] PunPixel Producer</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nleash-creative-potential-best-free-title-crafting-for-yt-for-2024/"><u>[New] Unleash Creative Potential Best Free Title Crafting for YT for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-examining-youtubes-copyright-stance-versus-cc-approach/"><u>[Updated] 2024 Approved Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok/"><u>[Updated] The Quick-Clip Quandary YouTube Shorts' Advantage Over TikTok?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-youtube-community-guidelines/"><u>[Updated] Ultimate YouTube Community Guidelines</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-complete-voice-memo-primer-tips-and-tricks/"><u>2024 Approved The Complete Voice Memo Primer Tips & Tricks</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-top-animals-in-play-essential-android-titles-reviewed/"><u>2024 Approved Top Animals in Play Essential Android Titles Reviewed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-asus-rog-phone-7-ultimate-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Asus ROG Phone 7 Ultimate PC | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-samsung-galaxy-a54-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Samsung Galaxy A54 5G</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-elite-driving-sims-best-five-titles/"><u>In 2024, Elite Driving Sims Best Five Titles</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-the-hurdle-of-windows-11-stalled-updates-expert-solutions/"><u>Overcoming the Hurdle of Windows 11 Stalled Updates: Expert Solutions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/by-step-to-success-joining-youtubes-partner-program/"><u>Step-by-Step to Success Joining YouTube's Partner Program</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flash-fixing-fame-is-it-youtubes-shorts-or-tiktok-for-quick-content-conquest-for-2024/"><u>[New] Flash-Fixing Fame Is It YouTubes Shorts or TikTok for Quick Content Conquest for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-8-linux-compatible-cutting-apps/"><u>[New] In 2024, Top 8 Linux-Compatible Cutting Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-compilation-worlds-leading-youtube-mp3-downloaders/"><u>[Updated] 2024 Approved Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-obs-tutorial-broadcasting-on-youtube-from-home/"><u>[Updated] OBS Tutorial Broadcasting on Youtube From Home</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-economics-of-t-series-a-deep-dive-into-youtube-earnings/"><u>[Updated] The Economics of T-Series A Deep Dive Into YouTube Earnings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/affordable-office-suite-showdown-unveiling-the-perfect-budget-friendly-option-against-microsoft-office/"><u>Affordable Office Suite Showdown: Unveiling the Perfect Budget-Friendly Option Against Microsoft Office</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-essential-guide-for-swift-ipad-screen-captures/"><u>In 2024, The Essential Guide for Swift iPad Screen Captures</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unlocking-creativity-top-10-insider-canva-tricks/"><u>In 2024, Unlocking Creativity Top 10 Insider Canva Tricks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/online-mp4-to-m4a-recording-upgrade-convert-without-cost-using-movavis-tool/"><u>Online MP4 to M4A Recording Upgrade - Convert Without Cost Using Movavi's Tool</u></a></li>
 </ul></div>
 

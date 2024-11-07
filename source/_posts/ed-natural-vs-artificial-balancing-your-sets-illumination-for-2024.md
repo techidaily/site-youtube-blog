@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Natural Vs. Artificial  Balancing Your Set's Illumination for 2024\""
-date: 2024-10-28T00:43:20.097Z
-updated: 2024-11-01T16:13:58.155Z
+date: 2024-11-02T17:08:58.012Z
+updated: 2024-11-07T19:35:27.639Z
 tags:
   - ai video
   - ai youtube
@@ -50,20 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -92,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -105,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -116,6 +109,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,16 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/updated-a-peek-into-the-m1-max-clips-capabilities/"><u>[Updated] A Peek Into the M1 Max Clip's Capabilities</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-leading-tools-to-transform-your-vocal-recordings-for-2024/"><u>[Updated] Leading Tools to Transform Your Vocal Recordings for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-soundtrack-with-these-playlist-tips-for-youtube-for-2024/"><u>[Updated] Streamline Your Soundtrack with These Playlist Tips for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-conveying-excitement-perfecting-your-valorant-video-thumbnails-for-2024/"><u>[Updated] The Art of Conveying Excitement Perfecting Your Valorant Video Thumbnails for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-taming-unwanted-shake-in-drones-visual-outputs/"><u>2024 Approved Taming Unwanted Shake in Drones' Visual Outputs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/te-your-videos-youtube-trailers-through-filmora/"><u>Elevate Your Videos YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-reno-11-pro-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo Reno 11 Pro 5G</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-podcast-pioneers-effortless-livestream-tips/"><u>In 2024, Podcast Pioneers Effortless Livestream Tips</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mo-ra-iv-600-mega-pc-liquid-cooling-radiator-9x200mm-fans-heavyweight-design-for-superior-performance-over-35lbs-under-600/"><u>MO-RA IV 600 - Mega PC Liquid Cooling Radiator: 9X200mm Fans, Heavyweight Design for Superior Performance (Over 35Lbs) Under $600</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/quick-guide-transforming-your-obs-video-files-into-mp4-format-using-windows-tools/"><u>Quick Guide: Transforming Your OBS Video Files Into MP4 Format Using Windows Tools</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/step-by-step-tutorial-on-retrieving-videos-from-atandts-help-platform/"><u>Step-by-Step Tutorial on Retrieving Videos From AT&T's Help Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-building-brand-loyalty-tips-for-higher-fb-page-ranking/"><u>[New] In 2024, Building Brand Loyalty Tips for Higher FB Page Ranking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-innovating-film-viewing-with-iphone-tricks/"><u>[New] In 2024, Innovating Film Viewing with iPhone Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-masterclass-top-10-makeup-artists-shaping-online-beauty-trends/"><u>[New] In 2024, Masterclass Top 10 Makeup Artists Shaping Online Beauty Trends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-roadmap-to-mastering-your-youtube-video-editing-skills-for-2024/"><u>[New] The Ultimate Roadmap to Mastering Your YouTube Video Editing Skills for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-ultimate-selection-top-10-vimeo-download-tools-unveiled/"><u>[Updated] 2024 Approved The Ultimate Selection Top 10 Vimeo Download Tools Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlocking-content-potential-through-youtube-aspect-ratios/"><u>[Updated] 2024 Approved Unlocking Content Potential Through YouTube Aspect Ratios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-superior-sound-modification-equipment-for-video-artists/"><u>[Updated] Superior Sound Modification Equipment for Video Artists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-streamlined-sharing-the-best-shortened-link-apps-for-youtubers/"><u>2024 Approved Streamlined Sharing The Best Shortened Link Apps for Youtubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-playlist-building-step-by-step-expertise/"><u>2024 Approved YouTube Playlist Building Step-by-Step Expertise</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ce-your-online-presence-with-these-50-complimentary-banners/"><u>Enhance Your Online Presence with These 50 Complimentary Banners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-free-tribe-50-branding-banners-ready-to-unleash/"><u>In 2024, Free Tribe 50 Branding Banners Ready to Unleash!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/learning-nutritious-recipes-with-chatgpt-a-guide/"><u>Learning Nutritious Recipes with ChatGPT: A Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/speedy-streams-ios-media-on-your-pc-for-2024/"><u>Speedy Streams IOS Media on Your PC for 2024</u></a></li>
 </ul></div>
 

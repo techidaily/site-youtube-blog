@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering the Art of Uploading YouTube Shorts on Devices"
-date: 2024-10-30T00:04:37.058Z
-updated: 2024-11-01T19:21:25.302Z
+date: 2024-11-04T18:19:18.175Z
+updated: 2024-11-07T16:22:01.099Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,10 @@ For macOS 10.12 or later
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
@@ -94,6 +94,19 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -101,6 +114,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -113,13 +133,6 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -154,20 +167,13 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -190,17 +196,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-shortening-success-youtubes-leading-link-minimizers-compared/"><u>[New] 2024 Approved Shortening Success YouTube's Leading Link Minimizers Compared</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-step-by-step-process-for-free-youtube-educational-events/"><u>[New] 2024 Approved Step-by-Step Process for Free Youtube Educational Events</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-subscriber-supremacy-youtubes-front-runners/"><u>[New] 2024 Approved Subscriber Supremacy YouTube's Front-Runners</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-premiere-experts-exceptional-instagram-highlight-craftsmen/"><u>[New] Premiere Experts Exceptional Instagram Highlight Craftsmen</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-viral-video-hits-compilation/"><u>[Updated] In 2024, Facebook's Viral Video Hits Compilation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-shaping-viewers-attention-employing-jump-cuts-in-video-editing-for-2024/"><u>[Updated] Shaping Viewers’ Attention Employing Jump Cuts in Video Editing for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726222098139-wtv-wmv-movavi/"><u>「ワンクリックで無料オンラインWTV WMV Movaviへの変換ガイド」</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-craftsman-of-the-multimedia-medley/"><u>In 2024, Craftsman of the Multimedia Medley</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-decoding-the-core-contrasts-between-youtube-and-dailymention/"><u>In 2024, Decoding the Core Contrasts Between YouTube and DailyMention</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-anatomy-of-great-lower-thirds-a-guide-for-fcpx-editors/"><u>The Anatomy of Great Lower Thirds A Guide for FCPX Editors</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/unlocking-potential-top-tier-tutorials-and-tricks-for-home-improvement-by-steller-tech/"><u>Unlocking Potential: Top-Tier Tutorials and Tricks for Home Improvement by Steller Tech</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/vectors-decoded-for-newbies-diverse-forms-and-tool-options-for-2024/"><u>Vectors Decoded for Newbies Diverse Forms and Tool Options for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-your-viewing-experience-on-youtube-with-speed-settings/"><u>[New] In 2024, Optimize Your Viewing Experience on YouTube with Speed Settings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-ranking-reign-supreme-with-these-11-video-seo-techniques-on-youtube/"><u>[Updated] 2024 Approved Ranking Reign Supreme with These 11 Video SEO Techniques on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exemplary-audio-enhancing-programs-for-youtube-artists/"><u>[Updated] Exemplary Audio-Enhancing Programs for YouTube Artists</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-softening-the-edges-a-guide-to-dimmed-audio-in-logic-pro-for-2024/"><u>[Updated] Softening the Edges A Guide to Dimmed Audio in Logic Pro for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-blueprint-for-youtube-video-success-for-2024/"><u>[Updated] The Blueprint for YouTube Video Success for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unlocking-the-potential-of-windows-movie-maker-in-windows-8-environments/"><u>[Updated] Unlocking the Potential of Windows Movie Maker in Windows 8 Environments</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-scalable-techniques-for-vimeo-broadcasting/"><u>2024 Approved Scalable Techniques for Vimeo Broadcasting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-tech-spotlight-apples-new-era-with-the-4k-tv-gen3-model-overview/"><u>Cutting-Edge Tech Spotlight: Apple's New Era with the 4K TV Gen3 Model Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-friends-and-uncover-insights-via-poll-games/"><u>Engaging Friends & Uncover Insights via Poll Games</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from Oppo Reno 10 Pro+ 5G?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692674-9780760380147-moon-energy-for-beginners/"><u>Moon Energy for Beginners | Free Book</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-list-of-best-free-windows-seven-compatible-video-editors-no-cost-all-features/"><u>Ultimate List of Best Free Windows ˈseven-Compatible Video Editors - No Cost, All Features!</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-unhappy-with-sony-vegas-here-are-the-best-windows-alternatives-to-consider/"><u>Updated 2024 Approved Unhappy with Sony Vegas? Here Are the Best Windows Alternatives to Consider</u></a></li>
 </ul></div>
 

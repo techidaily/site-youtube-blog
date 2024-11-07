@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Adding Videos to Written Work  A Budget-Friendly Way\""
-date: 2024-11-01T00:13:26.191Z
-updated: 2024-11-01T18:11:31.142Z
+date: 2024-11-01T16:15:08.330Z
+updated: 2024-11-07T16:06:31.826Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -68,26 +68,26 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -95,6 +95,13 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -107,13 +114,6 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -136,19 +136,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pro-level-cams-for-aspiring-youtube-creators/"><u>[New] In 2024, Pro-Level Cams for Aspiring YouTube Creators</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-strategic-endings-keeping-viewers-engaged-on-yt/"><u>[New] In 2024, Strategic Endings Keeping Viewers Engaged on YT</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>[New] Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-unleashing-creativity-how-to-master-io-screen-capture-for-2024/"><u>[New] Unleashing Creativity How to Master IO Screen Capture for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-pathways-to-profitability-in-personal-vlogging/"><u>[Updated] 2024 Approved Pathways to Profitability in Personal Vlogging</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-whats-new-in-youtube-money-regulations/"><u>[Updated] 2024 Approved What's New in YouTube Money Regulations</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-smile-more-using-emojis-in-youtube-conversations/"><u>[Updated] In 2024, Smile More Using Emojis in YouTube Conversations</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-pro-level-hp-notebook-screen-recording-techniques-uncovered-for-2024/"><u>[Updated] Pro-Level HP Notebook Screen Recording Techniques Uncovered for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-rapidly-crafting-valorant-image-highlights-for-gamers/"><u>[Updated] Rapidly Crafting Valorant Image Highlights for Gamers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-streamlined-screen-recording-on-mac-best-apps-of-choice/"><u>[Updated] Streamlined Screen Recording on Mac Best Apps of Choice</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/expert-analysis-of-viair-88p-compact-compressor-incredible-strength-and-few-limitations/"><u>Expert Analysis of Viair 88P Compact Compressor: Incredible Strength and Few Limitations</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/social-media-impact-tiktoks-viral-tweets-at-the-forefront/"><u>Social Media Impact TikTok's Viral Tweets at the Forefront</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-performing-tablets-how-cpu-power-dictates-quality/"><u>Top-Performing Tablets: How CPU Power Dictates Quality</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/zooming-in-with-confidence-a-kinemaster-cinematographers-handbook/"><u>Zooming in with Confidence A Kinemaster Cinematographer's Handbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/arning-hacks-for-youtube-short-creators/"><u>[New] Earning Hacks for YouTube Short Creators</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expertise-in-cutting-edge-encoders-for-live-media/"><u>[New] Expertise in Cutting-Edge Encoders for Live Media</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/treamline-your-slides-with-these-4-youtube-video-inclusion-methods/"><u>[New] Streamline Your Slides with These 4 YouTube Video Inclusion Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enhance-engagement-mastering-template-based-video-description-writing/"><u>[Updated] Enhance Engagement Mastering Template-Based Video Description Writing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-frames-top-5-cost-free-techniques/"><u>[Updated] Mastering YouTube Frames Top 5 Cost-Free Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-dive-into-the-world-of-youtuber-shorts/"><u>2024 Approved Dive Into the World of Youtuber Shorts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1187259-9781846946790-colin-wilsons-occult-trilogy/"><u>Colin Wilson's 'Occult Trilogy' | Free Book</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Motorola Moto G13? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-visual-experience-and-performance-with-the-latest-imac-m1-chip-evaluation/"><u>Redefining Visual Experience and Performance with the Latest iMac M1 Chip Evaluation</u></a></li>
+<li><a href="https://games-able.techidaily.com/teaching-digital-literacy-for-your-childrens-safe-use-of-discorcrd/"><u>Teaching Digital Literacy for Your Children’s Safe Use of DiscoRcrd</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-solving-the-attempting-data-recovery-endless-cycle-on-iphone/"><u>Ultimate Guide: Solving the 'Attempting Data Recovery' Endless Cycle on iPhone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-the-routes-to-windows-control-panel-entry/"><u>Unveiling the Routes to Windows Control Panel Entry</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unseen Algorithms Powering YouTube's Viewer Statistics"
-date: 2024-10-25T17:01:51.031Z
-updated: 2024-11-01T18:13:26.172Z
+date: 2024-11-02T19:26:45.053Z
+updated: 2024-11-07T19:40:40.839Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -63,13 +70,6 @@ At times, your view count can even be frozen temporarily until the algorithm can
 
 You May Also Like:
 [ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. How Does YouTube’s View Count Algorithm Work?
 
@@ -87,6 +87,13 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -100,16 +107,10 @@ Any bot-like action will result in an account’s views do not be added to your 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Frozen YouTube View Counts
@@ -117,13 +118,6 @@ It’s not uncommon for viewers to watch a video for say five seconds, skip forw
 Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
 
 You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. The 301 Mark
 
@@ -134,16 +128,10 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -177,22 +165,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-game-streaming-tool-analysis-choose-obs-or-shadowplay-for-2024/"><u>[New] Game Streaming Tool Analysis Choose OBS or ShadowPlay for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-add-text-to-youtube-video/"><u>[New] In 2024, How to Add Text to YouTube Video</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nsiders-look-at-top-9-free-platforms-for-designing-youtube-logos-for-2024/"><u>[New] Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-compact-guide-to-creating-viral-music-on-youtube/"><u>[New] The Compact Guide to Creating Viral Music on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-free-youtube-revenue-predictor-tools-for-2024/"><u>[Updated] Free YouTube Revenue Predictor Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[Updated] In 2024, Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-leading-youtube-snack-seekers-free-top-downloads/"><u>[Updated] Leading YouTube Snack Seekers Free, Top Downloads</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigating-the-best-video-formats-for-your-youtube-channel/"><u>[Updated] Navigating the Best Video Formats for Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unified-vision-ventures-a-complete-cms-selection-journey-for-2024/"><u>[Updated] Unified Vision Ventures A Complete CMS Selection Journey for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-magic-6-lite-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor Magic 6 Lite</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/bringing-youtube-home-to-your-instagram-story-for-2024/"><u>Bringing YouTube Home to Your Instagram Story for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-masterclass-in-making-panzoids/"><u>In 2024, Masterclass in Making Panzoids</u></a></li>
-<li><a href="https://video-capture.techidaily.com/live-screen-record-on-chrome-pcs-for-2024/"><u>Live Screen Record on Chrome PCs for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-final-cut-pro-x-not-responding-heres-how-to-fix-it/"><u>New In 2024, Final Cut Pro X Not Responding? Heres How to Fix It</u></a></li>
-<li><a href="https://games-able.techidaily.com/sonys-summer-gaming-extravaganza-essential-picks/"><u>Sony’s Summer Gaming Extravaganza: Essential Picks!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/stuck-at-android-system-recovery-of-motorola-moto-g13-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Motorola Moto G13 ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/story-your-stage-youtube-video-mastery/"><u>Your Story, Your Stage YouTube Video Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-best-youtube-shorts-video-editor-tools-for-ios-and-android-devices/"><u>[New] In 2024, Best YouTube Shorts Video Editor Tools for iOS & Android Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-earning-through-youtube-an-overview/"><u>[New] In 2024, Earning Through YouTube An Overview</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mixing-masterclass-elevate-drone-audio-with-20-complimentary-luts/"><u>[New] Mixing Masterclass - Elevate Drone Audio with 20 Complimentary LUTs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-photozoomelite-ultimate-picture-scaler/"><u>[New] PhotoZoomElite Ultimate Picture Scaler</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-future-in-your-hands-screenflows-role-in-macos-innovation/"><u>[New] The Future in Your Hands ScreenFlow's Role in MacOS Innovation</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-advanced-tactics-preserving-the-integrity-of-whatsapp-talks/"><u>[Updated] Advanced Tactics Preserving the Integrity of WhatsApp Talks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-vocal-visions-instructions-for-posting-songs-on-youtube/"><u>[Updated] In 2024, Vocal Visions Instructions for Posting Songs on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-jest-and-jibe-constructing-parody-videos/"><u>[Updated] Jest and Jibe Constructing Parody Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-visual-producer-studio/"><u>[Updated] Visual Producer Studio</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-flash-photography-to-sustained-videography-your-pixiz-adventure/"><u>2024 Approved From Flash Photography to Sustained Videography Your Pixiz Adventure</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-in-the-app-store-think-twice-for-your-mac-security/"><u>ChatGPT in the App Store? Think Twice for Your Mac Security</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/competitive-exclusion-can-result-in-one-species-outcompeting-another-potentially-leading-to-extinction-cuadrado-de-cierre/"><u>Competitive Exclusion Can Result in One Species Outcompeting Another, Potentially Leading to Extinction. Cuadrado De Cierre</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-fix-winhttpdll-not-found-or-missing-errors/"><u>How to Fix Winhttp.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-gaming-earnings-in-the-future/"><u>Online Gaming Earnings in the Future</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-solution-how-to-recover-from-bsod-errors-on-your-pc/"><u>Step-by-Step Solution: How to Recover From BSOD Errors on Your PC</u></a></li>
 </ul></div>
 

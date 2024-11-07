@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unlock Your Video's Hidden Potential with These Top 20 Shortcuts"
-date: 2024-10-27T20:55:04.499Z
-updated: 2024-11-01T19:49:57.092Z
+date: 2024-10-31T17:40:14.750Z
+updated: 2024-11-07T19:10:06.331Z
 tags:
   - ai video
   - ai youtube
@@ -75,10 +75,16 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
@@ -93,6 +99,13 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -104,10 +117,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -124,13 +137,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -143,13 +149,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -161,6 +160,13 @@ In this section, you will learn how to pull up the list of important YouTube sho
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -193,20 +199,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-guide-to-free-converting-youtube-videos-to-wav/"><u>[New] 2024 Approved The Ultimate Guide to Free Converting YouTube Videos to WAV</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-reference-to-youtube-video-aspect-ratios/"><u>[New] 2024 Approved The Ultimate Reference to YouTube Video Aspect Ratios</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unlocking-the-secrets-of-successful-youtube-thumbnail-crafting/"><u>[New] 2024 Approved Unlocking the Secrets of Successful YouTube Thumbnail Crafting</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-youtubed-out-todays-most-fondly-watched-tracks/"><u>[New] 2024 Approved Youtubed Out Today's Most Fondly Watched Tracks</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-team-harmony-and-efficiency-8-recommended-facebook-timers/"><u>[New] Team Harmony and Efficiency 8 Recommended Facebook Timers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-photo-integration-for-personal-use/"><u>2024 Approved Effortless Photo Integration for Personal Use</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-from-silence-to-symphony-adding-music-and-voices-in-reels/"><u>2024 Approved From Silence to Symphony Adding Music & Voices in Reels</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-nvidia-quadro-drivers-for-windows-10-direct-from-manufacturer/"><u>Download Nvidia Quadro Drivers for Windows 10 - Direct From Manufacturer</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/global-tech-crisis-prevention-takes-center-stage-at-microsofts-security-conference-experts-weigh-in/"><u>Global Tech Crisis Prevention Takes Center Stage at Microsoft's Security Conference: Experts Weigh In</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-amplify-watcher-count-simplified-tactics-exposed/"><u>In 2024, Amplify Watcher Count Simplified Tactics Exposed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-building-brands-together-a-guide-to-selecting-youtube-teams/"><u>In 2024, Building Brands Together A Guide to Selecting YouTube Teams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-stream-a-comprehensive-ad-revenue-guide-on-youtube/"><u>In 2024, Elevate Your Stream A Comprehensive Ad Revenue Guide on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/penning-parting-prose-for-press-for-2024/"><u>Penning Parting Prose for Press for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/resolving-disabled-nvidia-screen-options/"><u>Resolving Disabled NVIDIA Screen Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-m-mock-1000a-the-supreme-18000mah-vehicle-booster-assessment/"><u>Ultimate Guide: M Mock 1000A - The Supreme 18000mAh Vehicle Booster Assessment</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-navigating-the-maze-choosing-the-right-vimeo-membership-plan/"><u>[New] 2024 Approved Navigating the Maze Choosing the Right Vimeo Membership Plan</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-your-full-youtube-potential-with-a-subscription/"><u>[New] In 2024, Unlock Your Full YouTube Potential with a Subscription</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-potential-your-ultimate-youtube-facebook-transition-guide/"><u>[New] In 2024, Unlocking Potential Your Ultimate YouTube-Facebook Transition Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-pinnacle-actions-recorder-assessment/"><u>[Updated] 2024 Approved Pinnacle Actions Recorder Assessment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-dissecting-youtube-policies-and-creative-commons-licensing-dichotomy-for-2024/"><u>[Updated] Dissecting YouTube Policies and Creative Commons Licensing Dichotomy for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-youtube-music-blends/"><u>[Updated] In 2024, Mastering YouTube Music Blends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-comprehensive-guide-to-enhancing-your-video-gaming-channels-for-2024/"><u>[Updated] The Comprehensive Guide to Enhancing Your Video Gaming Channels for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-six-visionary-camera-solutions-for-filmmaking/"><u>[Updated] Top Six Visionary Camera Solutions for Filmmaking</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-optimizing-screen-captures-expert-techniques-for-hp-laptops/"><u>2024 Approved Optimizing Screen Captures Expert Techniques for HP Laptops</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nticating-your-youtube-username-and-email/"><u>Authenticating Your YouTube Username & Email</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypass-buffs-expert-hacks-for-fast-tracking-league-of-legends-game-setup/"><u>Bypass Buffs: Expert Hacks for Fast-Tracking League of Legends Game Setup</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-your-content-top-8-no-cost-video-editing-software-for-2024/"><u>Elevate Your Content Top 8 No-Cost Video Editing Software for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-10-no-cost-video-cutting-apps/"><u>In 2024, Top 10 No-Cost Video Cutting Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-vs-dailymention-spotlighting-key-aspects/"><u>In 2024, YouTube Vs. DailyMention Spotlighting Key Aspects</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722898189991-is-it-time-to-switch-to-an-rtx-gpu/"><u>Is It Time To Switch to an RTX GPU?</u></a></li>
+<li><a href="https://win-able.techidaily.com/optimizing-your-windows-10-browser-how-to-fix-freezing-problems-with-google-chrome/"><u>Optimizing Your Windows 10 Browser: How to Fix Freezing Problems with Google Chrome</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-essential-checklist-for-dolby-atmos-installation-in-windows/"><u>The Essential Checklist for Dolby Atmos Installation in Windows</u></a></li>
 </ul></div>
 

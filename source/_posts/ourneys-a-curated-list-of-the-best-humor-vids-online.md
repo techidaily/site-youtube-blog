@@ -1,7 +1,7 @@
 ---
 title: "\"Joy Journeys  A Curated List of the Best Humor Vids Online\""
-date: 2024-10-31T23:53:34.316Z
-updated: 2024-11-01T18:08:30.233Z
+date: 2024-11-01T18:27:53.271Z
+updated: 2024-11-07T18:05:46.990Z
 tags:
   - ai video
   - ai youtube
@@ -151,13 +151,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Step 1: Download, install and launch**
 
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
@@ -220,14 +213,14 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.**David Dobrik**
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Total subscribers: 13,716,307
 
@@ -303,9 +296,29 @@ Total subscribers: 11.1M
 
 Emma Chamberlin cracks her fans with her carefree youthful personality and seemingly strange day-to-day activities shown in her vlogs. She usually comes up with hilarious original content pushing herself out of her comfort zone.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Funny Videos on YouTube?
 
 Filmora is a free and easy-to-use [video editing](https://tools.techidaily.com/wondershare/filmora/download/) software suitable for beginners. The software supports above 50 formats, Filmstock effects store, 4k editing, all basic and advanced editing tools in a manner used and easily accessible. Wondershare Filmora is a perfect editor for making funny videos on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here is a step-by-step guide on making funny videos on YouTube using Filmora
 
@@ -379,18 +392,25 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.**David Dobrik**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Total subscribers: 13,716,307
 
 David dobrik is well known for his goofy laugh mixed with absurd pranks by his fans. He is referred to as the king of pranks due to his crazy personality.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. **CollegeHumor**
 
@@ -422,25 +442,11 @@ Total subscribers : 111M
 
 PewDiePie, hosted by a Swedish-born YouTuber, also known as Felix Arvid Ulf Kjellberg, is considered one of the funniest YouTubers of all time, having the second most subscribed YouTube channel. His sparkling personality, high energy, and unique sense of humor bring people closer to his channel.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. **The Late Night Show**
 
 Total subscribers: 20,492,801
 
 The Late Night Show is hosted by James Corden, known for his skits and celebrity interviews. His new episodes are Carpool Karaoke, where Corden will pick up celebrities and musicians on his way to work and ask them questions while singing karaoke.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10. **Good Mythical Morning**
 
@@ -451,6 +457,13 @@ Good Mythical Morning is a show hosted by Rhett James McLaughlin and Charles Lin
 ### 11. **Tana Mongeau**
 
 Tana Mongeau, also known as Tana Paul, is a YouTuber and has her own MTV reality TV show. Tana often jokes about herself and what she does as a reckless tween living in Vegas. She would also make fun videos of herself and own up to being unreliable and irresponsible.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 12. **h3h3Productions**
 
@@ -490,16 +503,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Step 1: Download, install and launch**
 
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Step 2: Edit and Create Videos**
 
@@ -578,10 +591,10 @@ Total subscribers: 6,941,755
 First We Feast, whose popularity started growing when their season called "Hot Ones" hosted by Sean Evans dominated the Internet. It began as a food blog and then continued to post regular content on their website.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6. **Funny or Die**
@@ -655,13 +668,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Step 1: Download, install and launch**
 
@@ -714,22 +720,21 @@ Finding the best prank channels on YouTube to crack your rib during your boring 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-step-by-step-strategies-for-posting-and-uploading-gifs-on-instagram/"><u>[New] 2024 Approved Step-by-Step Strategies for Posting & Uploading GIFs on Instagram</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-livescreen-capture-halt-guidebook/"><u>[New] In 2024, LiveScreen Capture Halt Guidebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-tutorial-smoothly-embedding-urls-on-instagram-feed/"><u>[New] In 2024, Tutorial Smoothly Embedding URLs on Instagram Feed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rime-live-tech-the-most-popular-streaming-tools-reviewed/"><u>[New] Prime Live Tech The Most Popular Streaming Tools Reviewed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-visibility-with-youtube-branding-techniques-for-2024/"><u>[Updated] Elevate Your Visibility with YouTube Branding Techniques for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-strategic-insightfulness-comparing-your-channel-to-competitors-crafts/"><u>[Updated] In 2024, Strategic Insightfulness Comparing Your Channel to Competitors' Crafts</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-inclusive-iptv-broadcast-architecture/"><u>[Updated] Inclusive IPTV Broadcast Architecture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-key-strategies-for-adding-timestamps-in-youtube-content-for-2024/"><u>[Updated] Key Strategies for Adding Timestamps in YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-monthly-income-patterns-for-content-creators-for-2024/"><u>[Updated] Monthly Income Patterns for Content Creators for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pinnacle-sound-selections-android-based/"><u>[Updated] Pinnacle Sound Selections, Android-Based</u></a></li>
-<li><a href="https://win-able.techidaily.com/achieve-uninterrupted-gaming-fixing-maplestory-crash-issues-on-your-windows-11-machine/"><u>Achieve Uninterrupted Gaming - Fixing MapleStory Crash Issues on Your Windows 11 Machine</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/beginners-step-by-step-instructions-for-crafting-your-google-account/"><u>Beginners' Step by Step Instructions for Crafting Your Google Account</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-how-to-stay-on-top-of-youtube-moderation-standards/"><u>In 2024, How to Stay on Top of YouTube Moderation Standards</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y77t-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo Y77t to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo V29? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>In 2024, Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/e-narratives-increased-channel-visibility/"><u>Unique Narratives, Increased Channel Visibility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-downloading-your-youtube-watch-lists-step-by-step/"><u>[New] In 2024, Downloading Your YouTube Watch Lists Step by Step</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ultimate-guide-to-calculate-your-youtube-views-and-money/"><u>[New] In 2024, Ultimate Guide to Calculate Your YouTube Views and Money</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-behind-the-scenes-of-carminatis-youtube-earnings/"><u>[Updated] 2024 Approved Behind the Scenes of Carminati’s YouTube Earnings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[Updated] 2024 Approved Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-captivating-captions-writing-copy-that-drives-engagement-and-views/"><u>[Updated] In 2024, Captivating Captions Writing Copy That Drives Engagement and Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-tips-to-mastering-the-art-of-hashtag-creation-on-youtube/"><u>[Updated] In 2024, Top Tips to Mastering the Art of Hashtag Creation on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleash-creativity-with-youtube-list-mix-ups/"><u>[Updated] Unleash Creativity with YouTube List Mix-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dreaming-in-diversity-mondly-languages-two-year-odyssey/"><u>Dreaming in Diversity: Mondly Languages' Two-Year Odyssey</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/evaluating-the-value-of-applecareplus-is-it-a-smart-investment/"><u>Evaluating the Value of AppleCare+: Is It a Smart Investment?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-motorola-edgeplus-2023-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Motorola Edge+ (2023) Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-essential-tips-for-live-video-features-on-websites/"><u>In 2024, Essential Tips for Live Video Features on Websites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/migrate-your-memories-smoothly-transfer-images-from-sd-card-to-desktop-using-3-proven-techniques/"><u>Migrate Your Memories Smoothly: Transfer Images From SD Card to Desktop Using 3 Proven Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-the-best-for-you-a-detailed-look-at-the-linksys-wrt1900acs-an-open-source-wifi-masterpiece/"><u>The Ultimate Guide to Choosing the Best for You - A Detailed Look at the Linksys WRT1900ACS, An Open-Source WiFi Masterpiece</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/shing-potential-the-ultimate-pathway-to-effective-youtube-banners/"><u>Unleashing Potential The Ultimate Pathway to Effective YouTube Banners</u></a></li>
 </ul></div>
 
