@@ -1,7 +1,7 @@
 ---
 title: "[New] The Economic Escalade of Ajey and CarryMinati on YouTube for 2024"
-date: 2024-11-06T17:45:51.757Z
-updated: 2024-11-07T20:00:33.554Z
+date: 2024-11-15T00:03:16.946Z
+updated: 2024-11-18T02:36:42.596Z
 tags:
   - ai video
   - ai youtube
@@ -101,13 +101,6 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -172,15 +165,42 @@ Below we have answered some hot frequently asked questions about CarryMinati.
 
 No, till date, CarryMinati aka Ajay Nagar is not married.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How much CarryMinati earn from 1 video?
 
 Calculating the income from a YouTube video can be a complicated task that depends on several factors like views, likes, ads in the video, and more.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Which actors has Carry Minati interviewed?
 
 Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Henry Cavil, and others celebrities.
 
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -193,13 +213,6 @@ If you too have got inspired and looking forward to starting with some interesti
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 So, by now we know that CarryMinati aka Ajay Nagar is quite popular on YouTube. But, what does this popularity gets him in terms of money? Yes, this is an interesting question and the answer for this, you can check out in the next part of the topic.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: CarryMinati YouTube earning and stats
 
@@ -250,6 +263,13 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -261,13 +281,6 @@ This video is about the Indian Film Industry and the awards given to the stars. 
 <https://www.youtube.com/embed/10y9yefd%5FxY>
 
 It is an interesting video of around 17 minutes where Ajay Nagar has acted along with other people to create a fun plot based of PUBG game.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip: How to be a YouTuber and Make Videos like Carryminati
 
@@ -301,19 +314,6 @@ Step2 Next, go to Effects > Ai Portrait, and the options of the features can be 
 
 ![wondershare filmora ai portrait 2](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-05.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Drag the selected Portrait to the timeline and from the pop-up window choose to Purchase the additional module. You can check the result by playing the video. If needed multiple AI Portraits can be added to the video.
 
 ![wondershare filmora ai portrait 3](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-06.jpg)
@@ -327,37 +327,37 @@ Step5 When finally, all the settings are done, click on the Export button to sav
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hot FAQs on CarryMinati
 
 Below we have answered some hot frequently asked questions about CarryMinati.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Is Carry Minati married?
 
 No, till date, CarryMinati aka Ajay Nagar is not married.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How much CarryMinati earn from 1 video?
 
 Calculating the income from a YouTube video can be a complicated task that depends on several factors like views, likes, ads in the video, and more.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Which actors has Carry Minati interviewed?
 
@@ -366,10 +366,16 @@ Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Hen
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -403,20 +409,21 @@ If you too have got inspired and looking forward to starting with some interesti
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-critical-clip-climbers-ranking-video-hours-from-1-to-10/"><u>[New] In 2024, Critical Clip Climbers Ranking Video Hours From #1 to #10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-your-videos-first-moment-with-these-trendy-intros/"><u>[New] In 2024, Mastering Your Video's First Moment with These Trendy Intros</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rime-list-best-free-video-transcript-harvesters/"><u>[New] Prime List Best Free Video Transcript Harvesters</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ro-tips-for-effective-youtube-tag-utilization/"><u>[New] Pro Tips for Effective YouTube Tag Utilization</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/apid-redefinition-adjusting-youtube-on-mac-pixels-for-2024/"><u>[New] Rapid Redefinition Adjusting YouTube on Mac Pixels for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-explore-our-collection-50plus-unique-free-youtube-banner-ads/"><u>[Updated] Explore Our Collection 50+ Unique, Free YouTube Banner Ads</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/considering-an-rtx-heres-why-you-should-make-the-leap/"><u>Considering an RTX? Here's Why You Should Make The Leap!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-your-battle-passion-overcoming-warzone-startup-errors/"><u>Fix Your Battle Passion: Overcoming Warzone Startup Errors</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-playbook-youtube-gaming-success/"><u>In 2024, The Ultimate Playbook YouTube Gaming Success</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/laugh-ledger-cutting-edge-generators-for-jokes/"><u>Laugh Ledger Cutting-Edge Generators for Jokes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ct-your-youtube-presence-learn-to-create-engaging-ads-and-thumbnails/"><u>Perfect Your YouTube Presence Learn to Create Engaging Ads & Thumbnails</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-audio-glitches-resolving-arctis-n-7s-clicking-sounds-on-pcs-running-windows/"><u>Troubleshooting Audio Glitches: Resolving Arctis N 7'S Clicking Sounds on PCs Running Windows</u></a></li>
-<li><a href="https://discover-community.techidaily.com/ultimate-guide-to-manycam-top-live-streaming-software-and-fake-camera/"><u>Ultimate Guide to ManyCam - Top Live Streaming Software and Fake Camera</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211189274-9781800653535-walking-with-the-seasons/"><u>Walking with the Seasons | Free Book</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/why-does-my-photo-booth-videos-keep-freezing-in-2024/"><u>Why Does My Photo Booth Videos Keep Freezing, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-cultivate-creativity-inspiration-driven-video-titles/"><u>[Updated] Cultivate Creativity Inspiration-Driven Video Titles</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-examining-updates-the-2023-samsung-bd-j5900/"><u>[Updated] Examining Updates The 2023 Samsung BD-J5900</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-social-media-sites-pick-the-prime-option/"><u>[Updated] In 2024, Social Media Sites Pick the Prime Option</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-tailoring-your-online-persona-with-a-new-background-photo/"><u>[Updated] In 2024, Tailoring Your Online Persona with a New Background Photo</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-list-of-no-cost-sound-sites-for-filmmakers/"><u>[Updated] In 2024, The Ultimate List of No-Cost Sound Sites for Filmmakers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-visionary-storytelling-for-video-viewers-growth/"><u>[Updated] In 2024, Visionary Storytelling for Video Viewers' Growth</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-editing-incorporating-jump-cuts-in-video-content-for-2024/"><u>[Updated] Quick Editing Incorporating Jump Cuts in Video Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-setting-up-unique-youtube-shorts-thumbnails-for-2024/"><u>[Updated] Step-by-Step Setting Up Unique YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/7-high-motion-dslrs-for-dynamic-live-content-creation/"><u>Best 7 High-Motion DSLRs for Dynamic Live Content Creation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-download-and-install-toshiba-copiers-drivers-in-windows-os/"><u>How to Download & Install Toshiba Copiers' Drivers in Windows OS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-samsung-galaxy-z-fold-5-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Samsung Galaxy Z Fold 5 PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-undisclosed-strategy-sustains-cost-free-chatting-experience/"><u>Messenger's Undisclosed Strategy Sustains Cost-Free Chatting Experience</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/261746-9781101203903-past-lives/"><u>Past Lives | Free Book</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/pixel-nine-smartphone-steal-score-it-for-only-100-unveil-the-secret-tactic-on-zdnet/"><u>Pixel Nine Smartphone Steal: Score It for Only $100 – Unveil the Secret Tactic on ZDNET!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-innovations-with-elegoos-saturn-cube-xl-a-comprehensive-review-on-its-impact-in-resin-3d-technology/"><u>Unveiling Innovations with Elegoo's Saturn Cube XL - A Comprehensive Review on Its Impact in Resin 3D Technology</u></a></li>
 </ul></div>
 

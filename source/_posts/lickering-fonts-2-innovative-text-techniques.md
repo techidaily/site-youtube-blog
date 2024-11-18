@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Flickering Fonts  2 Innovative Text Techniques\""
-date: 2024-11-01T19:40:36.334Z
-updated: 2024-11-07T18:18:04.932Z
+date: 2024-11-13T02:15:44.439Z
+updated: 2024-11-17T17:06:59.430Z
 tags:
   - ai video
   - ai youtube
@@ -76,16 +76,10 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -101,10 +95,10 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -134,10 +128,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -155,16 +149,10 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -188,20 +176,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unveiling-hidden-gems-facebooks-video-treasures/"><u>[New] 2024 Approved Unveiling Hidden Gems Facebook's Video Treasures</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-curated-igtv-channels-that-matter-today/"><u>[New] In 2024, Curated IGTV Channels That Matter Today</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-revolutionize-your-lessons-implementing-youtube-in-the-academic-realm/"><u>[Updated] 2024 Approved Revolutionize Your Lessons Implementing YouTube in the Academic Realm</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>[Updated] 2024 Approved Skyrocketing Subscribers Free Techniques for YouTube Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-your-first-leap-onto-youtubes-platform/"><u>[Updated] 2024 Approved Your First Leap Onto YouTube's Platform</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-academic-journey-across-time-top-10-history-youtubers/"><u>[Updated] In 2024, Academic Journey Across Time Top 10 History YouTubers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-weaving-digital-tapestries-with-loom/"><u>[Updated] In 2024, Weaving Digital Tapestries with Loom</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-the-download-of-your-youtube-playlist-today/"><u>[Updated] Mastering the Download of Your YouTube Playlist Today!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-the-power-of-playback-turning-youtube-content-into-engaging-gifs-pcmobile/"><u>[Updated] Unleashing the Power of Playback Turning YouTube Content Into Engaging GIFs (PC/Mobile)</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1-paso-a-paso-transferir-y-mover-archivos-facilmente-en-windows-11/"><u>1. Paso a Paso: Transferir Y Mover Archivos Fácilmente en Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-tecno-spark-10-4g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Tecno Spark 10 4G for Streaming | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unveiling-top-freefire-strategies-on-youtube/"><u>In 2024, Unveiling Top FreeFire Strategies on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/iphone-scanning-and-book-recognition-with-ocr-technology-finereader-app/"><u>IPhone Scanning & Book Recognition with OCR Technology - FineReader App</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/trasforma-immagini-jpg-in-formato-jpeg-online-e-gratuitamente-con-movavi/"><u>Trasforma Immagini JPG in Formato JPEG Online E Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-mastery-creating-quality-videos-on-phones/"><u>YouTube Mastery Creating Quality Videos on Phones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-navigating-cross-track-dynamics-in-logic-pro-x/"><u>[New] 2024 Approved Navigating Cross-Track Dynamics in Logic Pro X</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/re-there-legal-constraints-in-capturing-online-video-screenshots-in-2024/"><u>[New] Are There Legal Constraints in Capturing Online Video Screenshots, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-instagram-content-with-visual-flair-for-2024/"><u>[New] Crafting Instagram Content with Visual Flair for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/itting-the-sweet-spot-top-5-tips-for-channel-growth-for-2024/"><u>[New] Hitting the Sweet Spot Top 5 Tips for Channel Growth for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-monetization-the-new-rules-everyone-hates/"><u>[Updated] 2024 Approved YouTube Monetization The New Rules Everyone Hates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-digital-artisans-exclusive-summit-for-2024/"><u>[Updated] Digital Artisans' Exclusive Summit for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-earning-strategies-for-successful-youtube-shorts-what-you-need-and-how-much/"><u>[Updated] In 2024, Earning Strategies for Successful Youtube Shorts What You Need & How Much?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-exploring-the-efficiency-of-modern-tunefab-recorders/"><u>[Updated] In 2024, Exploring the Efficiency of Modern Tunefab Recorders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-vlog-editing-essentials-utilizing-jump-cuts-rightly-for-2024/"><u>[Updated] Vlog Editing Essentials Utilizing Jump Cuts Rightly for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/5-must-have-desktop-writing-assistants-windows/"><u>5 Must-Have Desktop Writing Assistants (Windows)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-t2-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo T2 5G</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-apple-iphone-se-2022-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-solutions-to-fix-content-warning-on-your-voice-chat-apps/"><u>Step-by-Step Solutions to Fix 'Content Warning' On Your Voice Chat Apps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-samsung-galaxy-s24plus-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Samsung Galaxy S24+ FRP Bypass</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfectly Positioned Cards  YouTube Embedding Techniques\""
-date: 2024-11-04T16:57:01.874Z
-updated: 2024-11-07T17:29:06.867Z
+date: 2024-11-13T21:30:48.256Z
+updated: 2024-11-17T20:07:33.565Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,16 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +108,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,10 +153,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,22 +180,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/iggle-galore-curating-the-funniest-10-short-form-web-series-ideas/"><u>[New] Giggle Galore Curating the Funniest 10 Short-Form Web Series Ideas</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-tailoring-youtube-shorts-thumbnails-made-simple/"><u>[New] In 2024, Tailoring Youtube Shorts Thumbnails Made Simple</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-crescendo-camera-making-music-videos-on-mobile-devices/"><u>[New] In 2024, The Crescendo Camera Making Music Videos on Mobile Devices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-wealth-wave-on-your-screen-monetizing-as-a-streamer/"><u>[New] In 2024, Wealth Wave on Your Screen Monetizing as a Streamer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-automatic-youtube-playback-on-social-media-hubs/"><u>[Updated] 2024 Approved Mastering Automatic YouTube Playback on Social Media Hubs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-best-live-recording-gadgets-for-youtube-content-creators/"><u>[Updated] In 2024, Best Live Recording Gadgets for YouTube Content Creators</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-innovating-your-online-presence-expert-tips-for-video-enhancement-after-upload/"><u>[Updated] Innovating Your Online Presence Expert Tips for Video Enhancement After Upload</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-usb-webcam-drivers-instantly-simple-steps-guide/"><u>Download USB Webcam Drivers Instantly - Simple Steps Guide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-vivo-y56-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo Y56 5G Phone Screen?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unveiling-tseries-youtube-revenue-strategy/"><u>In 2024, Unveiling TSeries' YouTube Revenue Strategy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ering-success-innovative-youtube-strategies/"><u>Pioneering Success Innovative YouTube Strategies</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/solving-the-problem-ensuring-new-dvds-are-compatible-with-your-home-media-device/"><u>Solving the Problem: Ensuring New DVDs Are Compatible with Your Home Media Device</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/me-choices-for-inexpensive-film-assets/"><u>Supreme Choices for Inexpensive Film Assets</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-beginners-path-to-chatgpt-on-android/"><u>The Beginner's Path to ChatGPT on Android</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-windows-phone-video-players-essential-app-selections/"><u>Top Windows Phone Video Players Essential App Selections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-say-no-to-youtube-shorts-forever-your-guide/"><u>[New] In 2024, Say No to YouTube Shorts Forever Your Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-social-savvy-fetching-and-storing-twitters-animated-gifs/"><u>[New] In 2024, Social Savvy Fetching and Storing Twitter's Animated GIFs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-sparking-viewers-interest-top-youtube-themes-for-channels/"><u>[New] In 2024, Sparking Viewers' Interest Top YouTube Themes for Channels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-revised-video-standards-aspect-ratios-included/"><u>[New] In 2024, Twitter's Revised Video Standards Aspect Ratios Included</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ho-earns-more-in-the-video-market-dailymovement-vs-youtube/"><u>[New] Who Earns More in the Video Market? DailyMovement Vs YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ensuring-effective-monetization-strategies-for-yt-channels/"><u>[Updated] In 2024, Ensuring Effective Monetization Strategies for YT Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ver-top-platforms-for-youtube-brand-partnerships-for-2024/"><u>Discover Top Platforms for YouTube Brand Partnerships for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/sive-mcb-logo-designs-and-templates-for-2024/"><u>Exclusive MCB Logo Designs and Templates for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instas-best-practices-choosing-videography-sizes-and-formats-for-2024/"><u>Insta's Best Practices - Choosing Videography Sizes & Formats for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/key-tips-for-configuring-and-measuring-effective-fb-instream-ads/"><u>Key Tips for Configuring and Measuring Effective FB Instream Ads</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/remove-device-supervision-from-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>Remove Device Supervision From your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/switching-flipbook-reading-direction-how-to-convert-from-rtl-to-ltr-on-flipplercom/"><u>Switching Flipbook Reading Direction: How to Convert From RTL to LTR on flippler.com?</u></a></li>
 </ul></div>
 

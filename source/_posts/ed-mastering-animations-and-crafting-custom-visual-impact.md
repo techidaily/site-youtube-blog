@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Animations & Crafting Custom Visual Impact"
-date: 2024-11-05T16:56:44.655Z
-updated: 2024-11-07T17:43:03.520Z
+date: 2024-11-11T21:21:27.524Z
+updated: 2024-11-17T23:30:15.444Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,16 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +86,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +99,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,22 +126,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ighly-compensated-online-visionary-creator-for-2024/"><u>[New] Highly Compensated Online Visionary Creator for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-learn-cinematic-techniques-with-youtube-veterans-and-novices/"><u>[New] In 2024, Learn Cinematic Techniques with YouTube Veterans and Novices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-social-media-integration-for-amplified-youtube-shorts-reach/"><u>[New] In 2024, Social Media Integration for Amplified YouTube Shorts Reach</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-comprehensive-guide-to-youtube-video-captioning/"><u>[Updated] Comprehensive Guide to YouTube Video Captioning</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-comprehensive-blueprint-to-youtube-banner-effectiveness/"><u>[Updated] In 2024, The Comprehensive Blueprint to YouTube Banner Effectiveness</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-virtual-voyage-youtubes-premier-10-vr-video-experience/"><u>[Updated] In 2024, Virtual Voyage YouTube's Premier 10-VR Video Experience</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>[Updated] The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-transforming-tweetstream-into-hd-visionary-content/"><u>[Updated] Transforming Tweetstream Into HD Visionary Content</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-uncovered-the-hidden-youtube-shorts-fix/"><u>2024 Approved Uncovered The Hidden YouTube Shorts Fix</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/copyright-freedom-tunes-best-free-melodies-for-zen-for-2024/"><u>Copyright-Freedom Tunes - Best Free Melodies for Zen for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/decoding-wi-fi-phone-calls-a-complete-overview/"><u>Decoding Wi-Fi Phone Calls: A Complete Overview</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/all-vids-premier-insights-into-youtube-tracks-for-2024/"><u>Football Vids Premier Insights Into YouTube Tracks for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-infinix-note-30-pro-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Infinix Note 30 Pro Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317723-9781401921422-sara-book-3/"><u>Sara, Book 3 | Free Book</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/to-sonoma-or-not-on-my-mac-making-the-choice/"><u>To Sonoma or Not on My Mac? Making the Choice</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-to-fix-the-black-screen-problem-during-discord-screenshare/"><u>Troubleshooting Guide: How to Fix the 'Black Screen' Problem During Discord Screenshare</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-skyrocket-your-channel-growth-with-these-top-5-video-marketing-methods/"><u>[New] In 2024, Skyrocket Your Channel Growth with These Top 5 Video Marketing Methods</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-youtube-to-igtv-top-methods-unveiled-for-2024/"><u>[Updated] From YouTube to IGTV Top Methods Unveiled for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-learn-the-art-of-live-screen-sharing-on-snapchat-for-2024/"><u>[Updated] Learn the Art of Live Screen Sharing on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-foundational-steps-to-your-distinctive-marketing-voice-for-2024/"><u>[Updated] The Foundational Steps to Your Distinctive Marketing Voice for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-fraudulent-fronts-navigating-the-minefield-of-fake-youtube-viewers/"><u>2024 Approved Fraudulent Fronts Navigating the Minefield of Fake YouTube Viewers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/complete-overview-of-full-scene-in-ppro/"><u>Complete Overview of Full Scene in PPro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ehensively-reviewing-youtubes-restrictions-vs-cc-flexibility-for-2024/"><u>Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-craft-engaging-narratives-for-facebook-reels/"><u>In 2024, How to Craft Engaging Narratives for Facebook Reels</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-what-you-need-is-user-friendly-ways-to-put-together-film-while-helping-you-add-fancy-creative-effects-and-perfect-for-sharing-well-show-you-3-ea/"><u>New In 2024, What You Need Is User-Friendly Ways to Put Together Film While Helping You Add Fancy Creative Effects and Perfect for Sharing. Well Show You 3 Easy Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-your-contents-signature-adding-watermarks-and-logo-to-youtube-videos/"><u>Secure Your Content's Signature Adding Watermarks & Logo to Youtube Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silencing-sound-irregularities-expert-advice-on-correcting-pop-noises-in-windows/"><u>Silencing Sound Irregularities: Expert Advice on Correcting Pop Noises in Windows</u></a></li>
 </ul></div>
 
