@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Monetizing Your Content on YouTube\""
-date: 2024-11-12T04:21:06.433Z
-updated: 2024-11-18T01:33:12.280Z
+date: 2024-11-25T22:31:48.343Z
+updated: 2024-11-27T21:47:15.678Z
 tags:
   - ai video
   - ai youtube
@@ -63,19 +63,6 @@ The first requirement to monetize your channel is to increase your subscribers t
 
 These policies are a collection of documents containing all the policies, guidelines, and terms that apply to the YouTube Partner Program and advertising programs.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Availability in your region
 
 It would be best if you were in the listed countries where Youtube Partner Program is available.
@@ -136,6 +123,10 @@ This tool only requires your channel URL. Copy and paste the URL and click 'Chec
 
 The Youtube money calculator will show you the exact profit you are earning per day and will let you track your earnings daily, weekly and monthly. You can use the youtube money calculator to see if you should stop or continue your videos. You will also get to know how to improve your income.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How does YouTube send you money? Illustrate the mechanism
 
 To receive money from Youtube, you must have an AdSense account linked with google and your Youtube channel. Let us find out how YouTube sends you money. Follow the steps mentioned below:
@@ -172,6 +163,10 @@ Blippihis is a fun character for kids who make educational videos for them. His 
 
 This Irish YouTube personality has a vlogging and video games channel. This year, he has over 28 million subscribers and makes about $300,000 per month, making his net worth around $16 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 15\. [David Dobrik](https://www.youtube.com/c/DavidDobrik) – $20 million
 
 David, a viral social media star, has gathered 18.2 million subscribers and over 8 billion views. His combined followers from different social media platforms are over 45 million. David's other business endeavors and social media success explain his worth of $20 million.
@@ -184,16 +179,13 @@ Nastya is an eight-year-old Russian girl who, in just a few years, has become on
 
 They are Best known as the comedy duo Rhett and Link, one of the best comedy channels on youtube. Their YouTube channel has made them a combined $20 million fortune thanks to the success of their TV show Good Mythical Morning, which currently has around 17.5 million subscribers and over 7.8 billion views.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 12\. [Lilly Singh](https://www.youtube.com/c/LillySingh) – $20 million
 
 Lilly Singh has comedic sketches featuring other YouTubers and celebrities in her YouTube videos. She released his first YouTube video in 2010, and his comedy sketches have attracted more than 14 million subscribers. Her total worth is $20 million.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 11\. [Preston Arsement](https://www.youtube.com/c/PrestonPlayz) – $20 million
 
@@ -219,6 +211,10 @@ Daniel Middleton has made millions from his gaming YouTube channel DanTDM. He's 
 
 Mark's channel is one of the top 100 most subscribed Youtube channels. His career as a writer, actor, director and producer made him a fortune of $35 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5.[Felix Kjellberg (AKA PewDiePie)](https://www.youtube.com/user/PewDiePie) – $40 million
 
 Pewdiepie channel is often among the most subscribed channels on YouTube, and today it has around a whopping 111 million subscribers and over 28.2 billion views. Despite some setbacks, he still earned a staggering net worth of $40 million.
@@ -242,6 +238,10 @@ You don't normally meet a 10-year-old with a $100 million fortune, but Ryan Kaji
 ## Part 4: Alternative ways to earn more money from YouTube
 
 Some people think they can't make money from YouTube...but that's not true. You can make good money from YouTube, even as a newbie. It just takes some persistence and hard work to make that happen. We'll show you some alternative ways to make more money on YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Make Good Content Continuously
 
@@ -327,20 +327,21 @@ These policies are a collection of documents containing all the policies, guidel
 
 It would be best if you were in the listed countries where Youtube Partner Program is available.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Strike free channel
 
 Remember to avoid any strikes if you are planning to monetize your channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. 4,000 watch hours
 
 To qualify as a creator with a sustainable audience, you'll need at least 4,000 public watch hours within 12 months in your channel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. AdSense account
 
@@ -418,13 +419,6 @@ Roman Atwood became famous with prank videos on his YouTube channel back in 2009
 
 KSI is number 18 on our list, with a net worth of $15 million. In 2009, he created a new channel under the name moniker KSI. Now his channel has about 23.7 million subscribers and over 5.8 billion views.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 17\. [Stevin John (AKA Blippi)](https://www.youtube.com/c/Blippi) – $16 million
 
 Blippihis is a fun character for kids who make educational videos for them. His channel is available in several languages and has over 16.4 million subscribers, leaving Stevin with a net worth of $16 million.
@@ -449,13 +443,6 @@ They are Best known as the comedy duo Rhett and Link, one of the best comedy cha
 
 Lilly Singh has comedic sketches featuring other YouTubers and celebrities in her YouTube videos. She released his first YouTube video in 2010, and his comedy sketches have attracted more than 14 million subscribers. Her total worth is $20 million.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 11\. [Preston Arsement](https://www.youtube.com/c/PrestonPlayz) – $20 million
 
 Preston Arsement has made it to Forbes magazine as one of the most paid internet entrepreneurs of 2022\. His channel PrestonPlayz has attracted 21 million subscribers; now, he has a net worth of $20 million.
@@ -463,13 +450,6 @@ Preston Arsement has made it to Forbes magazine as one of the most paid internet
 ### 10\. [James Charles](https://www.youtube.com/c/JamesCharles) – $22 million
 
 James Charles is a makeup artist who started by making YouTube videos about makeup tutorials and has since made a career. His makeup collection and clothing line business, along with youtube tutorials, made him a fortune of $22 million.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. [Evan Fong](https://www.youtube.com/user/VanossGaming) – $25 million
 
@@ -503,6 +483,10 @@ Dude Perfect is an entertainment, sports, and comedy brand that creates high-qua
 
 Logan's little brother Jake Paul started his content creation career at 16\. His Youtube channel got hit early, and now he boasts over 20.4 million subscribers and 8.1 billion views.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. [Ryan Kaji](https://www.youtube.com/c/RyanToysReview/featured) – $100 million
 
 You don't normally meet a 10-year-old with a $100 million fortune, but Ryan Kaji is a rare exception. Ryan's toy reviews have attracted more than two million subscribers and more than 50.7 billion views.
@@ -516,6 +500,10 @@ Some people think they can't make money from YouTube...but that's not true. You 
 Making good content that people love to watch repeatedly is a great way to earn more money. The key is improving the content continuously every week, month, or year.
 
 Creating content that is both entertaining and informative helps people to make decisions. An audience can get a lot of information from the video, but if it is not of good quality, it will not have a good impression.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Bonus: Spice up your videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -532,19 +520,6 @@ A royalty-free stock media, smart templates, and visual effects plug-ins will he
 ### AI Portrait
 
 Remove backgrounds from photographs with great accuracy, plus includes 80+ artificial intelligence portraits and photo editing stickers.
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Green Screen
 
@@ -570,13 +545,6 @@ But brands tend to sponsor only content deemed relevant to the brand. So if you 
 
 ## Hot FAQs on YouTube channel monetization
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. What if I don't meet the program threshold?
 
 While trying to meet the threshold, focus on making content that will stand out from the competition and build your channel.
@@ -584,6 +552,10 @@ While trying to meet the threshold, focus on making content that will stand out 
 ### 2\. If I meet the threshold, do I automatically get into the YouTube Partner Program (YPP)?
 
 No, the Youtube team will review every channel that passes the threshold. You cannot apply to join the YPP if your account has any active Community Guidelines strike. Plus, your channel must follow Youtube policies and guidelines.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How much money does 1 million views make?
 
@@ -620,22 +592,18 @@ Your content must be unique so your viewers will want to stick around and engage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-step-by-step-process-to-crafting-impressive-youtube-shorts-templates/"><u>[New] 2024 Approved Step-By-Step Process to Crafting Impressive YouTube Shorts Templates</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-futuristic-enlightenment-the-best-30-virtual-musings/"><u>[New] Futuristic Enlightenment The Best 30 Virtual Musings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dancefloor-directives-expert-dj-video-downloads/"><u>[New] In 2024, Dancefloor Directives Expert DJ Video Downloads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-undisclosed-terrain-of-youtube-archives/"><u>[New] In 2024, Navigating the Undisclosed Terrain of YouTube Archives</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boost-channels-to-partner-status-in-under-90-days-start-now-for-2024/"><u>[Updated] Boost Channels to Partner Status in Under 90 Days, Start Now for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-6-best-youtube-shorts-downloaders-free-and-online/"><u>[Updated] In 2024, 6 Best YouTube Shorts Downloaders [Free & Online]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-shake-free-video-post-capture-tips-and-tricks/"><u>[Updated] Shake-Free Video Post-Capture Tips & Tricks</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-your-youtube-comment-tracking-on-multiple-devices-for-2024/"><u>[Updated] Unlocking Your YouTube Comment Tracking on Multiple Devices for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-combo-guide-zooming-into-facebook-streaming/"><u>2024 Approved The Ultimate Combo Guide Zooming Into Facebook Streaming</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-unlock-cross-platform-content-sharing-convert-and-upload-with-these-tools/"><u>2024 Approved Unlock Cross-Platform Content Sharing Convert and Upload with These Tools</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-mastery-of-youtube-closings-insider-tips-and-resources/"><u>In 2024, Mastery of YouTube Closings - Insider Tips and Resources</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-lava-agni-2-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Lava Agni 2 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-80-pro-straight-screen-edition-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Honor 80 Pro Straight Screen Edition Users</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ltimate-guide-to-selecting-from-the-top-9-free-youtube-tools-for-2024/"><u>The Ultimate Guide to Selecting From the Top 9 FREE YouTube Tools for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/tutorial-para-criar-e-modificar-videos-em-camera-lenta-no-ios-fazer-com-o-seu-iphone/"><u>Tutorial Para Criar E Modificar Vídeos Em Câmera Lenta No iOS - Fazer Com O Seu iPhone!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-vs-youtube-which-is-better-in-2024/"><u>Vimeo vs YouTube Which Is Better, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-the-craft-of-youtubers-music-reaction-videos-essentials/"><u>[New] 2024 Approved Mastering the Craft of Youtubers Music Reaction Videos Essentials</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-laugh-loom-image-stitcher/"><u>[New] In 2024, Laugh Loom Image Stitcher</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-breakthrough-techniques-for-streaming-success-obs-studio-android-for-2024/"><u>[Updated] Breakthrough Techniques for Streaming Success OBS Studio (Android) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-through-the-sea-of-user-interactions-on-youtube-for-2024/"><u>[Updated] Navigating Through the Sea of User Interactions on YouTube for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-audacity-audio-basics-for-new-mac-users/"><u>2024 Approved Audacity Audio Basics for New Mac Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-light-intensity-in-hdr-scrutinized-beneficial/"><u>2024 Approved Light Intensity in HDR Scrutinized Beneficial?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-the-course-for-youtube-keyword-mastery-for-2024/"><u>Charting the Course for YouTube Keyword Mastery for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpts-mixing-expertise-unveiled/"><u>ChatGPT's Mixing Expertise Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-aid-to-recover-googles-nonresponsive-windows-share-app/"><u>Quick Aid to Recover Google's Nonresponsive Windows Share App</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-fix-game-loop-issues-in-games-on-windows-11-and-windows-10/"><u>Resolved: Fix Game Loop Issues in Games on Windows 11 & Windows 10</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/troubleshooting-and-repairing-sound-issues-in-windows-107/"><u>Troubleshooting and Repairing Sound Issues in Windows 10/7</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ling-the-secrets-of-effective-video-sharing-fb/"><u>Unveiling the Secrets of Effective Video Sharing (FB)</u></a></li>
 </ul></div>
 

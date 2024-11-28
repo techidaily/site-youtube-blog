@@ -1,7 +1,7 @@
 ---
 title: "\"From Stillness to Stirring  Tips for Bouncing Text\""
-date: 2024-09-02T07:23:01.299Z
-updated: 2024-09-03T07:23:01.299Z
+date: 2024-11-21T23:15:24.878Z
+updated: 2024-11-27T20:46:24.236Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/07b2aab86c7b38cc417b46120335b85009ee66f18
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -46,11 +50,19 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
@@ -69,6 +81,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +161,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-from-raw-footage-to-highlight-hits/"><u>[New] In 2024, From Raw Footage to Highlight Hits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nvestigating-how-t-series-earns-from-youtube-viewership/"><u>[New] Investigating How T-Series Earns From YouTube Viewership</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-transformative-tiktok-editing-three-ways-to-alter-video-borders-for-2024/"><u>[New] Transformative TikTok Editing Three Ways to Alter Video Borders for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-best-hashtags-for-youtube-gaming-videos-for-2024/"><u>[Updated] The Best Hashtags for YouTube Gaming Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-videography-insights-on-youtube-studio-editor/"><u>2024 Approved Elevate Your Videography Insights on YouTube Studio Editor</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-tecno-phantom-v-flip-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Tecno Phantom V Flip Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/canon-mf4770n-driver-update-in-windows-1187/"><u>Canon MF4770n Driver Update in Windows 11/8/7</u></a></li>
+<li><a href="https://win-best.techidaily.com/comment-surveiller-et-gerer-efficacement-les-systemes-client-dans-votre-entreprise/"><u>Comment Surveiller Et Gérer Efficacement Les Systèmes Client Dans Votre Entreprise</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hering-the-language-of-copyright-notices-from-youtube-for-2024/"><u>Deciphering the Language of Copyright Notices From YouTube for 2024</u></a></li>
+<li><a href="https://win-web.techidaily.com/from-text-to-tabs-easily-convert-microsoft-word-files-into-engaging-flipbooks-on-flipbuildercom/"><u>From Text to Tabs: Easily Convert Microsoft Word Files Into Engaging Flipbooks on FlipBuilder.com</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-find-and-download-the-newest-hp-laptop-drivers-compatible-with-windows-os/"><u>How to Find and Download the Newest HP Laptop Drivers Compatible with Windows OS</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-navigating-through-youtubes-revenue-flow-after-monetization/"><u>In 2024, Navigating Through YouTube's Revenue Flow After Monetization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nalize-your-soundtrack-constructing-a-youtube-playlist-from-home-and-on-the-move-for-2024/"><u>Personalize Your Soundtrack Constructing a YouTube Playlist From Home & On-the-Move for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209913043-9781733343718-stormys-words-of-wisdom/"><u>Stormy's Words of Wisdom | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-7-affordable-solutions-to-watch-movies-on-pcs-for-2024/"><u>Top 7 Affordable Solutions to Watch Movies on PCs for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

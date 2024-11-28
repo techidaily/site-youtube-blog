@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Craft Eye-Catching YouTubes End Titles for 2024\""
-date: 2024-11-12T22:27:13.007Z
-updated: 2024-11-17T22:20:25.347Z
+date: 2024-11-26T16:13:53.253Z
+updated: 2024-11-27T19:47:51.052Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/de2b8c65401e9876b1b1a5fbf84a14916f9f22a18
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -73,6 +77,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -83,10 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,15 +154,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/he-rewind-revolution-novel-strategies-for-youtube-viewers/"><u>[New] The Rewind Revolution Novel Strategies for YouTube Viewers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-detailed-steps-to-supercharge-your-youtube-audio-content/"><u>[Updated] In 2024, Detailed Steps to Supercharge Your YouTube Audio Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-secrets-to-successful-youtube-filmmaking-with-pc-editing-software-for-2024/"><u>[Updated] Secrets to Successful YouTube Filmmaking with PC Editing Software for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-windowcut-film-maker-for-2024/"><u>[Updated] WindowCut Film Maker for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/5-innovative-ways-to-tailor-the-xbox-game-bar-for-optimal-gaming-on-windows/"><u>5 Innovative Ways to Tailor the Xbox Game Bar for Optimal Gaming on Windows</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/bulk-flv-file-conversion-at-no-charge-transform-into-avi-wmv-mp4-and-mp3-formats-easily/"><u>Bulk FLV File Conversion at No Charge: Transform Into AVI, WMV, MP4 & MP3 Formats Easily!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/remier-selector-master-your-video-grabs-for-2024/"><u>The Premier Selector Master Your Video Grabs for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/thumbnail-enhancement-strategies-for-higher-clickthrough-rates-on-youtube/"><u>Thumbnail Enhancement Strategies for Higher Clickthrough Rates on YouTube</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-xiaomi-mix-fold-3-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Xiaomi Mix Fold 3 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-v27e-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2023-facebook-video-downloader-application-for-mobilewinmac-for-2024/"><u>[New] 2023 | Facebook Video Downloader Application for Mobile/Win/Mac for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-where-is-youtube-video-manager-all-you-need-to-know/"><u>[New] 2024 Approved Where Is Youtube Video Manager? [All You Need to Know]</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-aural-artistry-the-magic-of-sound-fading/"><u>[New] Aural Artistry The Magic of Sound Fading</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-path-to-ethical-expansion-youtube-traffic-enhancement/"><u>[New] In 2024, The Path to Ethical Expansion YouTube Traffic Enhancement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/usical-masterclasses-in-15-short-video-formats-on-youtube/"><u>[New] Musical Masterclasses in 15 Short Video Formats on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-optidrive-specialists-judgment/"><u>[New] OptiDrive Specialists Judgment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hattering-synthetic-statistics-on-youtube-for-2024/"><u>[New] Shattering Synthetic Statistics on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content/"><u>[Updated] In 2024, From Live Demos to Online Sharing Mastering iDevice Screenshots for Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-solo-shots-showmanship-elevate-your-youtube-persona-for-2024/"><u>[Updated] Solo Shots Showmanship Elevate Your YouTube Persona for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>[Updated] Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/capturing-joy-in-switchs-best-card-choices/"><u>Capturing Joy in Switch's Best Card Choices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exposing-the-threat-of-fraudgpt-top-strategies-for-self-protection/"><u>Exposing the Threat of FraudGPT – Top Strategies for Self-Protection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-flip-the-script-on-classic-films-7-list/"><u>In 2024, Flip the Script on Classic Films, #7 List</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-sm-bus-driver-software-free-download-compatible-with-all-recent-windows-versions/"><u>Latest SM Bus Driver Software Free Download Compatible with All Recent Windows Versions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-best-video-editing-software-for-mac/"><u>New In 2024, Best Video Editing Software for Mac</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-gaming-choice-the-inescapable-magic-of-our-12-tycoons-for-2024/"><u>Top Gaming Choice The Inescapable Magic of Our #12 Tycoons for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-the-transition-from-gasoline-cars-to-evs/"><u>Understanding the Transition From Gasoline Cars to EVs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unravel-video-chat-snags-solutions-for-zoom-audio-distortion/"><u>Unravel Video Chat Snags Solutions for Zoom Audio Distortion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-vs-micro-video-which-outperforms-for-2024-youtubes-shorts-or-tiktoks/"><u>Vlogging Vs. Micro-Video Which Outperforms for 2024 YouTubes Shorts or TikToks?</u></a></li>
 </ul></div>
 

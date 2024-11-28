@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Evolution of Engagement  Key Post-VidCon Events\""
-date: 2024-11-17T04:04:23.735Z
-updated: 2024-11-17T22:28:53.182Z
+date: 2024-11-25T21:36:32.912Z
+updated: 2024-11-27T19:11:33.745Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -150,6 +158,10 @@ Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
 **Passes:**
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -233,25 +253,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-tailoring-your-viewing-experience-with-youtube-tv/"><u>[New] 2024 Approved Tailoring Your Viewing Experience with YouTube TV</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-comprehensive-guide-to-nikon-d7500-performance/"><u>[New] Comprehensive Guide to Nikon D7500 Performance</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-hidden-details-you-need-to-know-about-youtube-tv-service/"><u>[New] In 2024, Hidden Details You Need to Know About YouTube TV Service</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/p3-streaming-simplified-youtube-upload-in-three-steps-for-2024/"><u>[New] MP3 Streaming Simplified YouTube Upload in Three Steps for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-must-visit-websites-for-text-design-elements-download/"><u>[New] Must-Visit Websites for Text Design Elements Download</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-studio-editor-step-by-step-video-tutorial-creation/"><u>[Updated] 2024 Approved YouTube Studio Editor Step-by-Step Video Tutorial Creation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-exploring-youtubes-operations-after-video-upload/"><u>2024 Approved Exploring YouTube's Operations After Video Upload</u></a></li>
-<li><a href="https://program-issues.techidaily.com/crashing-no-more-effortless-fixes-for-stable-play-in-titanfall-2/"><u>Crashing No More: Effortless Fixes for Stable Play in Titanfall 2</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/crucial-9-faqs-for-every-electric-car-shopper/"><u>Crucial 9 FAQs for Every Electric Car Shopper</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-enable-quiet-youtube-bgplay-for-iphone-and-android/"><u>In 2024, Enable Quiet YouTube BGPlay for iPhone & Android</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-top-vr-headset-companies/"><u>In 2024, Top VR Headset Companies</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-removing-devices-from-your-google-home-setup/"><u>Step-by-Step Guide: Removing Devices From Your Google Home Setup</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-solutions-for-finding-and-replacing-the-lost-mfc42dll-file/"><u>Step-by-Step Solutions for Finding and Replacing the Lost mfc42.dll File</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-choose-your-perfect-wedding-tales-youtubes-finest-8/"><u>[New] 2024 Approved Choose Your Perfect Wedding Tales - Youtube's Finest 8</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-curating-youtube-music-experiences/"><u>[New] 2024 Approved Curating YouTube Music Experiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-diverging-paths-youtube-licensing-and-creative-commons/"><u>[New] 2024 Approved Diverging Paths YouTube Licensing & Creative Commons</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevating-your-vlog-with-proper-tripod-angles/"><u>[New] 2024 Approved Elevating Your Vlog with Proper Tripod Angles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-perfect-visual-experience-on-youtube-with-professional-techniques/"><u>[New] 2024 Approved Perfect Visual Experience on YouTube with Professional Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] In 2024, Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-backward-glance-proven-strategies-for-pinpointing-picture-sources-on-instagram-for-2024/"><u>[Updated] A Backward Glance Proven Strategies for Pinpointing Picture Sources on Instagram for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cost-efficient-game-capture-learn-to-livestran-a-match/"><u>[Updated] Cost-Efficient Game Capture Learn to Livestran a Match</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-personal-growth-chronicles-for-youtube-audience/"><u>[Updated] In 2024, Personal Growth Chronicles for YouTube Audience</u></a></li>
+<li><a href="https://video-capture.techidaily.com/adobe-premiere-promov/"><u>Adobe Premiere ProでMOVファイルを出力する詳細な入門ガイド</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-xiaomi-redmi-13c-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Redmi 13C 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-sparkling-access-methods-for-new-users/"><u>In 2024, Sparkling Access Methods for New Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-legal-to-record-youtube-in-2024/"><u>Is It Legal to Record YouTube, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-channel-mastery-coordinated-content-consumption/"><u>Multi-Channel Mastery Coordinated Content Consumption</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-excellence-mirrorless-cameras-vs-traditional-dslrs/"><u>Video Excellence Mirrorless Cameras vs Traditional DSLRs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-the-best-youtube-symbols-are-hidden/"><u>Where the Best YouTube Symbols Are Hidden</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

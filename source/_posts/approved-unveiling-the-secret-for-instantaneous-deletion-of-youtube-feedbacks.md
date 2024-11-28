@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Secret for Instantaneous Deletion of Youtube Feedbacks\""
-date: 2024-11-12T16:35:16.670Z
-updated: 2024-11-18T03:37:52.356Z
+date: 2024-11-22T17:23:00.053Z
+updated: 2024-11-27T19:04:16.990Z
 tags:
   - ai video
   - ai youtube
@@ -75,10 +75,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -94,6 +91,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -116,10 +117,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -139,13 +137,14 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -153,13 +152,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,17 +174,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-ideal-recording-gear-for-vloggers/"><u>[New] 2024 Approved Ideal Recording Gear for Vloggers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>[New] 2024 Approved Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-uncovering-asmr-truths-for-viewers/"><u>[New] In 2024, Uncovering ASMR Truths for Viewers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-video-popularity-a-comprehensive-guide-to-tagging-on-youtube-for-2024/"><u>[Updated] Unlocking Video Popularity A Comprehensive Guide to Tagging on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-maximize-your-device-choose-from-the-7-best-android-adblockers/"><u>2024 Approved Maximize Your Device Choose From the 7 Best Android AdBlockers</u></a></li>
-<li><a href="https://program-issues.techidaily.com/beat-minecrafts-persistent-frozen-screen-a-comprehensive-guide-to-smoother-gameplay/"><u>Beat Minecraft's Persistent Frozen Screen : A Comprehensive Guide to Smoother Gameplay</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/brighten-your-video-with-android-tricks/"><u>Brighten Your Video with Android Tricks</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/lent-sound-devices-for-video-blogs/"><u>Excellent Sound Devices for Video Blogs</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-resolve-iphone-screen-brightness-malfunctions-with-these-7-quick-fixes/"><u>How to Resolve iPhone Screen Brightness Malfunctions with These 7 Quick Fixes</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-13-pro-max-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 13 Pro Max When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gb-required-for-one-full-movie-hour-by-hour/"><u>In 2024, GB Required for One Full Movie, Hour by Hour</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-real-score-separating-authentic-from-artificial-subscribers-online/"><u>In 2024, The Real Score Separating Authentic From Artificial Subscribers Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[New] 2024 Approved Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-deciphering-digital-dominance-youtube-content-strategy-comparison/"><u>[New] 2024 Approved Deciphering Digital Dominance YouTube Content Strategy Comparison</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dslr-cameras-stand-against-mirrorless-for-videographers/"><u>[New] 2024 Approved DSLR Camera's Stand Against Mirrorless for Videographers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-end-your-videos-professionally-with-these-free-tools-top-6/"><u>[New] 2024 Approved End Your Videos Professionally with These Free Tools (Top 6)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-enhance-click-through-rates-with-good-thumbnails/"><u>[New] 2024 Approved Enhance Click-Through Rates with Good Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-increase-viewership-fairly-insights-for-video-marketers/"><u>[New] 2024 Approved Increase Viewership Fairly Insights for Video Marketers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-youtube-adjust-your-video-privacy-settings/"><u>[New] 2024 Approved Mastering YouTube Adjust Your Video Privacy Settings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mini-youtube-content-explained/"><u>[New] 2024 Approved Mini YouTube Content Explained</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-convenient-approaches-to-archive-vimeo-video-for-2024/"><u>[New] Convenient Approaches to Archive Vimeo Video for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-honorable-warriors-reimagined-best-matching-gaming-titles-for-2024/"><u>[New] Honorable Warriors, Reimagined Best Matching Gaming Titles for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users-for-2024/"><u>[Updated] FB Story Downloads Decoded A Quick & Convenient Guide for All Users for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-itel-p40-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-meizu-21-pro-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Meizu 21 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/easy-guide-on-converting-and-downloading-skillmeup-video-content-in-various-formats/"><u>Easy Guide on Converting and Downloading SkillMeup Video Content in Various Formats</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/les-8-moyens-pour-trouver-un-fichier-disparu-sur-windows-11-guide-complet-et-pratique/"><u>Les 8 Moyens Pour Trouver Un Fichier Disparu Sur Windows 11 - Guide Complet Et Pratique</u></a></li>
+<li><a href="https://blog-min.techidaily.com/macx-dvd-ripper-pro-shop-securely-and-enjoy-special-offers-today/"><u>MacX DVD Ripper Pro: Shop Securely & Enjoy Special Offers Today!</u></a></li>
+<li><a href="https://win11.techidaily.com/mastery-at-your-fingertips-drag-and-drop-tabs-in-file-explorer-windows-11/"><u>Mastery at Your Fingertips: Drag & Drop Tabs in File Explorer, Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-7-cameras-elevating-virtual-event-coverage-and-vlogging/"><u>Prime 7 Cameras Elevating Virtual Event Coverage and Vlogging</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-samsung-galaxy-a05s-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Samsung Galaxy A05s</u></a></li>
 </ul></div>
 

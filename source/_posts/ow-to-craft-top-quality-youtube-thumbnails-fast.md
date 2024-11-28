@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Craft Top Quality YouTube Thumbnails Fast"
-date: 2024-11-10T19:51:54.359Z
-updated: 2024-11-17T21:39:38.883Z
+date: 2024-11-22T21:51:21.951Z
+updated: 2024-11-27T17:46:31.602Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -63,6 +67,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -75,9 +83,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -86,6 +102,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -118,26 +138,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/lite-online-collection-of-video-downloader-tools/"><u>[New] Elite Online Collection of Video Downloader Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nlock-google-meets-potential-on-youtube-with-this-guide-for-2024/"><u>[New] Unlock Google Meet's Potential on YouTube with This Guide for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-6-ways-to-increase-audience-retention-on-youtube-filmora-for-2024/"><u>[Updated] 6 Ways To Increase Audience Retention on YouTube - Filmora for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-easy-steps-to-personalize-google-meet-on-laptops-and-mobile-devices/"><u>2024 Approved Easy Steps to Personalize Google Meet on Laptops & Mobile Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-evaluation-pros-and-cons-of-pioneers-bdr-xd05b-blu-ray-burning-device/"><u>Expert Evaluation: Pros and Cons of Pioneer's BDR-XD05B Blu-Ray Burning Device</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>From Ordinary to Outstanding Crafting Unique Shorts Thumbnails</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-prime-10-youtube-historians-top-picks-for-learning/"><u>In 2024, Prime 10 YouTube Historians’ Top Picks for Learning</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/photo-puzzles-crafted-spark-joy-and-inspiration-for-2024/"><u>Photo Puzzles Crafted Spark Joy and Inspiration for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/understanding-and-solving-the-windows-10-0x80240034-update-failure/"><u>Understanding and Solving the Windows 10 0X80240034 Update Failure</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/windows-10dvd2/"><u>Windows 10で映像ファイルをDVDへ変換する手順：最新の無料ツールと優れた解像度の方法2つ</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/windows-11-data-protection-tips-and-solutions-safeguard-your-system-with-expert-advice/"><u>Windows 11 Data Protection Tips & Solutions – Safeguard Your System with Expert Advice</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/enthusiasts-go-to-guide-on-youtube/"><u>Yoga Enthusiasts' Go-To Guide on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unpacking-the-best-youtube-music-reactions-2023/"><u>[New] 2024 Approved Unpacking the Best YouTube Music Reactions, 2023</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/emystifying-video-seo-on-youtube-as-a-novice-for-2024/"><u>[New] Demystifying Video SEO on YouTube as a Novice for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levating-video-previews-a-compreayer-approach-for-youtube-for-2024/"><u>[New] Elevating Video Previews A Compreayer Approach for YouTube for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-exploring-imovies-default-crop-settings/"><u>[New] In 2024, Exploring iMovie's Default Crop Settings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-checklist-before-choosing-youtube-tv/"><u>[New] In 2024, The Ultimate Checklist Before Choosing YouTube TV</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-next-gen-samsung-gear-360-finding-your-perfect-replacement-for-2024/"><u>[New] The Next Gen Samsung Gear 360 - Finding Your Perfect Replacement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nlocking-youtubes-potential-key-tactics-for-expanding-your-viewership/"><u>[New] Unlocking YouTube's Potential Key Tactics for Expanding Your Viewership</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/our-complimentary-access-to-50-premium-youtube-banners-for-2024/"><u>[New] Your Complimentary Access to 50 Premium YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-hitting-the-sweet-spot-top-5-tips-for-channel-growth-for-2024/"><u>[Updated] Hitting the Sweet Spot Top 5 Tips for Channel Growth for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-smooth-transition-of-short-videos-to-youtube-device-guide-for-2024/"><u>[Updated] Smooth Transition of Short Videos to YouTube - Device Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omic-hold-techniques-for-clarity-for-2024/"><u>Ergonomic Hold Techniques for Clarity for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-androids-leading-downloader-choice-the-ultimate-top-10-list-of-fb-video-tools/"><u>In 2024, Android's Leading Downloader Choice The Ultimate Top 10 List of FB Video Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-can-128gb-hold-extensive-video-content/"><u>In 2024, Can 128GB Hold Extensive Video Content?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ranking-the-real-heavies-youtube-video-watch-hours-top-10/"><u>In 2024, Ranking the Real Heavies YouTube Video Watch Hours Top 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-viewership-on-multiple-channels-youtube-and-friends/"><u>In 2024, Unlocking Viewership on Multiple Channels (YouTube & Friends)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximizing-efficiency-in-the-office-leveraging-chatgpt-for-enhanced-workflow-management/"><u>Maximizing Efficiency in the Office: Leveraging ChatGPT for Enhanced Workflow Management</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/resolviendo-el-problema-por-que-desaparecen-las-fotos-de-la-tarjeta-sd-en-tu-camara/"><u>Resolviendo El Problema: Por Qué Desaparecen Las Fotos De La Tarjeta SD en Tu Cámara</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/windows-10-compatible-drivers-for-your-epson-ds-530-download-and-setup-steps/"><u>Windows 10 Compatible Drivers for Your Epson DS-530: Download & Setup Steps</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "YouTube's Easy Guide to Exceptional Thumbnails"
-date: 2024-09-02T07:23:31.749Z
-updated: 2024-09-03T07:23:31.749Z
+date: 2024-11-21T19:07:52.308Z
+updated: 2024-11-27T20:23:16.399Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -63,6 +67,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -70,6 +78,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -83,6 +95,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-from-idea-to-reality-examining-mycams-video-recorder-performance/"><u>[New] 2024 Approved From Idea to Reality Examining MyCam’s Video Recorder Performance</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-craft-top-quality-youtube-thumbnails-fast/"><u>[New] How To Craft Top Quality YouTube Thumbnails Fast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-sound-integration-youtube-edition/"><u>[New] Seamless Sound Integration YouTube Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-srt-soundfile-compatibility-pc-and-mac/"><u>[New] SRT Soundfile Compatibility PC & Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-learning-made-easy-utilizing-youtube-for-dynamic-classrooms/"><u>[Updated] 2024 Approved Learning Made Easy Utilizing YouTube for Dynamic Classrooms</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crescendo-control-secure-sound-sharing-online-for-2024/"><u>[Updated] Crescendo Control Secure Sound Sharing Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-essential-guide-to-intellectual-property-rights-on-youtube/"><u>2024 Approved The Essential Guide to Intellectual Property Rights on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/er-common-youtube-short-setbacks/"><u>Conquer Common YouTube Short Setbacks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-the-stop-0x0000001d-error-for-smooth-computer-operations/"><u>Fixing the STOP 0X0000001D Error for Smooth Computer Operations</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-apple-iphone-15-pro-max-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Apple iPhone 15 Pro Max? </u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-expert-tips-on-documenting-lol-tournaments/"><u>In 2024, Expert Tips on Documenting LOL Tournaments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>In 2024, How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-road-less-filmed-journeying-into-the-heart-of-travel-vlogging/"><u>In 2024, The Road Less Filmed Journeying Into the Heart of Travel Vlogging</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-guide-to-sony-vegas-alternatives-for-windows/"><u>New The Ultimate Guide to Sony Vegas Alternatives for Windows</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rs-in-focus-yearly-yt-trends-and-trivia-2017-for-2024/"><u>Numbers in Focus! Yearly YT Trends & Trivia (2017) for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->

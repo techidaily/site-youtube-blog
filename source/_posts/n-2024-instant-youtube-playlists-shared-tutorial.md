@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Instant YouTube Playlists Shared Tutorial"
-date: 2024-11-10T18:02:29.586Z
-updated: 2024-11-18T01:45:09.061Z
+date: 2024-11-21T23:27:24.636Z
+updated: 2024-11-27T17:07:13.949Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ So, let's get started with our guide without any further delay!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Doesn't The Share Function In The Playlist Work?
 
 Firstly, let's figure out why the "Share" function doesn't work. The "Share" function in the playlist does not work because it is set to "private," and YouTube doesn't allow you to share them. To fix this, you must first change the privacy settings of the playlist to "public" in the following way:
@@ -48,10 +52,7 @@ Once the privacy setting has been changed, the **"share"** function will work as
 ![making youtube playlist public](https://images.wondershare.com/filmora/article-images/2023/03/making-youtube-playlist-public.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Share The YouTube Playlist?
@@ -75,6 +76,10 @@ Step1 Visit the **YouTube website** using a browser on your computer and sign in
 Step2 Next, go to the **"Playlist"** tab and click the **"View Full Playlist"** option under your playlist to access it.
 
 ![sharing own youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-own-youtube-playlist.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Finally, click the **"Share"** icon in the playlist's details section, and a window will pop up. From here, you can either click **"Copy"** to save the link to your clipboard or share the playlist directly to WhatsApp, Twitter, Facebook, Email, KakaoTalk, Reddit, and more platforms.
 
@@ -103,16 +108,7 @@ Step1 In the first step, head to the **YouTube** website using a browser and use
 ![sharing youtube playlist while watching](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-while-watching.png)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Click the playlist to start watching it. Next, click the **playlist title** in the grey box on the right-hand side.
@@ -145,19 +141,6 @@ Toggle on the **"Allow new collaborators"** option, click **"Copy"** to save the
 
 That's about it! You can now share the playlist link with your friends, who can now add videos to it.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. For iOS and Android
 
 If you want to quickly share a YouTube playlist using your iOS or Android device, follow these instructions step-by-step:
@@ -165,10 +148,7 @@ If you want to quickly share a YouTube playlist using your iOS or Android device
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** The method of sharing the YouTube playlist on an iOS device is the same as mentioned above.
@@ -181,7 +161,15 @@ Step3 Now, scroll down to the **"Playlists"** section and open the playlist you 
 
 ![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
@@ -190,13 +178,6 @@ We hope you have found the solution to share your YouTube Playlist. Supposing yo
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -211,13 +192,6 @@ Step3 Now, scroll down to the **"Playlists"** section and open the playlist you 
 ![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
 
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
@@ -252,24 +226,17 @@ In this comprehensive guide, we've explored why the share function in the playli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-capturing-attention-striking-shots-for-youtube-success/"><u>[New] 2024 Approved Capturing Attention Striking Shots for YouTube Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-7-pulse-pounding-workouts-that-gain-traction-on-social-media-for-2024/"><u>[Updated] 7 Pulse-Pounding Workouts That Gain Traction on Social Media for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-discover-the-magic-behind-effective-youtube-short-videos/"><u>[Updated] Discover the Magic Behind Effective YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-ensuring-transparency-in-video-creator-incomes/"><u>[Updated] Ensuring Transparency in Video Creator Incomes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-free-youtube-channel-art-templates-find-them-here/"><u>[Updated] Free YouTube Channel Art Templates - Find Them Here!</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-manual-for-extracting-hd-from-facebook/"><u>[Updated] In 2024, The Ultimate Manual for Extracting HD From Facebook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-premium-selection-top-free-youtube-transcript-apps/"><u>[Updated] Premium Selection Top Free YouTube Transcript Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-simplified-strategies-for-muting-or-disabling-youtube-channels-computermobile-for-2024/"><u>[Updated] Simplified Strategies for Muting or Disabling Youtube Channels (Computer/Mobile) for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-preservation-pathway-digitizing-and-safeguarding-old-family-photos/"><u>[Updated] The Preservation Pathway Digitizing & Safeguarding Old Family Photos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>[Updated] The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-financial-flows-youtube-affiliates-for-modest-channels-for-2024/"><u>[Updated] Unlocking Financial Flows YouTube Affiliates for Modest Channels for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-your-stocks-your-screen-ideal-youtube-groups-for-2024/"><u>[Updated] Your Stocks, Your Screen Ideal YouTube Groups for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-phantom-slow-motion-camera-guide/"><u>2024 Approved Phantom Slow Motion Camera Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/gear-up-smartly-expert-reviews-and-advice-on-latest-hardware-from-toms-resource/"><u>Gear Up Smartly: Expert Reviews and Advice on Latest Hardware From Tom’s Resource</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-top-5-digital-audio-editors-for-optimal-sound-quality/"><u>New In 2024, Top 5 Digital Audio Editors for Optimal Sound Quality</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-xiaomi-redmi-note-13-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Xiaomi Redmi Note 13 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transform-your-videos-using-video-enhancer-v22-for-2024/"><u>Transform Your Videos Using Video Enhancer V2.2 for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-when-you-encounter-internet-explorer-has-crashed/"><u>Troubleshooting Steps When You Encounter 'Internet Explorer Has Crashed'</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-potential-optimizing-short-films-in-marketing/"><u>[New] In 2024, Unleash Potential Optimizing Short Films in Marketing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-seamless-subtitle-conversion-at-your-fingertips-top-8-software-for-windowsmacos-srt-transition/"><u>[Updated] In 2024, Seamless Subtitle Conversion at Your Fingertips - Top 8 Software for Windows/MacOS SRT Transition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-revolutionize-your-branding-50-free-youtube-banners-inside-in-2024/"><u>[Updated] Revolutionize Your Branding - 50 Free YouTube Banners Inside, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-monetary-scope-of-mr-beasts-ventures-for-2024/"><u>[Updated] The Monetary Scope of Mr. Beast’s Ventures for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-sound-selection-for-social-media-stars-for-2024/"><u>[Updated] Ultimate Sound Selection for Social Media Stars for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/controlling-file-safety-tweaking-oss-delete-confirmation/"><u>Controlling File Safety: Tweaking OS's Delete Confirmation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lenovo-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Lenovo Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-pdf-editing-skills/"><u>In 2024, Ultimate PDF Editing Skills</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplifying-onestream-techniques-for-effective-streaming-for-2024/"><u>Simplifying OneStream Techniques for Effective Streaming for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivitys-surprising-benevolence-7-aspects/"><u>Social Connectivity’s Surprising Benevolence: 7 Aspects</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-importing-your-snapchat-images-from-iphone-to-desktop/"><u>Step-by-Step Guide: Importing Your Snapchat Images From iPhone to Desktop</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-strategy-for-efficient-use-of-mobizens-recording-features/"><u>The Ultimate Strategy for Efficient Use of Mobizen's Recording Features</u></a></li>
 </ul></div>
 

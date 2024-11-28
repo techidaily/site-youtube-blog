@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Silly Suggestions  10 Hilarious Concepts for Quick, Quirky Videos\""
-date: 2024-08-28T16:11:21.604Z
-updated: 2024-08-29T16:11:21.604Z
+date: 2024-11-22T17:54:00.052Z
+updated: 2024-11-27T19:36:42.838Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ Pictures are a unique way to express feelings, especially when those funny pictu
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
 
 #### Idea 4: Daily Experiences
@@ -65,6 +69,10 @@ Using different online software, you can enhance the pictures or modify the back
 Life is indeed full of surprises, events, and glory. Then, why not tailor some of its moments under best YouTube Shorts ideas. These experiences vary from your home, neighbor, society, college, office, or anywhere.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
@@ -76,6 +84,10 @@ If experimenting with chemicals or anything that surrounds you makes you out of 
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
 
 #### Idea 6: Funny Competition
@@ -83,6 +95,10 @@ Just review all your collection of experiments you did and combine them under Yo
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
@@ -119,6 +135,10 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
@@ -172,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,8 +205,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-activate-grid-in-google-meet-for-full-participant-display/"><u>[New] Activate Grid in Google Meet for Full-Participant Display</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-it-illegal-to-archive-your-youtube-watch-history-in-2024/"><u>[New] Is It Illegal to Archive Your YouTube Watch History, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-audiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[Updated] 2024 Approved Audiovisual Symphony Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-shield-yourself-online-a-step-by-step-guide-for-smoothing-images/"><u>[Updated] 2024 Approved Shield Yourself Online A Step-by-Step Guide for Smoothing Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-practices-for-secure-youtube-mp4-conversion/"><u>[Updated] In 2024, Best Practices for Secure YouTube MP4 Conversion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-choosing-the-right-lights-and-cameras-for-youtube-videos/"><u>[Updated] In 2024, Choosing the Right Lights & Cameras for YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-free-thumbnail-extract-from-youtube-videos-today/"><u>[Updated] In 2024, Free Thumbnail Extract From YouTube Videos Today!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-key-strategies-in-building-successful-youtube-shorts-templates/"><u>[Updated] Key Strategies in Building Successful YouTube Shorts Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-perfecting-your-tone-techniques-for-zoom-podcast-sessions-for-2024/"><u>[Updated] Perfecting Your Tone Techniques for ZOOM Podcast Sessions for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-path-to-perfect-videos-with-any-of-these-7-free-tools-for-2024/"><u>[Updated] Your Path to Perfect Videos with Any of These 7 Free Tools for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-viewership-3-key-storytelling-approaches/"><u>2024 Approved Elevate Viewership 3 Key Storytelling Approaches</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpts-honesty-assessed-can-you-trust-what-it-says/"><u>ChatGPT's Honesty Assessed: Can You Trust What It Says?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6s-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6s to other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-vivo-y100i-power-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Vivo Y100i Power 5G Phone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-video-player-for-high-quality-avi-on-devices/"><u>In 2024, Exclusive Video Player for High-Quality AVI on Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-how-to-change-video-speed-on-instagram-stories/"><u>In 2024, How to Change Video Speed on Instagram Stories?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-launching-a-successful-vlog-a-guide-to-profitability/"><u>In 2024, Launching a Successful Vlog A Guide to Profitability</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-vfx-essentials-unlocked-top-8-sites-for-free-high-quality-green-screen-imagery/"><u>In 2024, VFX Essentials Unlocked Top 8 Sites for FREE High-Quality Green Screen Imagery</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-galaxy-s23-tactical-edition-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Galaxy S23 Tactical Edition without backup.</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step  Changing the State of Your YouTube Comments\""
-date: 2024-11-15T02:09:35.638Z
-updated: 2024-11-17T20:21:20.615Z
+date: 2024-11-20T21:31:54.222Z
+updated: 2024-11-27T22:48:27.635Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,10 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Additional Info about Comments Options**
 
 The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
@@ -96,16 +100,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -129,13 +124,14 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -153,13 +149,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -175,10 +164,7 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,24 +188,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-secure-your-favorite-youtube-images-download-without-paying/"><u>[New] In 2024, Secure Your Favorite YouTube Images Download without Paying</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-streaming-success-secrets-unveiling-monetization-on-dm-and-yo/"><u>[New] In 2024, Streaming Success Secrets Unveiling Monetization on Dm & Yo</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-youtube-video-splitting/"><u>[New] In 2024, The Ultimate Guide to YouTube Video Splitting</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/op-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[New] Top 10 Gaming PC Graphics For Ultimate YouTube Viewing Experience</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/op-audiovisual-enhancements-for-video-producers/"><u>[New] Top Audiovisual Enhancements for Video Producers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-achieve-seamless-transitions-premiere-videos-on-youtube/"><u>[Updated] 2024 Approved Achieve Seamless Transitions Premiere Videos on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-professional-footage-with-top-tier-stabilizers/"><u>[Updated] In 2024, Professional Footage with Top-Tier Stabilizers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-metadata-the-power-of-accurate-video-tags-for-2024/"><u>[Updated] Mastering Metadata The Power of Accurate Video Tags for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-rank-the-best-7-android-friendly-adblockers-reviewed-for-2024/"><u>[Updated] Rank the Best 7 Android-Friendly AdBlockers Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-yt-experience-the-most-outstanding-reaction-ideas/"><u>2024 Approved Enhance YT Experience The Most Outstanding Reaction Ideas</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/complete-tutorial-on-installing-and-refreshing-intel-hd-graphics-driver-v5500/"><u>Complete Tutorial on Installing & Refreshing Intel HD Graphics Driver V5500</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ging-techniques-identifying-and-resolving-common-javascript-errors/"><u>Debugging Techniques Identifying and Resolving Common JavaScript Errors</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/essential-steps-to-resolve-icloud-message-disabled-error-on-ios-devices/"><u>Essential Steps to Resolve 'iCloud Message Disabled' Error on iOS Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-high-def-zoom-manipulator/"><u>In 2024, High-Def Zoom Manipulator</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-skyrocket-traffic-and-views-discover-the-best-5-video-marketing-techniques/"><u>In 2024, Skyrocket Traffic and Views – Discover the Best 5 Video Marketing Techniques</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/memorial-day-special-save-400-on-the-segway-max-g2-electric-scooter-exclusive-offer-from-zdnet/"><u>Memorial Day Special: Save $400 on the Segway Max G2 Electric Scooter - Exclusive Offer From ZDNet</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-hot-40-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Hot 40 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/revolutionize-interaction-with-these-lesser-known-ai-functions/"><u>Revolutionize Interaction with These Lesser-Known AI Functions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/sharp-cinematic-edge-choosing-the-phone-that-offers-unmatched-video-ois/"><u>Sharp Cinematic Edge Choosing the Phone that Offers Unmatched Video OIS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-capture-crop-and-color-correct-with-this-lists-top-5-android-apps/"><u>[New] In 2024, Capture, Crop, and Color-Correct with This List's Top 5 Android Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-monetizing-makeup-tutorial-content/"><u>[New] In 2024, Monetizing Makeup Tutorial Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-future-of-tv-watching-a-closer-look-at-youtube-tv/"><u>[New] In 2024, The Future of TV Watching A Closer Look at YouTube TV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-counterclockwise-watch-how-to-unravel-your-youtube-sequence/"><u>[Updated] Counterclockwise Watch How to Unravel Your YouTube Sequence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-explore-8plus-places-for-gratis-hdr-environments-and-clips/"><u>[Updated] Explore 8+ Places for Gratis HDR Environments & Clips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-best-practices-in-video-posting-choosing-correct-orientation/"><u>[Updated] In 2024, Best Practices in Video Posting – Choosing Correct Orientation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-top-10-aerial-cameras-unleashing-creative-potential/"><u>[Updated] In 2024, Top 10 Aerial Cameras Unleashing Creative Potential</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-into-song-savvy-youtube-playlist-excellence/"><u>[Updated] Step Into Song Savvy YouTube Playlist Excellence</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-20-essential-youtube-groups-navigating-stocks/"><u>2024 Approved 20 Essential YouTube Groups Navigating Stocks</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-honor-70-lite-5g-frp-bypass-by-drfone-android/"><u>About Honor 70 Lite 5G FRP Bypass</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-hearnow-podcast-and-speaker-assessment/"><u>In 2024, HearNow Podcast and Speaker Assessment</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y200-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y200 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-oppo-a59-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Oppo A59 5G FRP Bypass</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-ssd-data-retrieval-comprehensive-steps-for-successful-operation/"><u>Mastering SSD Data Retrieval: Comprehensive Steps for Successful Operation</u></a></li>
 </ul></div>
 

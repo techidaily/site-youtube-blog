@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Increase Clicks and Watch Time with Best-in-Class Thumbnails for YouTube\""
-date: 2024-11-16T23:31:35.441Z
-updated: 2024-11-18T04:09:44.408Z
+date: 2024-11-20T16:53:42.779Z
+updated: 2024-11-27T18:42:05.358Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -69,16 +73,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
@@ -98,24 +99,14 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -134,10 +125,7 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
@@ -152,13 +140,6 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
 Wondershare PixStudio provides you massive pre-designed templates which help you to create attractive YouTube Thumbnail. Let’s see the video below and see how you can design your YouTube Thumbnail easily.
@@ -170,6 +151,10 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 **Note:**
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **To sum up**
 
@@ -198,24 +183,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/harting-the-course-of-monetization-for-creator-economy-on-youtubeshorts-for-2024/"><u>[New] Charting the Course of Monetization for Creator Economy on YouTubeshorts for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-comprehensive-guide-the-triad-technique-for-assessing-youtube-revenue-streams/"><u>[Updated] Comprehensive Guide The Triad Technique for Assessing YouTube Revenue Streams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ultimate-gear-for-youtube-content-makers/"><u>[Updated] In 2024, Ultimate Gear for YouTube Content Makers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unearth-pristine-stock-media-from-selective-4-youtube-hubs/"><u>[Updated] Unearth Pristine Stock Media From Selective 4 YouTube Hubs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-tseries-income-stream-from-youtube-content-consumption-for-2024/"><u>[Updated] Unveiling TSeries’ Income Stream From Youtube Content Consumption for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-merchandising-strategies-a-tool-to-amplify-youtube-views/"><u>2024 Approved Merchandising Strategies A Tool to Amplify YouTube Views</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/cambia-mpeg-a-formato-webm-sin-costo-guia-completa-de-convertidor-online-movavi/"><u>Cambia MPEG a Formato WebM Sin Costo: Guía Completa De Convertidor Online - Movavi</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-vivo-v29-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Vivo V29 Pro FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/backyard-blogs-to-billion-sub-youtube-channel/"><u>From Backyard Blogs to Billion-Sub YouTube Channel</u></a></li>
-<li><a href="https://fox-http.techidaily.com/gourmet-visuals-in-motion-food-shot-tips-and-tricks-for-2024/"><u>Gourmet Visuals in Motion Food Shot Tips & Tricks for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme C67 4G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-ephemeral-film-sculptor/"><u>In 2024, Ephemeral Film Sculptor</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-next-gen-players-guide-rift-vive-vs-ps-vr-games/"><u>In 2024, Next-Gen Players Guide Rift, Vive, vs PS VR Games</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-samsung-galaxy-a14-4g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Samsung Galaxy A14 4G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-youtube-success-via-creator-studio-complete-handbook-for-2024/"><u>Mastering YouTube Success via Creator Studio Complete Handbook for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/revolutionary-drone-motors-the-quintessential-guide-to-flight-excellence-for-2024/"><u>Revolutionary Drone Motors The Quintessential Guide to Flight Excellence for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-the-robocop-legacy-pc-game-crash-issues/"><u>Solving the 'RoboCop: Legacy' PC Game Crash Issues</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/tailoring-humor-with-9gag-your-personal-meme-making-manual/"><u>Tailoring Humor with 9GAG Your Personal Meme Making Manual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-superior-ai-photo-cutting-master/"><u>[New] 2024 Approved Superior AI Photo Cutting Master</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ringing-your-video-games-to-life-customizable-channel-headers/"><u>[New] Bringing Your Video Games to Life Customizable Channel Headers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-income-sourav-joshis-youtube-journey/"><u>[New] In 2024, Maximizing Income Sourav Joshi's YouTube Journey</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/imple-guide-youtube-to-mp3-on-mac/"><u>[New] Simple Guide YouTube to MP3 on Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-everyones-guide-to-youtube-success-10-straightforward-video-tips/"><u>[Updated] In 2024, Everyone's Guide to YouTube Success 10 Straightforward Video Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-camera-selection-for-youtube-filmmakers/"><u>[Updated] In 2024, The Ultimate Camera Selection for YouTube Filmmakers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-videos-a-beginners-tutorial-for-2024/"><u>[Updated] Mastering Twitter Videos A Beginner's Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategic-playlist-formation-your-guide-to-youtube-mastery/"><u>[Updated] Strategic Playlist Formation Your Guide to YouTube Mastery</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-simplifying-transition-workflows-audacitys-crossfade-capabilities/"><u>2024 Approved Simplifying Transition Workflows Audacity's Crossfade Capabilities</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-understanding-vimeos-unique-value-over-youtube/"><u>2024 Approved Understanding Vimeo's Unique Value over YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/crafting-a-memorable-look-back-experience-on-fb-for-2024/"><u>Crafting a Memorable Look Back Experience on FB for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reening-youtube-footage-illegal-in-2024/"><u>Is Screening YouTube Footage Illegal, In 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-dual-screen-work-in-excel-a-comprehensive-guide/"><u>Mastering Dual-Screen Work in Excel: A Comprehensive Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-windows-key-combinations-for-effortless-recalibration/"><u>Mastering Windows: Key Combinations for Effortless Recalibration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oming-shadows-in-indoor-vlogging-environments-for-2024/"><u>Overcoming Shadows in Indoor Vlogging Environments for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/prestigious-zooids-introduction-spotlight/"><u>Prestigious Zooids Introduction Spotlight</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-everyone-in-messenger-chats/"><u>Turn Off @Everyone in Messenger Chats</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Staying Positive in the Face of Internet Skeptics for 2024"
-date: 2024-11-12T22:47:47.248Z
-updated: 2024-11-18T00:02:25.766Z
+date: 2024-11-25T17:27:57.700Z
+updated: 2024-11-27T22:17:03.588Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -75,27 +83,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-free-webinar-creation-and-management-on-youtube/"><u>[New] In 2024, Free Webinar Creation & Management on Youtube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-novices-route-to-revenue-in-the-youtube-realm-for-2024/"><u>[New] The Novice's Route to Revenue in the YouTube Realm for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-webinar-guide-host-without-spending/"><u>[Updated] 2024 Approved YouTube Webinar Guide Host Without Spending</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-optimal-video-downloads-with-top-converters/"><u>[Updated] Optimal Video Downloads with Top Converters</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-audio-avenger-your-pathway-to-sound-in-story-posts/"><u>[Updated] The Audio Avenger Your Pathway to Sound in Story Posts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-crucial-details-for-asmr-viewers/"><u>[Updated] Unveiling Crucial Details for ASMR Viewers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-youtube-to-mp4-get-free-hd1080p-from-facebook-vids/"><u>[Updated] YouTube-to-MP4 Get Free HD/1080P From Facebook Vids</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-tools-top-cell-phones-for-creatives/"><u>2024 Approved Innovative Tools Top Cell Phones for Creatives</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-keeping-the-flow-alive-2023-guide-to-live-video-repairs-on-fb/"><u>2024 Approved Keeping the Flow Alive 2023 Guide to Live Video Repairs on FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-shield-yourself-online-a-step-by-step-guide-for-smoothing-images/"><u>2024 Approved Shield Yourself Online A Step-by-Step Guide for Smoothing Images</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-list-10-costless-video-caption-extractors/"><u>2024 Approved Ultimate List 10 Costless Video Caption Extractors</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-audacity-on-mac-a-beginners-guide-to-recording-audio/"><u>In 2024, Audacity on Mac A Beginner's Guide to Recording Audio</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>In 2024, Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-fast-forward-features-unveiled-the-editors-guidebook/"><u>In 2024, Fast-Forward Features Unveiled The Editor's Guidebook</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-lava-blaze-2-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Lava Blaze 2 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-10-cool-features-that-make-you-love-filmora-video-editor/"><u>[New] 10 Cool Features That Make You Love Filmora Video Editor</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-platform-for-seminar-titles/"><u>[New] Premier Platform for Seminar Titles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-techniques-for-perfecting-instagram-video-loops/"><u>[New] The Ultimate Techniques for Perfecting Instagram Video Loops</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ules-magic-unfolds-access-nine-premium-whole-film-holiday-movies-for-free-for-2024/"><u>[New] Yule's Magic Unfolds Access Nine Premium, Whole-Film Holiday Movies for Free for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-deleted-yt-content-two-simplified-approaches/"><u>[Updated] 2024 Approved Mastering Deleted YT Content Two Simplified Approaches</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-a-successful-mukbang-video-journey-for-2024/"><u>[Updated] Crafting a Successful Mukbang Video Journey for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-your-ultimate-guide-to-youtube-shorts/"><u>[Updated] In 2024, Your Ultimate Guide to YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-online-showdown-fb-live-yt-live-and-periscope-vs-spaces-for-2024/"><u>[Updated] Online Showdown FB LIVE, YT Live & Periscope Vs. Spaces for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-amplifying-video-clarity-on-youtube/"><u>2024 Approved Amplifying Video Clarity on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-travelers-guide-transforming-journeys-into-shareable-content/"><u>2024 Approved The Traveler’s Guide Transforming Journeys Into Shareable Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-unlock-free-tunes-steps-for-youtube-content-creators/"><u>2024 Approved Unlock Free Tunes Steps for YouTube Content Creators</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-15-plus-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 15 Plus Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/code-masters-clash-determining-if-gemini-can-surpass-chatgpt-in-programming-excellence/"><u>Code Masters Clash: Determining if Gemini Can Surpass ChatGPT in Programming Excellence</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/cosmic-data-safety-net-archive/"><u>Cosmic Data Safety Net Archive</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/highlights-der-upload-optionen-fur-fotos-zu-microsoft-onedrive/"><u>Highlights Der Upload-Optionen Für Fotos Zu Microsoft OneDrive</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-max-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro Max To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-nokia-c12mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Nokia C12Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-visibility-in-your-youtube-screens/"><u>Restoring Visibility in Your YouTube Screens</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlock-safety-measures-creating-and-implementing-a-passcode-on-switch/"><u>Unlock Safety Measures: Creating and Implementing a Passcode on Switch</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

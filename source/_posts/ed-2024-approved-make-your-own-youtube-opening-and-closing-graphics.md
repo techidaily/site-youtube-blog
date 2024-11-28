@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Make Your Own YouTube Opening & Closing Graphics\""
-date: 2024-09-02T07:26:36.664Z
-updated: 2024-09-03T07:26:36.664Z
+date: 2024-11-23T19:09:36.924Z
+updated: 2024-11-27T16:30:47.061Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-enhance-youtubes-conversations-with-emojis-for-2024/"><u>[Updated] Enhance Youtubes' Conversations with Emojis for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-through-youtubes-metrics-a-ranking-analysis-for-2024/"><u>[Updated] Navigating Through YouTube's Metrics A Ranking Analysis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-share-your-youtube-playlist-journey/"><u>[Updated] Quick Share Your YouTube Playlist Journey</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-social-media-synergy-cross-promoting-your-youtube-content/"><u>[Updated] Social Media Synergy Cross-Promoting Your YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-understanding-youtubes-earnings-mechanics-cpm-for-2024/"><u>[Updated] The Essential Guide to Understanding YouTube's Earnings Mechanics (CPM) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-24-hours-watchers-youtubes-most-popular-videos-1-10/"><u>2024 Approved Top 24 Hours Watchers YouTube’s Most Popular Videos #1-#10</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-smart-7-hd-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Infinix Smart 7 HD Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/step-up-your-game-expert-tips-for-tiktok-editing/"><u>Step Up Your Game Expert Tips for TikTok Editing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hy-web-showrunners-for-2024/"><u>Wealthy Web Showrunners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/price-path-to-enhanced-youtube-video-analysis-for-2024/"><u>Zero-Price Path to Enhanced YouTube Video Analysis for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->

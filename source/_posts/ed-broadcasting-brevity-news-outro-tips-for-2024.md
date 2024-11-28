@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Broadcasting Brevity  News Outro Tips for 2024\""
-date: 2024-11-14T21:33:45.976Z
-updated: 2024-11-17T16:06:32.578Z
+date: 2024-11-22T23:37:15.042Z
+updated: 2024-11-27T16:32:54.680Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ In this article, we'll discuss how to create **news outro templates** for your v
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Before Starting, Learn _What Is a Good YouTube Outro_?
 
@@ -63,13 +67,6 @@ Filmstock is a platform offering free and paid editable templates for content cr
 
 ![filmstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/filmstock-news-outros-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Filmora is a popular video editor with a built-in filmstock library offering hundreds of non-copyright editable templates for every occasion. With the software, you can find and add your [news style outros](https://filmstock.wondershare.com/p/news-report-pack.html) to your videos with just a few clicks. The only disadvantage is that it isn't completely free. The paid version offers two options: A standard plan that costs **$9.99** per month and a Premium plan that will cost you **$49.99** per month.
 
 You can also find detailed video tutorials to facilitate your video creation through [Filmora](https://www.youtube.com/c/FilmoraWondershare) and [Filmstock's](https://www.youtube.com/c/WondershareFilmstock) official YouTube Channels, as well as video sources set presentation on the two channels. Here is an example of News Set video on Filmora's YouTube Channel. Go to watch it and check are there any ideal news outro!
@@ -92,13 +89,6 @@ The software is easy-to-use and does not require any editor to customize and use
 
 ![flexclip news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/flexclip-news-outros-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can add text, music, elements, overlays, and branding to your templates to make them more stunning and captivating.
 
 The platform offers 3 paid plans starting at **$8.99/month.** The con here is that the free version is only limited to the export quality of 480p, single royalty-free stock use, and 12 projects limit.
@@ -108,6 +98,10 @@ The platform offers 3 paid plans starting at **$8.99/month.** The con here is th
 [Placeit](https://placeit.net/?search=news+outros) is an online editor giving you the ability to create and customize your video content in no time. The editor also includes a stock image library, giving you access to several customizable templates.
 
 ![placeit video editor](https://images.wondershare.com/filmora/article-images/2022/11/placeit-video-editor.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Placeit is easy to use and offers a variety of templates for different purposes, including outros for news stories, video blogs, and even gaming videos. The platform offers an unlimited subscription plan starting from **$7.47 /month.**
 
@@ -123,6 +117,10 @@ Searching for high-quality templates for your next project?[Storyblock](https://
 
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
 
 Limitations of the Storyblock are that the footage quality is very poor in the free version, and the paid versions might be tricky to avail sometimes.
@@ -132,13 +130,6 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 [Videvo](https://www.videvo.net/search/news%20outros/) is a great resource for anyone looking for royalty-free video templates. They have over 300,000 free and premium videos, which you can download in clips or full with 4K resolution. However, their stock library is not much vast. The platform comes with a two-tier subscription plan starting from **$14.99/month** or **$144/year.**
 
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
@@ -168,6 +159,10 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
 After knowing the websites providing News Style Outro, we hope you can find an ideal outro successfully. However, how to use the material you have found, integrate it into your YouTube video, and improve the quality of it?
@@ -178,24 +173,25 @@ Step1 Download **Filmora** software from the official website and install it on 
 
 ![importing file to filmora](https://images.wondershare.com/filmora/article-images/2022/11/importing-file-to-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Drag and drop your media file or import it using the **"Click Here to Import Media File"** option. Now, drag your file and drop it in the **Timeline.**
 
 Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** option. Search for **"News Outros,"** select the one you like, and add it to the **Timeline.**
 
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -229,16 +225,13 @@ The platform offers 3 paid plans starting at **$8.99/month.** The con here is th
 
 ![placeit video editor](https://images.wondershare.com/filmora/article-images/2022/11/placeit-video-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Placeit is easy to use and offers a variety of templates for different purposes, including outros for news stories, video blogs, and even gaming videos. The platform offers an unlimited subscription plan starting from **$7.47 /month.**
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Non-Editable News Outro Template Websites
 
@@ -260,6 +253,10 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
 ##### Videezy
@@ -267,6 +264,10 @@ You can find templates for both commercial and non-commercial use, so whatever y
 [Videezy](https://www.videezy.com/free-video/news-outros) is a royalty-free video site that offers free and premium video templates. The website has a variety of options to choose from, including news style outros, all of which are geared towards creating engaging content.
 
 ![videezy news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videezy-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The templates are all ready-made and royalty-free. You can download them for use in your own projects and attach them to your video using any video editing app/software.
 
@@ -278,6 +279,10 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
 
 ##### iStock
@@ -285,13 +290,6 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 [iStock](https://www.istockphoto.com/search/2/image?phrase=news%20outro) is a premium website offering royalty-free stock photos, illustrations, and videos divided into numerous categories for easy access. The platform also offers a variety of non-editable **news outro templates** that you can add to your videos or podcasts.
 
 ![istock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/istock-news-outros-templates.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
@@ -311,25 +309,11 @@ Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** optio
 
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -358,16 +342,22 @@ Hopefully, you find this guide informative and can now create strong news style 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-simplifying-complexities-in-youtube-shorts/"><u>[New] 2024 Approved Simplifying Complexities in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ack-your-way-to-speedy-youtube-video-processing-for-2024/"><u>[New] Hack Your Way to Speedy YouTube Video Processing for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ey-points-in-youtube-monetization-overhaul-for-2024/"><u>[New] Key Points in YouTube Monetization Overhaul for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-analytical-approach-to-youtube-content-performance-for-2024/"><u>[Updated] The Analytical Approach to YouTube Content Performance for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram-for-2024/"><u>[Updated] Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/comparing-ai-branches-unveiling-the-distinctions-between-nlp-and-ml/"><u>Comparing AI Branches: Unveiling the Distinctions Between NLP and ML</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-huawei-nova-y71-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Huawei Nova Y71 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-a14-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy A14 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722858640103-stepping-into-the-era-of-ultra-fast-internet-with-verizon-n-5g/"><u>Stepping Into the Era of Ultra-Fast Internet with Verizon N 5G</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-ranking-student-notebooks-a-comprehensive-test-and-analysis-by-experts-zdnet/"><u>Top-Ranking Student Notebooks: A Comprehensive Test & Analysis by Experts - ZDNet</u></a></li>
-<li><a href="https://change-location.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-hooking-audience-early-with-smart-intros-for-2024/"><u>[New] Hooking Audience Early with Smart Intros for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-add-youtube-melodies-in-imovie-without-hurdles/"><u>[New] In 2024, Add YouTube Melodies in iMovie Without Hurdles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-audio-made-simple-for-imovie-editors/"><u>[New] In 2024, YouTube Audio, Made Simple for iMovie Editors</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-pro-convert-solutions-efficient-ytvideo-to-text-converters/"><u>[New] Pro Convert Solutions Efficient YTVideo to Text Converters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-best-ranked-affordable-video-players-and-streaming-services-pc-and-mobile/"><u>[Updated] 2024 Approved Best-Ranked Affordable Video Players and Streaming Services (PC & Mobile)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-streamlined-process-to-download-parts-from-youtube-videos/"><u>[Updated] In 2024, Streamlined Process to Download Parts From YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-vr-journey-begins-with-these-top-titles/"><u>[Updated] In 2024, VR Journey Begins with These TOP Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-learn-cinematic-techniques-with-youtube-veterans-and-novices-for-2024/"><u>[Updated] Learn Cinematic Techniques with YouTube Veterans and Novices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-tagging-for-content-visibility-for-2024/"><u>[Updated] Mastering YouTube Tagging for Content Visibility for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-navigating-recordings-in-windows-11-a-compreayers-guide-for-2024/"><u>[Updated] Navigating Recordings in Windows 11 A Compreayer's Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-the-full-potential-of-your-channel-in-studio/"><u>[Updated] Unleashing the Full Potential of Your Channel in Studio</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-xiaomi-redmi-a2plus-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Xiaomi Redmi A2+ Android SIM Unlock APK</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-a15-4g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy A15 4G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pinnacle-of-meme-artistry-program/"><u>Pinnacle of Meme Artistry Program</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/secure-your-data-on-the-go-locking-down-usb-thumb-drives-with-windows-security-features/"><u>Secure Your Data on the Go: Locking Down USB Thumb Drives with Windows Security Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/by-step-guide-to-defining-your-aesthetic/"><u>Step-by-Step Guide to Defining Your Aesthetic</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/18th-anniversary-limited-edition-celebration/"><u>デジアーティ: 18Th Anniversary Limited Edition Celebration</u></a></li>
 </ul></div>
 

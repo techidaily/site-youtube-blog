@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Chic Looks  The Ultimate Cosmetic Compendium\""
-date: 2024-11-11T23:55:09.862Z
-updated: 2024-11-17T17:00:54.357Z
+date: 2024-11-21T16:05:55.624Z
+updated: 2024-11-27T20:15:13.223Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,11 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -128,6 +129,10 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -166,10 +171,7 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -194,13 +196,6 @@ If you only have a ring light/front light then you may end up looking like you�
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
 A front light that’s lighting you evenly is also lighting whatever’s behind you evenly, which can make your overall picture look flat.
@@ -223,13 +218,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -239,13 +227,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
@@ -292,6 +273,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -300,19 +285,6 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -329,6 +301,10 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -351,18 +327,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-guide-to-using-youtube-in-education/"><u>[New] 2024 Approved The Ultimate Guide to Using YouTube in Education</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-convincing-audiences-to-join-a-positive-approach/"><u>[New] In 2024, Convincing Audiences to Join A Positive Approach</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-elite-green-tech-in-the-world-of-screen-capture/"><u>[Updated] 2024 Approved Elite Green Tech in the World of Screen Capture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-brightening-up-your-online-videos-for-2024/"><u>[Updated] Brightening Up Your Online Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-tiny-film-plot-proposal/"><u>2024 Approved Tiny Film Plot Proposal</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unmasking-imagerys-origins-a-complete-guide-to-reverse-picture-searching-in-instagram/"><u>2024 Approved Unmasking Imagery's Origins A Complete Guide to Reverse Picture Searching in Instagram</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/entering-the-vtuber-universe-beginning-stages-and-possibilities-for-2024/"><u>Entering the VTuber Universe Beginning Stages & Possibilities for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-tecno-pova-5-pro-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Tecno Pova 5 Pro Screen | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/27971053-in-2024-top-6-youtube-outro-makers-lots-of-free-options/"><u>In 2024, Top 6 YouTube Outro Makers-Lots of FREE Options</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ative-strategies-to-optimize-youtube-edits-after-upload/"><u>Innovative Strategies to Optimize YouTube Edits After Upload</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/labor-day-sale-alert-save-big-on-dell-tech-gear-monitors-pcs-perfect-for-back-to-school-exclusive-deals/"><u>Labor Day Sale Alert: Save Big on Dell Tech Gear (Monitors, PCs) Perfect for Back to School Exclusive Deals</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-infinix-zero-5g-2023-turbo-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Infinix Zero 5G 2023 Turbo Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uilding-a-stronger-presence-with-effective-youtube-pairings/"><u>[New] Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/east-your-eyes-on-9-whole-film-winter-wonders-no-charge/"><u>[New] Feast Your Eyes on 9 Whole-Film Winter Wonders No Charge!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-shaping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>[New] In 2024, Shaping Viewers’ Attention Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-leading-6-low-cost-superior-4k-tv-projectors/"><u>[Updated] Leading 6 Low-Cost, Superior 4K TV Projectors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-into-innovation-top-10-youtube-vr-creations-for-2024/"><u>[Updated] Step Into Innovation Top 10 YouTube VR Creations for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-streaming-quality-comparison-obs-against-shadowplay/"><u>[Updated] Streaming Quality Comparison OBS Against ShadowPlay</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-fix-the-green-screen-on-youtube-on-mac/"><u>2024 Approved How to Fix the Green Screen on YouTube on Mac</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-your-profit-share-in-youtube-short-creation/"><u>Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ersetzen-sie-convert2mp3-effektiv-fuhrende-umwandlungssoftwarealternativen-finden/"><u>Ersetzen Sie Convert2MP3 Effektiv – Führende Umwandlungssoftwarealternativen Finden</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ct-your-favorites-best-playlist-tools-reviewed-and-rated-for-2024/"><u>Extract Your Favorites Best Playlist Tools Reviewed and Rated for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-apple-iphone-6sipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled Apple iPhone 6s/iPad Without Computer</u></a></li>
+<li><a href="https://driver-download.techidaily.com/overcoming-compatibility-problems-fix-for-realtek-8821ae-wifi-lan-cards-80211ac-driver-malfunctions/"><u>Overcoming Compatibility Problems: Fix for Realtek 8821AE WiFi LAN Card's 802.11Ac Driver Malfunctions</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-glitches-with-two-finger-scroll-feature-expert-fixes-revealed/"><u>Overcoming Glitches with Two Finger Scroll Feature - Expert Fixes Revealed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-to-upgrading-9-key-reasons-to-choose-chatgpt-plus-over-the-basic-option/"><u>The Ultimate Guide to Upgrading: 9 Key Reasons to Choose ChatGPT Plus Over the Basic Option</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-ultimate-guide-to-computer-components/"><u>Tom's Tech Hub: Ultimate Guide to Computer Components</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/sh-potential-optimizing-short-films-in-marketing-for-2024/"><u>Unleash Potential Optimizing Short Films in Marketing for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The Algorithm Behind YouTube's Post-Upload Logic\""
-date: 2024-09-02T07:25:17.563Z
-updated: 2024-09-03T07:25:17.563Z
+date: 2024-11-25T23:30:44.282Z
+updated: 2024-11-27T17:24:33.770Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-young-filmmakers-guide-to-selecting-video-gear/"><u>[New] In 2024, The Young Filmmaker's Guide to Selecting Video Gear</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-eternal-void-a-complete-ban-on-youtube-short-video-feature/"><u>[Updated] 2024 Approved Eternal Void A Complete Ban on YouTube Short Video Feature</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-hashtag-wisdom-uncovering-the-best-tags-to-dominate-on-instagram/"><u>[Updated] In 2024, Hashtag Wisdom Uncovering the Best Tags to Dominate on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-the-art-of-budget-friendly-youtubes-intros-and-ends/"><u>[Updated] Master the Art of Budget-Friendly YouTubes Intros and Ends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-creativity-how-to-convert-your-favorite-youtube-videos-to-gifs-for-2024/"><u>[Updated] Unleashing Creativity How to Convert Your Favorite Youtube Videos To Gifs for 2024</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/ceramic-materials-such-as-lithium-disilicate-and-zirconia-offer-strong-alternatives-for-patients-with-metal-sensitivities-or-aesthetic-concerns/"><u>Ceramic Materials Such as Lithium Disilicate and Zirconia Offer Strong Alternatives for Patients with Metal Sensitivities or Aesthetic Concerns.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-free-video-editing-software-on-iphone-and-ipad-for-2024/"><u>Choosing Free Video Editing Software on iPhone & iPad for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/floor-dynamics-free-pristine-dj-template-videos/"><u>Dancefloor Dynamics Free, Pristine DJ Template Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/die-besten-free-dvd-ripper-apps-fur-windows-11-im-jahr-2ebar-2023-umfassender-vergleich/"><u>Die Besten FREE-DVD-Ripper Apps Für Windows 11 Im Jahr 2Ebar 2023 – Umfassender Vergleich</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ate-discussion-how-to-trend-on-social-media-platforms-for-2024/"><u>Dominate Discussion How to Trend on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-huawei-p60-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Huawei P60 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-itel-p55plus-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Itel P55+ ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leveraging-zoom-for-optimal-productivity-in-win11-environments/"><u>Leveraging Zoom for Optimal Productivity in Win11 Environments</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-employment-landscape-via-chatgpt/"><u>Mastering the Employment Landscape via ChatGPT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms/"><u>Navigating the Short-Form Space YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ct-sound-devices-for-podcasters-for-2024/"><u>Perfect Sound Devices for Podcasters for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/podcast-prowess-apples-airpods-pro-vs-galaxy-buds-pro/"><u>Podcast Prowess: Apple's AirPods Pro Vs. Galaxy Buds Pro</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->

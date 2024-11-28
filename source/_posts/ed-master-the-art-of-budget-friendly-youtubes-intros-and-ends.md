@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Master the Art of Budget-Friendly YouTubes Intros and Ends\""
-date: 2024-11-12T01:35:12.179Z
-updated: 2024-11-17T22:42:09.541Z
+date: 2024-11-21T23:42:46.115Z
+updated: 2024-11-27T16:35:40.222Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/436acba0c9c893929d5ec6208fba8a64936bfc6bd
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -73,6 +77,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -83,10 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,17 +154,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-1-5-best-editors-apart-from-youtube-platform/"><u>[New] In 2024, 1-#5 Best Editors Apart From YouTube Platform</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-art-of-video-polishing-with-youtube-studio-tools-for-2024/"><u>[New] The Art of Video Polishing with YouTube Studio Tools for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-iphones-and-light-creating-impactful-silhouettes/"><u>[Updated] In 2024, IPhones and Light Creating Impactful Silhouettes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-spring-to-the-future-innovations-in-screen-capture-tech/"><u>[Updated] Spring to the Future Innovations in Screen Capture Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-2024-reviews-for-stronger-cell-phone-connectivity-solutions/"><u>Best 2024 Reviews for Stronger Cell Phone Connectivity Solutions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-the-most-out-of-live-sports-on-youtube-tv/"><u>Getting the Most Out of Live Sports on YouTube TV</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-ideal-app-for-aspiring-filmmakers-a-reel-crafting-list/"><u>In 2024, Ideal App for Aspiring Filmmakers A Reel-Crafting List</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/leveraging-popularity-a-comprehensive-guide-to-instagram-influencer-advertising-for-2024/"><u>Leveraging Popularity A Comprehensive Guide to Instagram Influencer Advertising for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-the-vive-cosmos-outstanding-virtual-reality-device-in-a-crowded-arena/"><u>The Ultimate Guide to the Vive Cosmos: Outstanding Virtual Reality Device in a Crowded Arena</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ears-predictions-rendered-in-infographics/"><u>The Year's Predictions Rendered in Infographics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/playlist-on-demand-selecting-6-elite-free-apps-for-downloading-youtube-music/"><u>Your Playlist on Demand - Selecting 6 Elite Free Apps for Downloading YouTube Music</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-calculating-earnings-the-essence-of-youtube-short-revenue-split/"><u>[New] 2024 Approved Calculating Earnings The Essence of YouTube Short Revenue Split</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-exploring-youtubes-ownership-vs-cc-freedom/"><u>[New] 2024 Approved Exploring YouTube's Ownership Vs. CC Freedom</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-how-to-make-money-from-youtube-shorts-requirements-and-earning-potential/"><u>[New] 2024 Approved How to Make Money From YouTube Shorts Requirements and Earning Potential</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>[New] 2024 Approved Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-redefine-your-viewing-habits-6-leading-cost-free-video-downloaders-for-youtube-shorts/"><u>[New] 2024 Approved Redefine Your Viewing Habits 6 Leading, Cost-Free Video Downloaders for YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-innovating-visual-storytelling-utilizing-dslr-for-facebook-live-through-personal-devices/"><u>[New] In 2024, Innovating Visual Storytelling Utilizing DSLR for Facebook LIVE Through Personal Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-valheim-vegetation-value-optimal-sapling-guidance/"><u>[New] In 2024, Valheim Vegetation Value Optimal Sapling Guidance</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/resolved-incompatibility-vehicle-and-gear/"><u>[Resolved] Incompatibility: Vehicle & Gear</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-dji-drone-comparison-basic-flight-premium-experience-4k-cinematic-for-2024/"><u>[Updated] DJI Drone Comparison Basic Flight, Premium Experience, 4K Cinematic for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-rated-free-mobile-apps-for-video-downloads/"><u>7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/boosting-web-performance-with-cookiebot-technology/"><u>Boosting Web Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-honor-magic5-ultimate-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-youtube-engagement-optimal-video-formats-guide-for-2024/"><u>Mastering YouTube Engagement Optimal Video Formats Guide for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/step-by-step-guide-integrating-subtitles-and-captions-into-your-videos/"><u>Step-by-Step Guide: Integrating Subtitles and Captions Into Your Videos</u></a></li>
 </ul></div>
 
