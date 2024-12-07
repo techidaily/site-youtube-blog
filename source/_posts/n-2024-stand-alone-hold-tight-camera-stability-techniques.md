@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Stand Alone, Hold Tight  Camera Stability Techniques\""
-date: 2024-08-28T16:04:19.877Z
-updated: 2024-08-29T16:04:19.877Z
+date: 2024-12-04T03:01:36.945Z
+updated: 2024-12-07T05:58:17.999Z
 tags:
   - ai video
   - ai youtube
@@ -28,13 +28,25 @@ thumbnail: https://thmb.techidaily.com/9ed4d2a342c503dc1182b48b6f97e1914eb836100
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -58,9 +70,6 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +100,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -114,23 +125,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-short-videos-the-6-best-and-complimentary-downloaders/"><u>[New] In 2024, Unlock Short Videos The 6 Best & Complimentary Downloaders</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-ideal-approaches-to-mobile-content-preservation/"><u>[Updated] 2024 Approved Ideal Approaches to Mobile Content Preservation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-transform-your-short-form-video-content-top-strategies-revealed/"><u>[Updated] In 2024, Transform Your Short-Form Video Content - Top Strategies Revealed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unleashing-the-power-of-creativity-increase-viewership-in-youtube-shorts/"><u>[Updated] In 2024, Unleashing the Power of Creativity Increase Viewership in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[Updated] Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transitioning-from-imovie-editing-suite-to-youtube-showcase/"><u>[Updated] Transitioning From iMovie Editing Suite to YouTube Showcase</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-to-instagram-posting-videos-effortlessly-for-2024/"><u>[Updated] YouTube to Instagram Posting Videos Effortlessly for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-ultimate-cam-gear-mastering-low-speed-video-recording/"><u>2024 Approved Ultimate Cam Gear Mastering Low-Speed Video Recording</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/t-level-editors-to-transcend-the-standard-youtube-videos/"><u>5 Next-Level Editors to Transcend the Standard Youtube Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-14-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s17efrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S17eFRP Lock</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/protect-your-privacy-how-to-identify-and-locate-a-hidden-airtag/"><u>Protect Your Privacy: How to Identify and Locate a Hidden AirTag</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-solutions-eliminate-launch-problems-with-these-11-tricks-for-borderlands-3/"><u>Quick Solutions: Eliminate Launch Problems with These 11 Tricks for Borderlands 3</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ifying-the-process-of-deleting-youtube-files-for-2024/"><u>Simplifying the Process of Deleting YouTube Files for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eading-titles-in-rapid-online-content-expansion/"><u>The Leading Titles in Rapid Online Content Expansion</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-picks-best-value-gaming-pcs-and-laptops/"><u>Top Picks: Best Value Gaming PCs and Laptops</u></a></li>
+<li><a href="https://techtrends.techidaily.com/trouble-with-netflix-discover-19-essential-tips-to-restore-functionality-on-your-lg-tv-set/"><u>Trouble with Netflix? Discover 19 Essential Tips to Restore Functionality on Your LG TV Set</u></a></li>
+</ul></div>
 

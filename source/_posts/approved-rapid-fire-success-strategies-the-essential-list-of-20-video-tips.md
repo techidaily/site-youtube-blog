@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Rapid-Fire Success Strategies  The Essential List of 20 Video Tips\""
-date: 2024-08-28T16:03:00.916Z
-updated: 2024-08-29T16:03:00.916Z
+date: 2024-12-04T22:09:16.931Z
+updated: 2024-12-06T22:39:57.716Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -42,8 +46,9 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -62,6 +67,10 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -85,8 +94,9 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -97,9 +107,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -115,8 +122,9 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -141,9 +149,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -154,23 +159,17 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +178,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-easy-steps-to-deactivate-igtv-for-2024/"><u>[New] Easy Steps to Deactivate IGTV for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-edit-youtube-videos/"><u>[New] How To Edit YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-moolah-on-youtube-a-creators-handbook/"><u>[New] In 2024, Maximizing Moolah on YouTube A Creator's Handbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ackling-negative-comments-a-content-creators-mantra/"><u>[New] Tackling Negative Comments A Content Creator's Mantra</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-craft-stellar-channels-best-10-apps-for-artistic-banner-design/"><u>[Updated] 2024 Approved Craft Stellar Channels Best 10 Apps for Artistic Banner Design</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mp4-and-webm-creation-from-social-media-videos/"><u>2024 Approved MP4 and WebM Creation From Social Media Videos</u></a></li>
+<li><a href="https://win-web3.techidaily.com/creating-multilingual-ui-elements-adding-portuguese-text-to-english-buttons-on-flipbuilder/"><u>Creating Multilingual UI Elements: Adding Portuguese Text to English Buttons on FlipBuilder</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725286251915-digiarty/"><u>Digiarty製品をお得に！特別割引プロモーション</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-raw-footage-to-final-cut-youtube-studio-edition-for-2024/"><u>From Raw Footage to Final Cut YouTube Studio Edition for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-potential-your-ultimate-youtube-facebook-transition-guide/"><u>In 2024, Unlocking Potential Your Ultimate YouTube-Facebook Transition Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unveiling-youtube-video-mastery-through-finalcut-pro-methods/"><u>In 2024, Unveiling YouTube Video Mastery Through FinalCut Pro Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-hot-40-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Infinix Hot 40</u></a></li>
+<li><a href="https://app-tips.techidaily.com/microsofts-new-release-a-game-changer-or-annoyance-find-out-how-it-stacks-up-zdnet/"><u>Microsoft's New Release: A Game Changer or Annoyance? Find Out How It Stacks Up [ZDNet]</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-10-innovative-4k-mirrorless-photographic-tools/"><u>Top 10 Innovative 4K Mirrorless Photographic Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On OnePlus 12 | Dr.fone</u></a></li>
+</ul></div>
 

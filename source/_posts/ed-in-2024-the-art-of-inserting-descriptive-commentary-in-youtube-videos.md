@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Art of Inserting Descriptive Commentary in YouTube Videos"
-date: 2024-08-28T16:08:01.146Z
-updated: 2024-08-29T16:08:01.146Z
+date: 2024-12-03T19:06:15.170Z
+updated: 2024-12-06T22:35:38.747Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -64,6 +72,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Select the timeline for the playhead to appear which leads to the card slide
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -76,6 +88,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,9 +159,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-conquer-common-youtube-short-setbacks/"><u>[New] In 2024, Conquer Common YouTube Short Setbacks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pioneering-portable-vrs-google-cardboard-versus-samsungs-tech-for-2024/"><u>[New] Pioneering Portable VRs Google Cardboard Versus Samsung's Tech for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-snippets-get-high-quality-images-without-a-penny-paid/"><u>[New] YouTube Snippets Get High-Quality Images Without a Penny Paid</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-learn-from-the-best-youtubes-top-green-screen-techniques/"><u>[Updated] 2024 Approved Learn From The Best Youtube’s Top Green Screen Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-key-to-youtube-success-25-effective-promotion-methods/"><u>[Updated] 2024 Approved The Key to YouTube Success 25 Effective Promotion Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unlock-the-potential-of-your-podcast-covers-now/"><u>[Updated] 2024 Approved Unlock the Potential of Your Podcast Covers Now</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-optibackup-insider-opinions/"><u>[Updated] In 2024, OptiBackup Insider Opinions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unboxing-pureaudiofinder-a-look-into-the-latest-release/"><u>[Updated] Unboxing PureAudioFinder A Look Into the Latest Release</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-breaking-down-sync-a-thorough-review-of-lgs-uhd68-display/"><u>2024 Approved Breaking Down Sync A Thorough Review of LG's UHD68 Display</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/8-premier-mp3-downloaders-for-android-devices-for-2024/"><u>8 Premier MP3 Downloaders for Android Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crafting-perfect-first-impressions-on-any-device-for-2024/"><u>Crafting Perfect First Impressions on Any Device for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/novice-to-pro-youtube-shorts-guide-for-2024/"><u>From Novice to Pro YouTube Shorts Guide for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-canon-mg3620-drivers-now-quick-safe-and-trouble-free/"><u>Get Your Canon MG3620 Drivers Now - Quick, Safe, and Trouble-Free!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aging-video-features-annotations-and-cards-for-2024/"><u>Leveraging Video Features Annotations & Cards for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/master-the-art-of-playing-gb-classics-on-a-windows-pc-for-2024/"><u>Master the Art of Playing GB Classics on a Windows PC for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

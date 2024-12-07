@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Write a Script for a YouTube Video\""
-date: 2024-08-28T16:07:31.268Z
-updated: 2024-08-29T16:07:31.268Z
+date: 2024-12-02T00:53:59.687Z
+updated: 2024-12-06T20:16:04.865Z
 tags:
   - ai video
   - ai youtube
@@ -35,46 +35,50 @@ You have a great idea for a video, but you’re just not sure how to express it 
 3. [After Writing Your YouTube Video Script](#after)
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### 4\. Make sure that the script is well structured
 
 It’s important to learn how to write a script that is well structured. Divide the script into four parts: Opening, Primer, Body, and Closing.
@@ -97,14 +101,15 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -114,23 +119,17 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +138,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-leave-a-lasting-impression-with-your-video-ending/"><u>[New] In 2024, How to Leave a Lasting Impression with Your Video Ending</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-can-you-broadcast-videos-without-infringing-laws-specifically-fb/"><u>[Updated] Can You Broadcast Videos Without Infringing Laws, Specifically FB?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-transitions-for-youtube-videos-in-adobe-premiere-for-2024/"><u>[Updated] Seamless Transitions for YouTube Videos in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-in-depth-analysis-of-fb-chat-recording-techniques/"><u>2024 Approved In-Depth Analysis of FB Chat Recording Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/descargar-la-herramienta-online-de-conversion-de-archivos-w64-sin-coste-alguno/"><u>Descargar La Herramienta Online De Conversión De Archivos W64 Sin Coste Alguno</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guaranteed-compatibility-quick-download-of-dell-sound-driver-software/"><u>Guaranteed Compatibility: Quick Download of Dell Sound Driver Software</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-infinix-note-30-vip-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Infinix Note 30 VIP Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-your-sporty-online-presence-with-mac-for-2024/"><u>Initiating Your Sporty Online Presence with Mac for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-extract-audio-from-webm-files-top-10-converter-tools-for-2024/"><u>New Extract Audio From WebM Files Top 10 Converter Tools for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-fcpx-subtitle-tutorial-adding-captions-for-better-video-engagement-for-2024/"><u>Updated FCPX Subtitle Tutorial Adding Captions for Better Video Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/l-vocabulary-complimentary-youtube-art-tools/"><u>Visual Vocabulary Complimentary YouTube Art Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/guide-to-the-finest-youtube-subtitles-extractor/"><u>Your Guide to the Finest YouTube Subtitles Extractor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/journey-to-glamorous-guruship-launching-an-aesthetic-channel/"><u>Your Journey to Glamorous Guruship Launching an Aesthetic Channel</u></a></li>
+</ul></div>
 

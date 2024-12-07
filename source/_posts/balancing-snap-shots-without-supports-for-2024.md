@@ -1,7 +1,7 @@
 ---
 title: "\"Self-Balancing  Snap Shots Without Supports for 2024\""
-date: 2024-08-28T16:07:14.746Z
-updated: 2024-08-29T16:07:14.746Z
+date: 2024-11-29T22:23:22.520Z
+updated: 2024-12-07T07:28:01.822Z
 tags:
   - ai video
   - ai youtube
@@ -28,13 +28,25 @@ thumbnail: https://thmb.techidaily.com/3826690fad2bdad4d7aa62bd8a31b6771b0779110
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -58,9 +70,6 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -89,9 +99,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,22 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +144,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/nty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should-be-/"><u>__Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gnite-conversations-top-10-creative-reaction-insights-for-videos/"><u>[New] Ignite Conversations Top 10 Creative Reaction Insights for Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-cinematic-journey-crafting-youtube-trailers-in-filmora/"><u>[New] In 2024, The Cinematic Journey Crafting YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking/"><u>[New] Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-professional-level-edits-made-simple-10-pixlr-strategies/"><u>[New] Professional-Level Edits Made Simple 10 Pixlr Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-rethink-periscope-6-innovative-video-apps-for-iphones-and-android-for-2024/"><u>[New] Rethink Periscope 6 Innovative Video Apps for iPhones & Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivating-imagery-with-these-20-top-video-thumbnail-fonts/"><u>[Updated] In 2024, Captivating Imagery with These 20 Top Video Thumbnail Fonts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-incorporating-custom-visuals-in-youtube-videos-easily/"><u>[Updated] In 2024, Incorporating Custom Visuals in YouTube Videos Easily</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-yield-assessment-predicting-youtube-money/"><u>[Updated] In 2024, Yield Assessment Predicting YouTube Money</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-diving-into-youtube-creation-and-making-it-monetary/"><u>2024 Approved Diving Into YouTube Creation & Making It Monetary</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/boost-your-pc-performance-with-easy-ram-upgrade-techniques-for-laptops-tips-and-tricks/"><u>Boost Your PC Performance with Easy RAM Upgrade Techniques for Laptops - Tips & Tricks</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/elite-dei-15-video-extrattori-di-piu-popolarita-su-reddit/"><u>Elite Dei 15 Video Extrattori Di Più Popolarità Su Reddit</u></a></li>
+<li><a href="https://win-able.techidaily.com/improve-playability-of-watch-dogs-legion-strategies-to-optimize-frame-rate-and-minimize-delays/"><u>Improve Playability of Watch Dogs: Legion - Strategies to Optimize Frame Rate & Minimize Delays</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-12-step-youtube-seo-guide-for-beginners-who-want-more-views/"><u>In 2024, The 12-Step YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unveiling-the-unexpected-10-truths-about-instagram-reels/"><u>In 2024, Unveiling the Unexpected 10 Truths About Instagram Reels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-video-exposure-top-6-techniques-for-youtube-growth-for-2024/"><u>Unlocking Video Exposure Top 6 Techniques for YouTube Growth for 2024</u></a></li>
+</ul></div>
 

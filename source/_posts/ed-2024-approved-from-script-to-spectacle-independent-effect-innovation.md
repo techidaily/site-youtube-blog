@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Script to Spectacle  Independent Effect Innovation\""
-date: 2024-11-24T16:39:11.463Z
-updated: 2024-11-27T21:34:44.113Z
+date: 2024-12-05T21:15:14.778Z
+updated: 2024-12-07T05:14:31.861Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,14 +112,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-compilation-worlds-leading-youtube-mp3-downloaders/"><u>[New] In 2024, Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-vhs-illusions-to-enhance-film-projects/"><u>[New] In 2024, Prime VHS Illusions to Enhance Film Projects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-strategic-setup-youtube-gaming-banners-made-easy-for-2024/"><u>[Updated] Strategic Setup YouTube Gaming Banners Made Easy for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-turn-your-vlogs-into-tunes-with-an-insta-mp3-conversion-hack-for-2024/"><u>[Updated] Turn Your Vlogs Into Tunes with an Insta-Mp3 Conversion Hack for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1726028514717-pcmdsd/"><u>「高解像度PCMフォーマットへの変換：DSD音源を最適化するための手引き」</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-from-lens-to-legacy-building-a-lasting-career-in-travel-blogging/"><u>2024 Approved From Lens to Legacy Building a Lasting Career in Travel Blogging</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-trail-of-imagery-the-complete-user-manual-for-inverted-scans-in-instagram/"><u>2024 Approved Trail of Imagery The Complete User Manual for Inverted Scans in Instagram</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/oading-audio-made-simple-with-these-19-top-quality-free-rippers-from-youtube-for-2024/"><u>Downloading Audio Made Simple with These 19 Top-Quality Free Rippers From YouTube for 2024</u></a></li>
-<li><a href="https://techidaily.com/samsung-galaxy-a54-5g-won-t-play-mkv-movies-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Samsung Galaxy A54 5G won’t play MKV movies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos/"><u>[New] 2024 Approved Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-live-logging-to-global-broadcasting-mastery-through-mindfulness/"><u>[New] In 2024, From Live Logging to Global Broadcasting Mastery Through Mindfulness</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ryans-revenue-revolution-from-childhood-to-youtube-riches/"><u>[New] In 2024, Ryan’s Revenue Revolution From Childhood to YouTube Riches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-understanding-igtv-from-basics-to-boosting-your-presence/"><u>[New] In 2024, Understanding IGTV From Basics, to Boosting Your Presence</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-add-transitions-in-kinemaster/"><u>[Updated] Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-ideal-sites-to-discover-3d-golden-tinted-typography/"><u>[Updated] Ideal Sites to Discover 3D Golden Tinted Typography</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-deciphering-youtube-monetization-success-codes/"><u>[Updated] In 2024, Deciphering YouTube Monetization Success Codes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-crafting-a-viral-video-introduction-for-2024/"><u>[Updated] The Pathway to Crafting a Viral Video Introduction for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-tier-video-openings-the-best-16-to-grow-your-audience/"><u>[Updated] Top-Tier Video Openings The Best 16 to Grow Your Audience</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/best-rvs-on-the-market-exclusive-look-at-top-rated-motorhomes-and-camper-units-zdnet-gearguide/"><u>Best RVs on the Market : Exclusive Look at Top-Rated Motorhomes and Camper Units | ZDNET GearGuide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-open-source-video-template-ideas-for-youtube/"><u>In 2024, Open Source Video Template Ideas for YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-xs-max-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone XS Max Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/syncing-tiktok-videos-with-your-facebook-profile/"><u>Syncing TikTok Videos with Your Facebook Profile</u></a></li>
 </ul></div>
 

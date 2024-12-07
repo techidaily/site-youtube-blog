@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Beginner's Steps to Broadcast on Youtube via OBS"
-date: 2024-08-28T16:04:18.846Z
-updated: 2024-08-29T16:04:18.846Z
+date: 2024-11-30T01:09:17.234Z
+updated: 2024-12-07T04:09:00.024Z
 tags:
   - ai video
   - ai youtube
@@ -37,9 +37,17 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ creator studio](https://images.wondershare.com/filmora/article-images/creator-studio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Choose the Video Manager option from top most toolbar.
 
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
@@ -49,13 +57,25 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![stream now ](https://images.wondershare.com/filmora/article-images/stream-now.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Change or Upload your thumbnail as per need.
 
 ![thumbnail ](https://images.wondershare.com/filmora/article-images/thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** It is time to provide an eye catching title to your video, add description and finally choose category from the drop down menu.
 
 ![  category](https://images.wondershare.com/filmora/article-images/category.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 7:** While using stream option, never forget to click on ‘make archive unlisted when complete’ option so that you can save as well as watch your content on YouTube at later stage.
 
@@ -64,6 +84,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 8:** You can monetize your ads as per need.
 
 ![Monetizae you ](https://images.wondershare.com/filmora/article-images/monetizae-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** It also provides options to add cards.
 
@@ -85,6 +109,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 14:** One can also use the social media button for live shares.
 
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
@@ -98,6 +126,10 @@ As soon as you have completed the above set up then next task is to adjust setti
 **Step 2:** Now launch OBS on your device and directly go to settings option.
 
 ![ Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
@@ -119,17 +151,10 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
@@ -147,29 +172,25 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![ your bitrate](https://images.wondershare.com/filmora/article-images/your-bitrate.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 7:** When all above steps are completed then you need to hit the option for save changes so that your tool can act accordingly.
 
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Video tutorial
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -180,14 +201,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +214,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-examining-the-potential-of-4-second-subscriptions-for-2024/"><u>[New] Examining the Potential of 4-Second Subscriptions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-camera-picks-for-aspiring-youtubers/"><u>[Updated] 2024 Approved Ultimate Camera Picks for Aspiring YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximize-visual-impact-on-youtube-adding-watermarks-and-logo-to-media-content/"><u>[Updated] In 2024, Maximize Visual Impact on YouTube Adding Watermarks & Logo to Media Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-slash-and-save-how-to-edit-youtube-videos-quickly/"><u>[Updated] In 2024, Slash and Save How to Edit YouTube Videos Quickly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-to-avi-tutorial-plus-8-best-youtube-to-avi-converters/"><u>[Updated] In 2024, YouTube to AVI Tutorial + 8 Best YouTube to AVI Converters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-8-gratis-video-cutting-tools-for-online-content-creation-for-2024/"><u>[Updated] Top 8 Gratis Video Cutting Tools For Online Content Creation for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-creating-a-fortified-mc-homebase/"><u>2024 Approved Creating a Fortified MC Homebase</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-discovering-the-treasure-trove-of-free-designs/"><u>2024 Approved Discovering the Treasure Trove of Free Designs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-gaming-experience-on-youtube/"><u>2024 Approved Elevate Your Gaming Experience on YouTube</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-compressed-video-format-for-optimal-quality-finding-the-perfect-balance/"><u>Best Compressed Video Format for Optimal Quality: Finding the Perfect Balance</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/digital-game-highlights-6-pc-snapshot-strategies-for-2024/"><u>Digital Game Highlights 6 PC Snapshot Strategies for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722960991988-geforce-rtx-3070-driver-update-fresh-batch-compatible-with-windows-1110-download-here/"><u>GeForce RTX 3070 Driver Update: Fresh Batch Compatible with Windows 11/10 – Download Here!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-13-pro-max-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 13 Pro Max Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ideal-dimensions-for-youtube-thumbnail-attraction/"><u>In 2024, Ideal Dimensions for YouTube Thumbnail Attraction</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-live-broadcasting-demystified/"><u>In 2024, YouTube Live Broadcasting Demystified</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-amazonbasics-7-port-usb-30-hub-for-optimal-port-usage/"><u>In-Depth Analysis of AmazonBasics 7-Port USB 3.0 Hub for Optimal Port Usage</u></a></li>
+</ul></div>
 

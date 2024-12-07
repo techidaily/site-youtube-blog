@@ -1,7 +1,7 @@
 ---
 title: "\"Beauty Brilliance  Inside the World of Youtube Cosmetics\""
-date: 2024-11-22T20:28:01.476Z
-updated: 2024-11-27T22:59:01.157Z
+date: 2024-11-30T00:58:49.223Z
+updated: 2024-12-07T05:40:42.796Z
 tags:
   - ai video
   - ai youtube
@@ -53,11 +53,11 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -109,7 +109,7 @@ Here are some common types of beauty and lifestyle videos:
 * No Mirror Makeup Challenge
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Get Products to Review**
@@ -170,10 +170,6 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -181,6 +177,10 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -263,10 +263,6 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -276,6 +272,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  3. **_Tidy up._** If you want your viewers to trust you when it comes to aesthetics, it’s important that your studio area is clean and tidy. You may even want to use a backdrop.
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
 
@@ -287,7 +287,7 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
@@ -327,14 +327,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-exploring-premium-webcams-shoppers-insights-for-2024/"><u>[Updated] Exploring Premium Webcams - Shopper's Insights for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-step-by-step-guide-to-time-stamping-for-higher-youtube-rankings/"><u>[Updated] In 2024, Step-by-Step Guide to Time Stamping for Higher YouTube Rankings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-digital-domains-star-clusters-for-2024/"><u>[Updated] The Digital Domain's Star Clusters for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-path-to-popularity-making-videos-go-viral-for-2024/"><u>[Updated] The Path to Popularity Making Videos Go Viral for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-scaling-success-the-tactics-for-increasing-youtube-audiences/"><u>2024 Approved Scaling Success The Tactics for Increasing YouTube Audiences</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-15-most-effective-snapchat-posts-of-the-year/"><u>2024 Approved The 15 Most Effective Snapchat Posts of the Year</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/freie-dvd-regionskodeubersetzung-unter-windows-11-8-7-kostenlose-losung/"><u>Freie DVD-Regionskodeübersetzung Unter Windows 11, 8, 7 - Kostenlose Lösung</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/quick-and-simple-guide-setting-up-chatgpt-on-your-linux-system-with-bavarder/"><u>Quick & Simple Guide: Setting Up ChatGPT on Your Linux System with Bavarder</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-infinix-note-30-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Infinix Note 30 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-streamstart-beginner-friendly-podcast-live-broadcast-guide/"><u>[New] 2024 Approved StreamStart Beginner-Friendly Podcast Live Broadcast Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-premier-guide-to-free-online-meetings-and-sharing-screens/"><u>[New] 2024 Approved The Premier Guide to FREE Online Meetings & Sharing Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-examining-the-efficacy-of-dji-mavic-mini-fpv-technology/"><u>[New] In 2024, Examining the Efficacy of DJi Mavic Mini FPV Technology</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-shorts-for-profit-essential-requirements-and-potential-earnings-for-2024/"><u>[New] Mastering Youtube Shorts for Profit Essential Requirements and Potential Earnings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ncover-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>[New] Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-remove-youtube-videos/"><u>[Updated] 2024 Approved How to Remove YouTube Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-subtlety-in-audio-mixdown-with-alive/"><u>[Updated] 2024 Approved Subtlety in Audio Mixdown with Alive</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-masterful-color-transformations-with-free-and-paid-luts-for-cameras-for-2024/"><u>[Updated] Masterful Color Transformations with Free & Paid LUTs for Cameras for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-world-of-webcams-for-high-quality-streams/"><u>[Updated] Navigating the World of Webcams for High-Quality Streams</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-revolutionize-your-vlog-with-these-elite-12-cameras/"><u>[Updated] Revolutionize Your Vlog with These Elite 12 Cameras</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-key-to-captivating-audiences-crafting-fb-slideshows-for-2024/"><u>[Updated] The Key to Captivating Audiences Crafting FB Slideshows for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-breaking-down-lg-27ud88-uhd-tv-with-usb-type-c/"><u>2024 Approved Breaking Down LG 27UD88-UHD TV with USB Type-C</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-leading-10-decibel-boosters-windows-macos-iphones/"><u>2024 Approved Leading 10 Decibel Boosters Windows, MacOS, iPhones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-quash-unwanted-youtube-suggested-videos/"><u>2024 Approved Quash Unwanted YouTube Suggested Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oppo-reno-8t-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Oppo Reno 8T 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-go-backwards-a-step-by-step-for-reversing-youtube-videos/"><u>In 2024, Go Backwards A Step-by-Step for Reversing YouTube Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-steam-library-not-writable-on-pc-windows-11/"><u>Overcoming Steam Library Not Writable on PC Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/to-editing-greatness-with-our-top-10-youtube-tips/"><u>Rise to Editing Greatness with Our Top 10 YouTube Tips</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/windows-11ai/"><u>Windows 11無料ダウンロードガイド：アップグレード手順と最新AIツールの概要</u></a></li>
 </ul></div>
 

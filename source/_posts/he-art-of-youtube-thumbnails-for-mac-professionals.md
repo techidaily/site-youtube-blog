@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of YouTube Thumbnails for Mac Professionals"
-date: 2024-08-28T16:05:37.082Z
-updated: 2024-08-29T16:05:37.082Z
+date: 2024-12-01T03:45:37.674Z
+updated: 2024-12-06T23:30:45.495Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,18 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -62,11 +67,9 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -74,17 +77,19 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -101,23 +106,17 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +125,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-8-most-effective-authentic-promotion-techniques/"><u>[New] In 2024, The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-keeping-it-real-in-the-rat-race-of-retweets-and-likes/"><u>[Updated] In 2024, Keeping It Real in the Rat Race of Retweets and Likes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-monetization-sourav-joshi-income-on-youtube-2024/"><u>[Updated] YouTube Monetization Sourav Joshi Income on YouTube 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>2024 Approved Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-pinpointing-your-place-in-youtubes-varied-landscapes/"><u>2024 Approved Pinpointing Your Place in YouTube's Varied Landscapes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comparing-the-leading-no-cost-video-communication-apps-iosandroid-for-2024/"><u>Comparing the Leading No-Cost Video Communication Apps (iOS/Android) for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-12-proplus-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme 12 Pro+ 5G Devices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-echoing-emotions-infusing-music-into-instareel-content/"><u>In 2024, Echoing Emotions Infusing Music Into InstaReel Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-navigating-through-top-10-youtube-mp3-extractors/"><u>In 2024, Navigating Through Top 10 YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unleash-windows-11-potential-latest-apps-and-games/"><u>In 2024, Unleash Windows 11 Potential Latest Apps & Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-communication-the-art-of-using-zoom-in-win11-for-2024/"><u>Streamlining Communication The Art of Using Zoom in Win11 for 2024</u></a></li>
+</ul></div>
 

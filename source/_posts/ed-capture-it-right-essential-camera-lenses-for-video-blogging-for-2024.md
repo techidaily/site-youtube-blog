@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capture It Right  Essential Camera Lenses for Video Blogging for 2024\""
-date: 2024-08-28T16:05:44.606Z
-updated: 2024-08-29T16:05:44.606Z
+date: 2024-12-06T03:59:11.207Z
+updated: 2024-12-06T20:26:16.985Z
 tags:
   - ai video
   - ai youtube
@@ -79,8 +79,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -88,8 +89,9 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -108,22 +110,21 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
@@ -144,6 +145,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -158,23 +163,17 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/hoosing-youtube-premium-what-makes-it-worth-the-price-in-2024/"><u>[New] Choosing YouTube Premium What Makes It Worth the Price, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-youtubes-monetization-frequency/"><u>[New] In 2024, Navigating YouTube's Monetization Frequency</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-mac-snippet-apps-a-compilation/"><u>[Updated] 2024 Approved Essential Mac Snippet Apps A Compilation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-converting-in-meeting-google-meet-to-youtube-broadcasts-your-guide/"><u>[Updated] Converting In-Meeting Google Meet to YouTube Broadcasts Your Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-the-perfect-pitch-inviting-listeners-to-join-us-for-2024/"><u>[Updated] Crafting the Perfect Pitch Inviting Listeners to Join Us for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-behind-the-curtains-a-guide-to-youtubes-hidden-videos/"><u>[Updated] In 2024, Behind the Curtains A Guide to YouTube’s Hidden Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-digitizing-creativity-prime-nft-generating-platforms-revealed/"><u>[Updated] In 2024, Digitizing Creativity Prime NFT-Generating Platforms Revealed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-swiftly-render-and-upload-videos-tips-for-speedy-youtube-submissions/"><u>[Updated] Swiftly Render & Upload Videos Tips for Speedy YouTube Submissions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-simple-guide-to-free-video-embedding-in-articles-for-2024/"><u>[Updated] The Simple Guide to Free Video Embedding in Articles for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-path-to-profit-calculating-video-view-requirements/"><u>Charting a Path to Profit Calculating Video View Requirements</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/effortless-movie-watching-the-three-best-techniques-for-playing-dvds-in-windows-10/"><u>Effortless Movie Watching: The Three Best Techniques for Playing DVDs in Windows 10</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-edge-40-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Motorola Edge 40 Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-examining-how-youtube-curates-its-highlighted-discussion-threads/"><u>In 2024, Examining How YouTube Curates Its Highlighted Discussion Threads</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/snapshot-success-the-photographers-tale-for-2024/"><u>Snapshot Success The Photographer's Tale for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/g-flight-on-youtube-strategies-to-skyrocket-your-video-rankings-for-2024/"><u>Taking Flight on YouTube Strategies to Skyrocket Your Video Rankings for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685501-9781646045082-the-big-book-of-cryptid-trivia/"><u>The Big Book of Cryptid Trivia | Free Book</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-in-depth-insights-into-the-latest-gadgets/"><u>Tom's Tech Review - In-Depth Insights Into the Latest Gadgets</u></a></li>
+</ul></div>
 

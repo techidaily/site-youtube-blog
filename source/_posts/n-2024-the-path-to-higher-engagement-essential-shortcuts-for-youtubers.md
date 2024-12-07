@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Path to Higher Engagement  Essential Shortcuts for YouTubers\""
-date: 2024-08-28T16:09:01.266Z
-updated: 2024-08-29T16:09:01.266Z
+date: 2024-12-03T00:20:17.715Z
+updated: 2024-12-07T05:09:51.164Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,17 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -69,9 +77,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -84,9 +89,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -96,6 +98,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -111,6 +117,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -124,8 +134,9 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -138,9 +149,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -149,29 +157,19 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +178,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-best-gopro-hero5-black-batteries-and-chargers-official-and-3rd-party/"><u>[New] Best GoPro Hero5 Black Batteries & Chargers Official and 3Rd Party</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-strategies-for-adding-value-youtubes-card-system/"><u>[New] In 2024, Strategies for Adding Value YouTube's Card System</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-masterclass-setting-up-countdowns-in-obs-studio/"><u>[New] Masterclass Setting Up Countdowns in OBS Studio</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-xstudio-essentials-explored-detailed-reviews/"><u>[Updated] 2024 Approved XStudio Essentials Explored Detailed Reviews</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-escape-the-top-chart-unexpected-flick-winners/"><u>[Updated] In 2024, Escape the Top Chart Unexpected Flick Winners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-online-income-from-youtubes-adsense-to-direct-payments/"><u>[Updated] Mastering Online Income From YouTube's AdSense to Direct Payments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essentials-of-efficient-video-tagging-methods/"><u>[Updated] The Essentials of Efficient Video Tagging Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-curated-cinematic-journeys-the-best-yt-film-selections/"><u>2024 Approved Curated Cinematic Journeys The Best YT Film Selections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-discovering-the-top-10-invisible-story-lovers/"><u>2024 Approved Discovering the Top 10 Invisible Story Lovers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/2024s-top-fixes-navigating-mfs-xbox-series-xs-dev-error-6068-in-warzone-a-comprehensive-guide/"><u>2024'S Top Fixes: Navigating MFS Xbox Series X/S Dev Error 6068 in Warzone - A Comprehensive Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/encounter-liquid-inside-iphone-charger-port-here-are-2-effective-solutions/"><u>Encounter Liquid Inside iPhone Charger Port? Here Are 2 Effective Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/glimpse-into-the-new-era-of-laptops-leaked-visuals-reveal-ai-powered-qualcomm-snapdragon-inside-next-gen-dell-xps-and-inspiron-notebooks-expected-this-fall.1/"><u>Glimpse Into the New Era of Laptops – Leaked Visuals Reveal AI-Powered Qualcomm Snapdragon Inside Next-Gen Dell XPS & Inspiron Notebooks, Expected This Fall</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-oneplus-11r-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset OnePlus 11R | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Art of Lights for YouTube Vlogging"
-date: 2024-08-28T16:02:19.898Z
-updated: 2024-08-29T16:02:19.898Z
+date: 2024-12-02T20:03:10.133Z
+updated: 2024-12-07T06:45:26.303Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,17 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -44,12 +52,12 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -77,17 +85,15 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -95,22 +101,20 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +123,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-best-lyric-video-makers-you-should-try/"><u>[New] In 2024, Best Lyric Video Makers You Should Try</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-efficient-editing-for-quick-youtube-content/"><u>[New] In 2024, Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-growth-on-a-dime-attracting-sponsors-with-simplicity/"><u>[Updated] Channel Growth on a Dime Attracting Sponsors with Simplicity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-essential-tactics-for-youtube-advertising-with-banners/"><u>[Updated] In 2024, Essential Tactics for YouTube Advertising with Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pro-tips-for-utilizing-green-screen-effects-professionally-for-2024/"><u>[Updated] Pro Tips for Utilizing Green Screen Effects Professionally for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-e-shops-for-unique-tailored-boxed-gifts-and-packages/"><u>2024 Approved Top E-Shops for Unique, Tailored Boxed Gifts & Packages</u></a></li>
+<li><a href="https://techtrends.techidaily.com/2024-ogg-to-mp3/"><u>2024年度更新 - オールインワンの高品質Ogg to MP3コンバーター:無料アプリと使用ガイド</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-se-2020-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone SE (2020) in Lost Mode</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-spanish-diacritical-marks/"><u>Essential Guide to Spanish Diacritical Marks</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-syncing-songs-with-stories-and-videos-on-instagram/"><u>In 2024, Syncing Songs with Stories and Videos on Instagram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h265-hevc-video-on-moto-g04-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Moto G04</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-modifying-your-instagram-message-content/"><u>Step-by-Step Guide: Modifying Your Instagram Message Content</u></a></li>
+</ul></div>
 

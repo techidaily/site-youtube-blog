@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tips for Effortless Eradication of Unwanted YouTube Discussions\""
-date: 2024-08-28T16:06:36.991Z
-updated: 2024-08-29T16:06:36.991Z
+date: 2024-12-01T22:51:42.653Z
+updated: 2024-12-06T22:05:20.437Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [Part 3: How to Delete Your Comments from YouTube?](#part3)
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
 
@@ -83,9 +87,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -107,11 +108,13 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -121,9 +124,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -133,18 +133,20 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +167,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/levate-your-channels-popularity-with-12-key-growth-techniques-for-2024/"><u>[New] Elevate Your Channel's Popularity with 12 Key Growth Techniques for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-creative-commons-chill-vibes/"><u>[New] In 2024, Creative Commons Chill Vibes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channeling-wealth-through-beauty-online-platforms-for-2024/"><u>[Updated] Channeling Wealth Through Beauty Online Platforms for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-add-captions-to-youtube-videos-for-2024/"><u>[Updated] How To Add Captions to YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-roundup-unleashing-the-best-5-online-title-makers/"><u>[Updated] The Ultimate Roundup Unleashing the Best 5 Online Title Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-potential-the-ultimate-pathway-to-effective-youtube-banners-for-2024/"><u>[Updated] Unleashing Potential The Ultimate Pathway to Effective YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-snicker-sounds-hilarious-song-imitations/"><u>2024 Approved Snicker Sounds Hilarious Song Imitations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-syncopated-patterns-in-youtube-music-collections/"><u>2024 Approved Syncopated Patterns in YouTube Music Collections</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/boost-productivity-essential-mac-keyboard-shortcut-for-an-improved-daily-start-at-work/"><u>Boost Productivity: Essential Mac Keyboard Shortcut for an Improved Daily Start at Work</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-the-gap-transitioning-youtube-to-televisions-smoothly/"><u>Bridging the Gap Transitioning YouTube to Televisions Smoothly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Samsung</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-love-in-motion-youtube-and-vimeos-top-9-premium-marriage-films/"><u>In 2024, Love in Motion YouTube & Vimeo's Top 9 Premium Marriage Films</u></a></li>
+<li><a href="https://win-updates.techidaily.com/streamlining-your-pc-experience-a-step-by-step-guide-to-disabling-user-login-in-windows-11/"><u>Streamlining Your PC Experience: A Step-by-Step Guide to Disabling User Login in Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-power-of-language-ai-palm-2-and-gpt-4-faceoff/"><u>The Power of Language AI: PaLM 2 and GPT-4 Faceoff</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/top-12-free-animation-software-picks-of-2024-best-3d-programs-for-aspiring-animators/"><u>Top 12 Free Animation Software Picks of 2024: Best 3D Programs for Aspiring Animators</u></a></li>
+</ul></div>
 

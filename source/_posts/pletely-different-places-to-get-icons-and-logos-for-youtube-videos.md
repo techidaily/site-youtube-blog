@@ -1,7 +1,7 @@
 ---
 title: "6 Completely Different Places to Get Icons and Logos for YouTube Videos"
-date: 2024-08-28T16:09:15.484Z
-updated: 2024-08-29T16:09:15.484Z
+date: 2024-12-05T05:48:38.006Z
+updated: 2024-12-06T19:58:00.004Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ You start out on Flaticon by searching for a theme like beauty, gaming, flowers,
 
 ![ YouTube Logo Icon Download Site Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _These aren’t all the birds on Flaticon, just a few._ _They had a huge selection in all the different searches I tried._
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
@@ -74,6 +78,10 @@ Flaticon has a great selection, it’s free, and they make it really easy to edi
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. [Freepik.com](https://www.freepik.com/)
 
 **Key Points:**
@@ -93,9 +101,9 @@ You can’t edit on freepik, and in order to download for free you need to inclu
 You do not choose what format to download your images in on freepik. When you hit ‘Free Download’ it will automatically download a zip file which will contain both a .jpg and a .eps. The EPS is editable in any ‘vector graphics editor’, like Adobe Illustrator, and YouTube supports .jpg files.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. [Seeklogo.net](https://www.seeklogo.net/)
 
 **Key Points:**
@@ -111,11 +119,12 @@ I searched for YouTube – you never know when you might need the YouTube logo.
 
 ![ YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. [IconArchive.com](http://www.iconarchive.com/)
 
 **Key Points:**
@@ -128,17 +137,15 @@ IconArchive has a huge selection of icons with somewhat of an office/business sl
 ![ YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Could be cool for a lifestyle video about school or work?_
 
 My favorite thing about IconArchive is its search features. It allows you to filter results by color, size (down to the specific resolution), category, background color, style, and a lot more.
 
 ![ YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
 
 The ‘Category’ filter is useful because there are some genres you probably recognize there, like ‘Lifestyle’. However, you should be careful not to over-filter. This site is pretty literal in how it categorizes. For example – there are no ‘flower’ images under ‘Lifestyle’.
@@ -165,17 +172,10 @@ In Step 1 it’ll ask for your company name and an activity type. You just need 
 
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
 ![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 _There are 10 pages of suggestions!_
 
 You can see how, unless you have a short channel name, you’re probably not going to be able to use any of these as an icon, but a lot of them would look cool on a banner. There’s an ‘Edit Logo Concept’ button which allows you to make changes to the layout, but you can still only choose from preset layouts. For example, some logo concepts allow you to choose whether the icon is above your text or next to it.
@@ -211,8 +211,9 @@ You can give your icon a pretty different look from its default. Check this out:
 ![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
@@ -223,12 +224,13 @@ I downloaded my image and tried to see how it would look as an icon/profile pict
 
 ![ Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
 
@@ -238,20 +240,21 @@ After downloading the icons or logos, it is time to add them to your YouTube vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -260,4 +263,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-basics-in-the-realm-of-tale-construction/"><u>[New] Basics in the Realm of Tale Construction</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levate-video-engagement-by-inserting-captions/"><u>[New] Elevate Video Engagement by Inserting Captions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-facebook-live-a-comprehensive-tutorial/"><u>[New] In 2024, Navigating Facebook Live A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimal-strategies-for-selective-youtube-video-downloads/"><u>[New] In 2024, Optimal Strategies for Selective YouTube Video Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-redefine-video-downloading-pick-from-these-top-ranked-free-and-on-demand-apps-for-youtube-shorts/"><u>[New] In 2024, Redefine Video Downloading Pick From These Top-Ranked, Free & On-Demand Apps for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nstantaneous-subscriber-tracking-for-2024/"><u>[New] Instantaneous Subscriber Tracking for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-art-of-crafting-youtube-content-expert-tips-with-imovie-integration-for-2024/"><u>[New] The Art of Crafting YouTube Content Expert Tips with iMovie Integration for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-from-idea-to-implementation-guiding-vendors-in-youtube-sponsorships/"><u>[Updated] 2024 Approved From Idea to Implementation Guiding Vendors in Youtube Sponsorships</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-balancing-viral-potential-with-long-term-traction-in-videos-for-2024/"><u>[Updated] Balancing Viral Potential with Long-Term Traction in Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-jest-jamboree-meme-ideas-fit-for-any-celebration/"><u>[Updated] Jest Jamboree Meme Ideas Fit for Any Celebration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-coping-with-youtube-copyright-claims-a-step-by-step-guide/"><u>2024 Approved Coping with YouTube Copyright Claims A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-igniting-online-frenzy-essential-trending-hashes/"><u>2024 Approved Igniting Online Frenzy Essential Trending Hashes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-subtitles-a-step-by-step-youtube-video-approach/"><u>Adding Subtitles A Step-by-Step YouTube Video Approach</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/zing-video-success-self-vs-rivals-in-the-youtube-arena-for-2024/"><u>Analyzing Video Success Self Vs. Rivals in the YouTube Arena for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-tecno-spark-10-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Tecno Spark 10 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-prevent-thumbnail-absence-in-shorts-uploads-for-2024/"><u>How to Prevent Thumbnail Absence in Shorts Uploads for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oppo-reno-10-proplus-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Oppo Reno 10 Pro+ 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-6-online-stores-offering-the-latest-televisions/"><u>Top 6 Online Stores Offering the Latest Televisions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-iphone-audio-issues-enhancing-call-volume-effectively/"><u>Troubleshooting iPhone Audio Issues: Enhancing Call Volume Effectively</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube Clips  Beginnings & Conclusions on a Budget\""
-date: 2024-08-28T16:06:50.019Z
-updated: 2024-08-29T16:06:50.019Z
+date: 2024-12-05T01:27:30.315Z
+updated: 2024-12-07T07:26:38.772Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/2dc71f07a766ca604beda3fe20bd5fd81321c87e0
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-perfecting-windows-11-photos-implement-filters-and-playlist-features/"><u>[New] 2024 Approved Perfecting Windows 11 Photos Implement Filters and Playlist Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-cost-effective-media-providers-online/"><u>[New] In 2024, The Ultimate Guide to Cost-Effective Media Providers Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-astral-adventures-with-your-luxury-sj4000-essential-accompaniments/"><u>[Updated] 2024 Approved Astral Adventures with Your Luxury SJ4000 - Essential Accompaniments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] 2024 Approved Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-inexpensive-pcs-optimized-obs-configuration/"><u>[Updated] 2024 Approved Inexpensive PCs Optimized OBS Configuration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-maximizing-viewership-techniques-for-selecting-featured-channels/"><u>[Updated] 2024 Approved Maximizing Viewership Techniques for Selecting Featured Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-achieving-high-clickthrough-rates-with-yt-thumbnails-for-2024/"><u>[Updated] Achieving High Clickthrough Rates with YT Thumbnails for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/expert-advice-overcoming-critical-failure-codes-errors-for-a-smooth-windows-operating-experience/"><u>Expert Advice: Overcoming Critical Failure Codes Errors for a Smooth Windows ➡️ Operating Experience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-ordinary-to-stunning-photo-tile-magic-for-2024/"><u>From Ordinary to Stunning Photo Tile Magic for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-your-ps4s-video-capture-expert-advice-on-camera-placement/"><u>Mastering Your PS4's Video Capture: Expert Advice on Camera Placement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/l-your-youtube-content-faster-render-and-efficient-upload-processes-for-2024/"><u>Propel Your YouTube Content Faster Render & Efficient Upload Processes for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

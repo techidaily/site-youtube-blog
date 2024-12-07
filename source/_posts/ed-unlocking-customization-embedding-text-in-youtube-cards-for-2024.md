@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Customization  Embedding Text in YouTube Cards for 2024\""
-date: 2024-11-24T00:04:32.034Z
-updated: 2024-11-27T17:06:25.437Z
+date: 2024-11-30T06:19:09.499Z
+updated: 2024-12-06T21:37:10.061Z
 tags:
   - ai video
   - ai youtube
@@ -59,7 +59,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -74,10 +74,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,17 +94,13 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -142,7 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,14 +166,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/xploring-subscriptions-the-value-of-youtube-premium-for-2024/"><u>[New] Exploring Subscriptions The Value of YouTube Premium for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-10-must-see-vr-videos-on-youtube-for-deep-immersion/"><u>[New] In 2024, 10 Must-See VR Videos on YouTube for Deep Immersion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discovering-an-original-tiktok-identifier-code/"><u>[Updated] Discovering an Original TikTok Identifier Code</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-virtual-visage-creation-shaping-your-exaggerated-image/"><u>[Updated] In 2024, Virtual Visage Creation Shaping Your Exaggerated Image</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-through-gopros-time-lapse-potential/"><u>[Updated] Navigating Through GoPro's Time-Lapse Potential</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-affordable-and-effective-intros/"><u>[Updated] The Ultimate Guide to Affordable and Effective Intros</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Change Spotify Location After Moving to Another Country On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-surpass-your-competition-effective-youtube-seo-tips/"><u>In 2024, Surpass Your Competition Effective YouTube SEO Tips</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mp3-conversion-from-flac-files-a-guide-for-mac-users-itunes-free/"><u>MP3 Conversion From FLAC Files: A Guide for Mac Users (iTunes-Free)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-taking-charge-of-your-visual-brand-identity/"><u>[New] In 2024, Taking Charge of Your Visual Brand Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubes-everlasting-titles-with-millions-of-viewers/"><u>[New] YouTube's Everlasting Titles with Millions of Viewers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sharing-stories-that-resonate-with-a-digital-audience-yt/"><u>[Updated] 2024 Approved Sharing Stories that Resonate with a Digital Audience YT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-youtube-to-studio-quality-free-converters-for-wav-format/"><u>[Updated] In 2024, From YouTube to Studio Quality Free Converters for WAV Format</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-craft-unique-logos-using-complimentary-stock-graphics/"><u>2024 Approved Craft Unique Logos Using Complimentary Stock Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-vocal-modification-software-for-content-creators-for-2024/"><u>Best Vocal Modification Software for Content Creators for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/breakthrough-backdoor-facebook-access-restored/"><u>Breakthrough Backdoor Facebook Access Restored</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effortless-jotting-down-made-simple-in-win11/"><u>Effortless Jotting Down Made Simple in Win11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-the-nook-glowlight-4-edition-assessment/"><u>Expert Opinion: The Nook Glowlight 4 Edition Assessment</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-poco-c51-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Poco C51 online without jailbreak</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-premium-cut-tools-the-top-8-linux-apps/"><u>In 2024, Premium Cut Tools The Top 8 Linux Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-best-gopro-accessories-for-beginners/"><u>In 2024, The Best GoPro Accessories for Beginners</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-unleash-your-creativity-top-10-2d-animation-tools-for-artists-for-2024/"><u>New Unleash Your Creativity Top 10 2D Animation Tools for Artists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mlining-your-mac-techniques-to-remove-green-screen-effects/"><u>Streamlining Your Mac Techniques to Remove Green Screen Effects</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-mp4-format-compatibility-with-apple-tv-for-smooth-viewing-experience/"><u>Troubleshooting MP4 Format Compatibility with Apple TV for Smooth Viewing Experience</u></a></li>
 </ul></div>
 
