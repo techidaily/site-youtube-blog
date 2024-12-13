@@ -1,7 +1,7 @@
 ---
 title: "[New] How Does YouTube Work After a Video Is Uploaded"
-date: 2024-08-23T09:31:26.317Z
-updated: 2024-08-24T09:31:26.317Z
+date: 2024-12-12T01:12:42.653Z
+updated: 2024-12-12T18:02:15.178Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,17 +89,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ropel-views-up-top-hashtag-combinations-for-youtube-profit/"><u>[New] Propel Views Up Top Hashtag Combinations for YouTube Profit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-time-lapse-photography-on-samsung-phones/"><u>[Updated] 2024 Approved Mastering Time-Lapse Photography on Samsung Phones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-crafting-a-personalized-youtube-pathway-to-viewers/"><u>[Updated] In 2024, Crafting a Personalized YouTube Pathway to Viewers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-crafting-a-winning-windowsmac-skype-chat-circle/"><u>[Updated] In 2024, Crafting a Winning Windows/Mac Skype Chat Circle</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-video-thumbnail-making-for-popular-content-for-2024/"><u>[Updated] The Art of Video Thumbnail Making for Popular Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-journey-to-youtubes-command-center-of-creativity-for-2024/"><u>[Updated] Your Journey to YouTube's Command Center of Creativity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-journey-through-creative-commons-a-users-guide/"><u>2024 Approved The Journey Through Creative Commons A User's Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/preenas-guide-to-choosing-ideal-lenses-for-filmmaking-for-2024/"><u>A Compreenas Guide to Choosing Ideal Lenses for Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamlined-system-for-scrutinizing-youtube-subscriber-profits-3-step-guide/"><u>A Streamlined System for Scrutinizing YouTube Subscriber Profits 3-Step Guide</u></a></li>
+<li><a href="https://fox-within.techidaily.com/como-crear-con-exito-una-imagen-iso-personalizada-de-windows-1110-a-partir-de-su-equipo-existente/"><u>Cómo Crear Con Éxito Una Imagen ISO Personalizada De Windows 11/10 a Partir De Su Equipo Existente</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-improve-your-zoom-meet-by-sharpening-views/"><u>In 2024, Improve Your Zoom Meet by Sharpening Views</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-tiktoks-financial-landscape-a-creators-manual/"><u>In 2024, Mastering TikTok's Financial Landscape - A Creator's Manual</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restore-broken-video-formats-mp4-and-mov-editing-solutions-in-vlc-player/"><u>Restore Broken Video Formats: MP4 & MOV Editing Solutions in VLC Player</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

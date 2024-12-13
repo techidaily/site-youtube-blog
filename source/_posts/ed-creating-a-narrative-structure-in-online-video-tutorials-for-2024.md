@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating a Narrative Structure in Online Video Tutorials for 2024"
-date: 2024-08-23T09:31:55.594Z
-updated: 2024-08-24T09:31:55.594Z
+date: 2024-12-09T06:49:55.816Z
+updated: 2024-12-12T22:43:47.331Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/f060aa48894ea1b017bf8a4af8da622e4076e35a6
 
  So, now you understand why structure is so important to your channel, let's take a look at ways in which you can create an amazing structure for every video you produce.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How should you structure YouTube video content?
 
  There are some key elements of a YouTube video's structure which can make it more natural, more engaging and more fun to watch. When you're planning your structure, you should follow a logical timeline to take the viewer from start to finish easily, and to ensure you get the actions you want at the end.
@@ -59,17 +63,15 @@ thumbnail: https://thmb.techidaily.com/f060aa48894ea1b017bf8a4af8da622e4076e35a6
 ![](https://images.wondershare.com/filmora/article-images/youtube-structure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Your idea and purpose need to be conveyed fast and effectively if you're keen to get their interest. Most viewers will decide within the first three to five seconds of a video if they want to invest their time in watching, so it's crucial you capture their interest and engage them fast to stop them drifting away.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Main content
 
  Once you've introduced your video, it's time to start working through your content. This should be done by:
@@ -85,26 +87,21 @@ No advertising on the website.
  Now you've addressed the issue that your video content will solve, you're almost ready to ask them to take the next step. Almost. There's one more key element in your structure that you need to remember to include.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Hook
 
  The hook can be placed anywhere in your content, although it's most successful when placed either in the introduction or while you are framing the problem. The hook is a tidbit that aims to encourage a full viewing of your video, so don't give away your solutions but do give them a reason to carry on watching.
 
  If there's a particular point where you think they might become bored or distracted, this is a great time to insert your hook. Come up with a powerful hook, for instance 'with my solution I managed to go from ten views to two hundred in an hour' or 'when you hear this solution you'll understand how I tripled my profits overnight'. Give them a reason to want to stay to the end.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Outro
 
  Your outro shouldn't just be about signing off in your unique way with some lovely music and visuals. This is the point at which you can ask something back from your audience, whatever that may be. We call this a 'call to action', and it could eb something as simple as subscribing through to something more involved like visiting your website.
 
  Think about what you want from your audience; what should they do next? Remember to ask via a strong call to action, otherwise you've simply given them some free advice with very little in the way of a return for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Script or no script?
 
  Many YouTubers shy away from using any sort of script, feeling that this will make them less relatable and natural. Choosing whether or not to script is entirely up to you; some people feel more comfortable with a script to hand, whereas others prefer to just wing it as they go.
@@ -115,6 +112,10 @@ No advertising on the website.
 
  **Read More to Get :** [How to Loop a YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ready to go out and make amazing videos?
 
  Having a structure to your videos might seem a little unnatural at first, but there's plenty of evidence to show that people who take the time to plan their content get far better results than those who just improvise. If you're unsure of the best structure for your content, watch videos made by others in your niche to see how they organize theirs.
@@ -123,23 +124,17 @@ No advertising on the website.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +143,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-virtual-quality-assurance-examining-apps-with-vll/"><u>[New] 2024 Approved Virtual Quality Assurance Examining Apps with VLL</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-video-sharing-giants-clash-vimeo-vs-youtube/"><u>[Updated] In 2024, Video Sharing Giants Clash Vimeo vs YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-360-videos-for-fb-creation-and-sharing-guide-for-2024/"><u>[Updated] Mastering 360 Videos for FB Creation & Sharing Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-silences-symphony-strategies-for-capturing-pristine-audio-for-2024/"><u>[Updated] Silence's Symphony Strategies for Capturing Pristine Audio for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-five-game-changing-updates-from-facebook-for-2024/"><u>[Updated] Top Five Game-Changing Updates From Facebook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transition-tactics-setting-up-personalbusiness-youtube-channels-on-smartphones-for-2024/"><u>[Updated] Transition Tactics Setting Up Personal/Business YouTube Channels on Smartphones for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/asmr-youtube-channels-you-should-know/"><u>Best ASMR YouTube Channels You Should Know</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-samsung-galaxy-m54-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Samsung Galaxy M54 5G Phone | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/space-rockets-face-ongoing-issues-with-non-guided-touchdowns/"><u>Space Rockets Face Ongoing Issues with Non-Guided Touchdowns</u></a></li>
+</ul></div>
 

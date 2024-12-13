@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Behind the Screen  Essential Post-VidCon Gatherings\""
-date: 2024-08-28T16:02:13.679Z
-updated: 2024-08-29T16:02:13.679Z
+date: 2024-12-05T21:33:08.372Z
+updated: 2024-12-13T04:25:39.747Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -150,6 +158,10 @@ Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
 **Passes:**
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,20 +228,21 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-essential-windows-tips-for-efficient-live-tv-saving/"><u>[Updated] 2024 Approved Essential Windows Tips for Efficient Live TV Saving</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-top-additions-for-savvy-users-unveiled-for-2024/"><u>[Updated] Facebook's Top Additions for Savvy Users Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-plot-to-post-a-detailed-guide-to-writing-youtube-videos/"><u>[Updated] In 2024, From Plot to Post A Detailed Guide to Writing YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-rearranging-youtube-playlists-for-2024/"><u>[Updated] Step-by-Step Guide to Rearranging YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-visual-branding-mastery-implementing-watermarks-and-logos-into-video-content/"><u>[Updated] Visual Branding Mastery Implementing Watermarks & Logos Into Video Content</u></a></li>
+<li><a href="https://win-online.techidaily.com/adjust-your-personal-preferences-using-the-windows-control-panel-a-step-by-step-guide-tips-from-yl-computing/"><u>Adjust Your Personal Preferences Using the Windows Control Panel: A Step-by-Step Guide - Tips From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-deep-into-english-language-conjunctions-and-contractions/"><u>Diving Deep Into English Language Conjunctions and Contractions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/elite-screen-recording-app-for-no-popups/"><u>Elite Screen Recording App for No Popups</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-infuse-your-visuals-with-melody-adding-music-in-youtube-editing/"><u>In 2024, Infuse Your Visuals With Melody Adding Music in YouTube Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-yt-outro-guidelines-keeping-viewers-hooked/"><u>In 2024, YT Outro Guidelines Keeping Viewers Hooked</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-generative-ai-as-a-parent-insights-into-chatgpt/"><u>Navigating Generative AI as a Parent: Insights Into ChatGPT</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quadcopters-unveiled-their-intricate-workings-revealed/"><u>Quadcopters Unveiled Their Intricate Workings Revealed</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/resolving-discords-camera-dilemma-a-step-by-step-guide/"><u>Resolving Discord's Camera Dilemma: A Step-by-Step Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

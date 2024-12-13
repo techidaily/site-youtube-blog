@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks"
-date: 2024-12-04T05:05:59.937Z
-updated: 2024-12-06T22:39:06.849Z
+date: 2024-12-10T05:23:21.648Z
+updated: 2024-12-13T07:33:49.476Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -56,7 +60,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -65,10 +69,6 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -76,7 +76,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -86,7 +86,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,20 +126,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-on-camera-charisma-a-guide-to-personal-video-content/"><u>[New] In 2024, On-Camera Charisma A Guide to Personal Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-top-techniques-for-turning-yt-order-upside-down-for-2024/"><u>[New] The Top Techniques for Turning YT Order Upside-Down for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/op-revenue-making-youtube-visionary-for-2024/"><u>[New] Top Revenue-Making YouTube Visionary for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>[Updated] AdSense Profits on YouTube Earnings per Thousand Video Watchers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-your-youtube-music-order-for-2024/"><u>[Updated] Perfecting Your YouTube Music Order for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-shake-free-video-post-capture-tips-and-tricks/"><u>[Updated] Shake-Free Video Post-Capture Tips & Tricks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unearthing-your-private-playlist-sanctuary-on-youtube/"><u>[Updated] Unearthing Your Private Playlist Sanctuary on Youtube</u></a></li>
-<li><a href="https://win-able.techidaily.com/1-unveiling-the-superiority-comprehensive-benefits-of-h265-hevc-over-h2/"><u>1. Unveiling the Superiority: Comprehensive Benefits of H.265 (HEVC) over H.2</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-nubia-z50-ultra-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Nubia Z50 Ultra to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-guide-to-the-best-7-android-adblock-tools/"><u>In 2024, The Ultimate Guide to the Best 7 Android AdBlock Tools</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/july-22-edition-of-nyt-connections-insights-and-answers-unveiled-clue-407/"><u>July 22 Edition of 'NYT Connections': Insights & Answers Unveiled (Clue #407)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ating-youtubes-creative-commons-framework-effectively/"><u>Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-issues-with-spell-check-in-outlook-a-step-by-step-guide/"><u>Resolving Issues with Spell Check in Outlook - A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-remove-irrelevant-page-followings/"><u>Strategies to Remove Irrelevant Page Followings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-creator-studio-vs-youtube-studio-beta-which-one-is-better/"><u>YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-smartly-craft-your-podcast-title-with-these-tools/"><u>[New] 2024 Approved Smartly Craft Your Podcast Title with These Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-dynamic-collab-videos-with-content-partners-on-youtube/"><u>[New] Crafting Dynamic Collab Videos with Content Partners on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reating-channels-earning-dollars-a-beginners-guide/"><u>[New] Creating Channels, Earning Dollars A Beginner's Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-explore-the-best-4k-capture-with-10-mirrorless-models/"><u>[New] Explore the Best 4K Capture with 10 Mirrorless Models</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mac-studio-screen-and-sounds-recording-feature/"><u>[Updated] In 2024, Mac Studio Screen & Sounds Recording Feature</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-inside-out-the-explanation-for-youtubes-unlisted-media-for-2024/"><u>[Updated] Inside Out The Explanation for YouTube's Unlisted Media for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-digiarty-softwares-compliance-with-specific-trade-regulations-an-in-depth-guide/"><u>1. Digiarty Software's Compliance with Specific Trade Regulations: An In-Depth Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-streaming-experience-six-insightful-quizzes-for-fandom-enthusiasts/"><u>2024 Approved Elevate Your Streaming Experience Six Insightful Quizzes for Fandom Enthusiasts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-revolutionize-your-mind-best-15-tech-and-science-channels/"><u>In 2024, Revolutionize Your Mind Best 15 Tech & Science Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-ultimate-list-of-social-media-analytics-for-instagram-excellence/"><u>In 2024, The Ultimate List of Social Media Analytics for Instagram Excellence</u></a></li>
 </ul></div>
 

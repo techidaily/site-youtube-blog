@@ -1,7 +1,7 @@
 ---
 title: "Escaping a Stroke on Your YouTube Channel"
-date: 2024-08-23T09:33:03.233Z
-updated: 2024-08-24T09:33:03.233Z
+date: 2024-12-06T21:29:04.381Z
+updated: 2024-12-12T22:09:15.008Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Copyright Strikes
 
 You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
@@ -55,6 +59,10 @@ The most obvious way to earn a copyright strike is to repost content which you d
 Deleting your video, especially if you do so without contacting the rights holder, will not automatically reverse your copyright strike.
 
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Wrongful Copyright Strikes
 
@@ -77,8 +85,9 @@ To reverse a copyright strike where you believe your video should be protected a
 If your account has been suspended for accumulating multiple strikes, you will no longer be able to access the online counter-notification form and will have to send a free-form counter-notification. [Information on that can be found here](https://support.google.com/youtube/answer/6005919).
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Community Guidelines Strikes
 
 Most video creators – people who post vlogs, travel videos, and various kinds of tutorials – will never receive this type of strike. Sexual content, hateful content, threats, and scams are among the things you could post which would result in a community guidelines strike. Creators, in general, are not interested in posting cruel or graphic content.
@@ -93,35 +102,31 @@ Community Guidelines strikes expire after three months. As long as you only have
 
  Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Create Original Videos with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +135,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-record-gameplay-on-ps4/"><u>[New] How to Record Gameplay on PS4</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-free-minecraft-youtube-banners-with-templates/"><u>[New] In 2024, Free Minecraft YouTube Banners with Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-gain-massive-viewership-with-a-small-financial-investment/"><u>2024 Approved Gain Massive Viewership with a Small Financial Investment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/the-blank-screen-overcoming-top-vlogging-anxieties/"><u>Beat the Blank Screen Overcoming Top Vlogging Anxieties</u></a></li>
+<li><a href="https://windows11.techidaily.com/defeating-disk-defenders-sync-soundcard-irq-in-windows/"><u>Defeating Disk Defenders: Sync Soundcard IRQ in Windows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/immediate-discount-secure-200-off-on-todays-deal-for-m1-macbook-air-exclusive-offer/"><u>Immediate Discount: Secure $200 Off on Today's Deal for M1 MacBook Air - Exclusive Offer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-explore-and-compare-20plus-best-free-video-editors-for-ios/"><u>In 2024, Explore and Compare 20+ Best Free Video Editors for iOS</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-oppo-find-x6-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-monetizing-video-content-8-essentials-for-novices/"><u>In 2024, Monetizing Video Content - 8 Essentials for Novices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-lava-agni-2-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Lava Agni 2 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/privacy-first-the-leading-storywatchers-for-2024/"><u>Privacy-First The Leading Storywatchers for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/resolved-seagate-disk-management-app-issues-on-windows-11-8-and-7/"><u>Resolved: Seagate Disk Management App Issues on Windows 11, 8 & 7</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/le-with-screenshots-vlogging-for-value-creation-for-2024/"><u>Sparkle with Screenshots Vlogging for Value Creation for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/xiaomis-high-def-aerial-explorer-a-4k-test-for-2024/"><u>Xiaomi's High-Def Aerial Explorer - A 4K Test for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Beat the Blank Screen  Overcoming Top Vlogging Anxieties\""
-date: 2024-11-29T23:32:23.482Z
-updated: 2024-12-06T22:15:22.608Z
+date: 2024-12-07T00:06:50.975Z
+updated: 2024-12-13T01:14:34.515Z
 tags:
   - ai video
   - ai youtube
@@ -48,7 +48,7 @@ My advice is to start with shorter conversations with your camera in public and 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Fear of Being Judged by Others
@@ -56,10 +56,6 @@ As you continue to vlog in public more, you’ll become increasingly comfortable
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. Fear of Not Being Interesting Enough
 
@@ -73,13 +69,13 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. Fear of Failing To Get Big
 
@@ -88,7 +84,7 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
@@ -102,7 +98,7 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9. Fear of Making Others Uncomfortable
@@ -110,6 +106,10 @@ If, in the end, you realize you don’t enjoy vlogging, then at least you’re l
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
 
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
 
@@ -144,18 +144,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-starting-your-youtubian-journey-from-launchpad-to-loot/"><u>[New] In 2024, Starting Your Youtubian Journey From Launchpad to Loot</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/apid-redefinition-adjusting-youtube-on-mac-pixels/"><u>[New] Rapid Redefinition Adjusting YouTube on Mac Pixels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[Updated] Online Tutorial Adding YouTube Playlists to Your Site</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-shorts-visibility-no-more-problem-after-fix/"><u>[Updated] Shorts Visibility No More Problem After Fix</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-capture-clearness-without-a-tripod-tool/"><u>2024 Approved Capture Clearness Without a Tripod Tool</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-compelling-youtube-content-through-split-screens-for-2024/"><u>Crafting Compelling YouTube Content Through Split-Screens for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/diy-personalized-christian-mobile-melodies-for-2024/"><u>DIY Personalized Christian Mobile Melodies for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/te-your-channel-hit-the-10000-view-mark-fast-for-2024/"><u>Elevate Your Channel Hit the 10,000 View Mark Fast for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-web-analytics-with-cookiebot-technology/"><u>Enhancing Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://article-tips.techidaily.com/from-raw-to-refined-a-complete-guide-to-polarr-photo-tools-for-2024/"><u>From Raw to Refined A Complete Guide to Polarr Photo Tools for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/how-to-time-your-instagram-content-for-max-engagement/"><u>How to Time Your Instagram Content For Max Engagement</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211013585-9781644119457-seidr-magic/"><u>Seiðr Magic | Free Book</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solved-addressing-freezing-issues-and-frame-drops-during-gameplay-in-call-of-duty-modern-warfare-ii-for-windows-users/"><u>Solved! Addressing Freezing Issues and Frame Drops During Gameplay in Call of Duty: Modern Warfare II for Windows Users</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mastering-advanced-visual-techniques-with-version-22-vce-for-2024/"><u>[New] Mastering Advanced Visual Techniques with Version 2.2 VCE for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-fb-video-upload-pc-and-android-guide/"><u>[Updated] 2024 Approved Mastering FB Video Upload PC & Android Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-epicurean-escapades-crafting-kitchen-films/"><u>[Updated] Epicurean Escapades Crafting Kitchen Films</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-live-stream-on-youtube-gaming-for-2024/"><u>[Updated] How to Live Stream on YouTube Gaming for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dive-into-ios-screenshots-a-comprehensive-youtube-guide/"><u>[Updated] In 2024, Dive Into iOS Screenshots A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-iciness-to-comfort-five-warm-backdrops-ideas/"><u>[Updated] In 2024, From Iciness to Comfort Five Warm Backdrops Ideas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-master-image-editing-with-these-top-8-tablets-beyond-filmoras-reach/"><u>2024 Approved Master Image Editing with These Top 8 Tablets Beyond Filmora's Reach</u></a></li>
+<li><a href="https://games-able.techidaily.com/futureproof-your-pc-by-prioritizing-these-8-essentials-for-a-cooler/"><u>Futureproof Your PC by Prioritizing These 8 Essentials for a Cooler</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fast-and-easy-10-high-resolution-passport-portraits-for-desktopweb-use/"><u>In 2024, Fast & Easy 10 High-Resolution Passport Portraits for Desktop/Web Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-ios-insiders-list-top-rated-downloading-apps-for-video-buffs/"><u>In 2024, IOS Insider's List Top-Rated Downloading Apps for Video Buffs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-complete-lowdown-on-making-captivating-short-videos/"><u>In 2024, The Complete Lowdown on Making Captivating Short Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bes-quick-tunes-essential-insights-for-short-video-fans/"><u>YouTube's Quick Tunes Essential Insights for Short Video Fans</u></a></li>
 </ul></div>
 

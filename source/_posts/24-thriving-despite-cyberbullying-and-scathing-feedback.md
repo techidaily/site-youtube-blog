@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Thriving Despite Cyberbullying and Scathing Feedback"
-date: 2024-12-02T05:44:22.736Z
-updated: 2024-12-06T23:03:49.745Z
+date: 2024-12-10T08:22:09.280Z
+updated: 2024-12-13T06:02:35.436Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/fed92e9eb9a0a5e6e21c5bc280db28f15e68b1978
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/fed92e9eb9a0a5e6e21c5bc280db28f15e68b1978
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/astering-morning-tweets-essential-rules-and-prohibitions/"><u>[New] Mastering Morning Tweets Essential Rules & Prohibitions</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-zero-price-limitless-possibilities-apowersoft-screenshot-tool-review-for-2024/"><u>[New] Zero Price, Limitless Possibilities - Apowersoft Screenshot Tool Review for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>[Updated] 2024 Approved Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-exploring-the-depths-of-asmr-content/"><u>[Updated] 2024 Approved Exploring the Depths of ASMR Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-bright-ideas-effective-lighting-in-vlogging/"><u>[Updated] In 2024, Bright Ideas Effective Lighting in Vlogging</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-discover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality/"><u>[Updated] In 2024, Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-exposing-sham-numbers-the-danger-of-fabricated-youtube-views/"><u>[Updated] In 2024, Exposing Sham Numbers The Danger of Fabricated YouTube Views</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-the-art-of-digital-distortion-in-minutes/"><u>[Updated] Mastering the Art of Digital Distortion in Minutes</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-record-and-save-every-sound-on-pc-exclusive-x-recorder/"><u>[Updated] Record & Save Every Sound on PC - Exclusive X-Recorder</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-audience-connection-top-video-formats-for-youtube-success/"><u>[Updated] Unlocking Audience Connection Top Video Formats for YouTube Success</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-television-or-projector-for-peak-4k-performance/"><u>2024 Approved Television or Projector for Peak 4K Performance?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/envisioning-artistry-a-gopro-hero5-black-journey-to-excellence/"><u>Envisioning Artistry A GoPro Hero5 Black Journey to Excellence</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-oppo-find-x7-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo Find X7 Phone?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-oneplus-ace-3-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My OnePlus Ace 3 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-average-podcast-income-whats-the-payoff-in-2024/"><u>[New] Average Podcast Income What's the Payoff, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ixing-invisible-areas-within-youtube-videos/"><u>[New] Fixing Invisible Areas Within YouTube Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-strategies-for-effective-screen-sharing-via-skype-at-home/"><u>[New] In 2024, Strategies for Effective Screen Sharing via Skype at Home</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-dynamic-movement-synopsis-overview/"><u>[Updated] 2024 Approved Dynamic Movement Synopsis Overview</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-sonic-excellence-strategies-to-amplify-your-audio-quality/"><u>[Updated] In 2024, Sonic Excellence Strategies to Amplify Your Audio Quality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-no-longer-a-mystery-shorts-now-showing-up-for-2024/"><u>[Updated] No Longer a Mystery Shorts Now Showing Up for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726221192366-movavi-mka-wav/"><u>使用 Movavi 網站免費 MKA 到 WAV 格式的直接轉換 - 在線上無限制</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/advanced-ai-innovations-for-effective-web-data-retrieval/"><u>Advanced AI Innovations for Effective Web Data Retrieval</u></a></li>
+<li><a href="https://extra-information.techidaily.com/hitting-a-pixel-snag-a6400s-video-problems/"><u>Hitting a Pixel Snag A6400's Video Problems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/temporary-disabling-of-avg-free-edition-2015-a-step-by-step-guide/"><u>Temporary Disabling of AVG Free Edition 2015: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/sh-potential-with-these-essential-editing-tips-for-beginners/"><u>Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
 </ul></div>
 

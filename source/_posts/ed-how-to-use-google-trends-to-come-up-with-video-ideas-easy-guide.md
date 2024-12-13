@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Use Google Trends to Come up with Video Ideas [Easy Guide]"
-date: 2024-12-03T07:54:05.537Z
-updated: 2024-12-07T02:49:35.804Z
+date: 2024-12-07T04:48:38.749Z
+updated: 2024-12-13T04:33:32.875Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ On top you will see two drop-down menus, one is for the category and one is for 
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Under **All categories** select the general theme your channel falls under.
 
 Your options are business, entertainment, health, Sci/Tech, sports, and top stories.
@@ -100,7 +96,7 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -108,7 +104,7 @@ You can see near the top that this chart represents searches for the topic over 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
@@ -116,10 +112,6 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -140,7 +132,7 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -149,7 +141,15 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -172,24 +172,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-removing-unseen-frames-from-video-recordings-for-2024/"><u>[New] Removing Unseen Frames From Video Recordings for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-10-must-see-historical-channels-on-youtube/"><u>[Updated] 2024 Approved 10 Must-See Historical Channels on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-playlist-retrieval-made-straightforward-your-compreenaside/"><u>[Updated] 2024 Approved Playlist Retrieval Made Straightforward - Your Compreenaside</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-youtube-productions-best-mac-mp4-editors-guide-for-2024/"><u>[Updated] Boosting YouTube Productions Best Mac MP4 Editors Guide for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-purging-youtube-videos-for-2024/"><u>[Updated] The Ultimate Guide to Purging YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-viewers-to-earners-journey-calculating-necessary-counts/"><u>[Updated] Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-witty-world-hilarity-on-screen-from-your-favorite-youtubers/"><u>[Updated] Witty World Hilarity on Screen From Your Favorite YouTubers</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comprendere-i-differentianti-tra-il-backup-e-la-clonazione-dei-dispositivi-di-archiviazione-tipi-vantaggi-and-sviluppi/"><u>Comprendere I Differentianti Tra Il Backup E La Clonazione Dei Dispositivi Di Archiviazione: Tipi, Vantaggi & Sviluppi</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-s18e-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo S18e Devices | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/o-remove-black-bars-from-youtube-videos-for-2024/"><u>How to Remove Black Bars From YouTube Videos for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-chorus-choice-windows-11s-audio-enhancement-guidebook/"><u>In 2024, Chorus Choice Windows 11'S Audio Enhancement Guidebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-home-cinemas-elite-the-ultimate-blu-ray-guide/"><u>In 2024, Home Cinema's Elite The Ultimate Blu-Ray Guide</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unlock-youtubes-potential-with-smart-use-of-gaming-hashtags/"><u>In 2024, Unlock YouTube's Potential with Smart Use of Gaming Hashtags</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-honor-90-lite-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Honor 90 Lite</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/upgrade-to-copilot-pro-or-stick-with-the-original-the-ultimate-breakdown-of-differences-and-value/"><u>Upgrade to CoPilot Pro or Stick with the Original – The Ultimate Breakdown of Differences and Value</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/bes-visual-lifeline-size-and-ratio-insights/"><u>YouTube's Visual Lifeline Size & Ratio Insights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-channel-art-make-banners-icons-and-thumbnails/"><u>[New] In 2024, YouTube Channel Art - Make Banners, Icons, and Thumbnails</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-growth-galore-farming-game-classics-revisited/"><u>[Updated] 2024 Approved Growth Galore Farming Game Classics Revisited</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-tailoring-video-content-to-youtubes-niche-needs/"><u>2024 Approved Tailoring Video Content to Youtube's Niche Needs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ailed-exploration-youtubes-visionary-suite/"><u>A Detailed Exploration YouTube's Visionary Suite</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/explore-these-15-amazing-no-cost-uninstalling-utility-apps-for-your-pc-or-mac/"><u>Explore These 15 Amazing No-Cost Uninstalling Utility Apps for Your PC or Mac</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-reno-11-pro-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Oppo Reno 11 Pro 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v11-document-with-electronic-signature-service-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.1 document with electronic signature service</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-lasting-freedom-how-to-banish-youtube-shorts-permanently/"><u>In 2024, Lasting Freedom How To Banish YouTube Shorts Permanently</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/quick-and-easy-iphone-screen-capture-techniques-for-2024/"><u>Quick and Easy iPhone Screen Capture Techniques for 2024</u></a></li>
 </ul></div>
 
