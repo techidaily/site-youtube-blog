@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Spotlight Secrets  Perfecting Vlogger Lights\""
-date: 2024-08-23T09:27:59.868Z
-updated: 2024-08-24T09:27:59.868Z
+date: 2024-12-18T10:29:40.754Z
+updated: 2024-12-22T12:24:45.638Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -44,11 +48,16 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -76,17 +85,15 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -94,22 +101,20 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,4 +123,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-channel-command-center-masterminding-visionary-content/"><u>[New] In 2024, Channel Command Center Masterminding Visionary Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-effective-strategies-for-removing-youtube-media-from-computers/"><u>[Updated] In 2024, Effective Strategies for Removing YouTube Media From Computers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/st-free-youtube-name-generators-you-should-know/"><u>11 Best Free YouTube Name Generators You Should Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-decoding-the-youtube-view-number-for-profitability/"><u>2024 Approved Decoding the YouTube View Number for Profitability</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nt-lighting-infrastructure/"><u>Current Lighting Infrastructure</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/directing-group-policy-objects-at-a-targeted-user-on-windows-1111/"><u>Directing Group Policy Objects at a Targeted User on Windows 11/11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722083208937-discover-confidential-chatting-on-duckduckgos-platform-beyond-just-chatgpt/"><u>Discover Confidential Chatting on DuckDuckGo's Platform: Beyond Just ChatGPT!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/half-price-premium-sound-from-yamaha-over-1000-jbl-top-pick-for-budget-friendly-hifi-enthusiasts/"><u>Half-Price Premium Sound From Yamaha Over $1,000 JBL – Top Pick for Budget-Friendly HiFi Enthusiasts</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-revive-your-gaming-library-on-ps5/"><u>How to Revive Your Gaming Library on PS5</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-itel-p55t-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Itel P55T Lock Screen Clock in Seconds</u></a></li>
+</ul></div>
 

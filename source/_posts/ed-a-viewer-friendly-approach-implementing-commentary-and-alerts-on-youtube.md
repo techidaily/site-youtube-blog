@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2024-12-11T02:12:12.038Z
-updated: 2024-12-13T05:49:57.061Z
+date: 2024-12-20T12:22:13.503Z
+updated: 2024-12-21T18:03:27.508Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -67,10 +67,6 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -78,11 +74,11 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -94,13 +90,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -142,7 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,15 +166,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-imageryinfluence-mastering-size-settings-on-instagram-for-2024/"><u>[New] ImageryInfluence Mastering Size Settings on Instagram for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-managing-who-accesses-your-youtube-videography/"><u>[Updated] In 2024, Managing Who Accesses Your YouTube Videography</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-your-ultimate-guide-to-profit-from-youtube-videos-2e-2024/"><u>[Updated] Your Ultimate Guide to Profit From Youtube Videos (2E 2024)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-win11s-leading-video-creators-guide/"><u>2024 Approved Win11's Leading Video Creators Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-youtube-seo-guide-how-to-improve-youtube-videos-rankings/"><u>2024 Approved YouTube SEO Guide How to Improve YouTube Videos Rankings</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-login-troubles-heres-how-to-correctly-resolve-the-error/"><u>ChatGPT Login Troubles? Here's How to Correctly Resolve the Error</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/dji-mavic-3-review/"><u>DJI Mavic 3 Review</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-youtubes-functionality-following-uploaded-videos/"><u>Exploring YouTube’s Functionality Following Uploaded Videos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/prospective-macbook-touch-version-revealed-estimated-costs-scheduled-debut-detailed-specifications-analysis/"><u>Prospective MacBook Touch Version Revealed: Estimated Costs, Scheduled Debut, Detailed Specifications Analysis</u></a></li>
-<li><a href="https://extra-support.techidaily.com/sonic-storytelling-with-soundtracks-in-imovie-for-2024/"><u>Sonic Storytelling with Soundtracks in iMovie for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iscover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming/"><u>[New] Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/pic-battle-royale-thumbnails-done-fast/"><u>[New] Epic Battle Royale Thumbnails, Done Fast</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-video-views-with-these-top-5-link-shrinkers/"><u>[New] In 2024, Optimize Video Views with These Top 5 Link Shrinkers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-understanding-instagrams-privacy-controls/"><u>[Updated] 2024 Approved Understanding Instagram's Privacy Controls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-common-issues-in-youtube-shorts-for-2024/"><u>[Updated] Mastering Common Issues in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/asus-proarts-pa-329q-a-comprehensive-examination-of-high-end-monitoring-for-2024/"><u>Asus ProArt's PA 329Q A Comprehensive Examination of High-End Monitoring for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-solution-for-downloading-and-updating-broadcoms-netlink-ethernet-driver-on-new-windows-11-systems/"><u>Comprehensive Solution for Downloading and Updating Broadcom's NetLink Ethernet Driver on New Windows 11 Systems</u></a></li>
+<li><a href="https://games-able.techidaily.com/decision-guide-key-elements-to-consider-in-ps5/"><u>Decision Guide: Key Elements to Consider in PS5</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nting-music-visuals-using-the-lyric-video-maker-toolkit/"><u>Enchanting Music Visuals Using the Lyric Video Maker Toolkit</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/enlarged-pictures-maintaining-high-quality-standards/"><u>Enlarged Pictures Maintaining High-Quality Standards</u></a></li>
+<li><a href="https://games-able.techidaily.com/evaluating-performance-metrics-polling-ratio-insights/"><u>Evaluating Performance Metrics: Polling Ratio Insights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-fifa-visuals-key-youtube-video-trends/"><u>In 2024, FIFA Visuals Key YouTube Video Trends</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-guide-to-instagram-leadership/"><u>In 2024, Step-by-Step Guide to Instagram Leadership</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-instructions-on-how-to-permanently-remove-your-tiktok-account/"><u>Ultimate Instructions on How To Permanently Remove Your TikTok Account</u></a></li>
 </ul></div>
 

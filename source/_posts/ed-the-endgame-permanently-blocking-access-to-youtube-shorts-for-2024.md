@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Endgame  Permanently Blocking Access to YouTube Shorts for 2024\""
-date: 2024-12-11T17:13:51.584Z
-updated: 2024-12-12T17:51:43.411Z
+date: 2024-12-21T08:57:57.769Z
+updated: 2024-12-21T22:58:50.344Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ In this article, you will learn the process of disabling YouTube Shorts or remov
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easy Ways to Disable/Remove YouTube Shorts
 
 Now, as you have reached this section, you should be curious, what are the steps or methods with the help of which you would be able to disable YouTube Shorts. Don’t worry. Here, we shall cover all the methods of removing shorts from YouTube in detail.
@@ -57,14 +61,10 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Settings menu of YouTube
@@ -74,6 +74,10 @@ At your YouTube homepage at the top end, you will see the profile icon. If you c
 From there, you need to select “General”, which will show up some options. Here, click on the Shorts option to turn it off.
 
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
 
@@ -89,15 +93,15 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Can go with YouTube browser
 
 Hey guys, there is one more trick. Whenever you want to access YouTube, instead of going through the application, try to open YouTube website either from your mobile or PC browser window. You would wonder why so and what difference it will make. The fact is that the Shorts tab has not yet been incorporated under the browser version of YouTube.
 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 4: Factory reset
 
@@ -130,7 +134,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 6: Removing all update
@@ -166,7 +170,7 @@ Once you have launched the application, under the settings, you need to go for t
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Doing so will disable the YouTube Shorts option from the **Home** screen.
@@ -181,13 +185,13 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -207,7 +211,7 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -219,10 +223,6 @@ Thus, keeping that issue in mind, this article assisted with both the ways to tu
 So, friends, let’s not wait for anymore. Scroll up the article and get a detailed steps-wise guide and get a good grab of the process. So that your concern will get resolved, and soon you will be able to access the platform with the last look.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -245,16 +245,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-innovative-video-marketing-youtube-trailers-with-filmora/"><u>[New] In 2024, Innovative Video Marketing YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[New] In 2024, Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-cinematographers-journey-shooting-top-notch-youtube-content/"><u>[New] In 2024, The Cinematographer's Journey Shooting Top-Notch YouTube Content</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-look-at-fraps-screen-capture/"><u>[New] In-Depth Look at Fraps Screen Capture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-your-essential-guide-to-mobile-asmr-sounds/"><u>2024 Approved Your Essential Guide to Mobile ASMR Sounds</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nstant-subscription-lead-to-higher-watch-time-for-2024/"><u>Can Instant Subscription Lead to Higher Watch Time for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy-for-2024/"><u>Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-an-exception-breakpoint-has-been-reached-error-on-windows/"><u>How to Fix the “An Exception Breakpoint Has Been Reached” Error on Windows</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/revolutionary-wraps-transforming-virtual-reality-play-for-2024/"><u>Revolutionary Wraps Transforming Virtual Reality Play for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/urban-development-meets-martian-wilderness-a-laughingly-chaotic-adventure/"><u>Urban Development Meets Martian Wilderness: A Laughingly Chaotic Adventure</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning your drivers with Windows Device Manager on Windows 11</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-from-vivid-to-velvet-adobe-premiere-transitions/"><u>[New] 2024 Approved From Vivid To Velvet Adobe Premiere Transitions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/waying-symbols-dynamic-animation-for-text-effects-for-2024/"><u>[New] Swaying Symbols Dynamic Animation for Text Effects for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-powerful-techniques-including-yt-videos-in-slides/"><u>[Updated] In 2024, Powerful Techniques Including YT Videos in Slides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-for-quick-chromakey-application/"><u>[Updated] Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/20-best-copyright-free-pubg-montage-thumbnail/"><u>20 Best Copyright-Free PUBG Montage Thumbnail</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2023s-premier-ios-solutions-best-psp-game-simulators-for-2024/"><u>2023'S Premier iOS Solutions Best PSP Game Simulators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-sparking-interest-with-the-top-8-most-effective-youtube-thumbnails/"><u>2024 Approved Sparking Interest with the Top 8 Most Effective YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevate-your-edits-pro-level-photo-color-techniques-for-2024/"><u>Elevate Your Edits Pro-Level Photo Color Techniques for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ting-video-experience-best-youtube-to-avi-companions/"><u>Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/huggingchat-insights-an-open-source-counterpart-with-no-cost/"><u>HuggingChat Insights: An Open Source Counterpart with No Cost</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/hyperx-cloud-alpha-s-microphone-not-working-heres-how-to-resolve-it/"><u>HyperX Cloud Alpha S Microphone Not Working? Here's How to Resolve It!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-windows-the-definitive-list-of-11-strategies-for-the-credential-manager/"><u>Unlocking Windows: The Definitive List of 11 Strategies for the Credential Manager</u></a></li>
 </ul></div>
 

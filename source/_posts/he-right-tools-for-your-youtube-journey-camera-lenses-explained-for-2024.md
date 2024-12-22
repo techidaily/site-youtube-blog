@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Right Tools For Your YouTube Journey - Camera Lenses Explained for 2024\""
-date: 2024-08-23T09:30:19.063Z
-updated: 2024-08-24T09:30:19.063Z
+date: 2024-12-20T21:07:08.596Z
+updated: 2024-12-21T21:25:35.237Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -79,8 +83,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -88,32 +93,11 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -129,27 +113,18 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
@@ -184,20 +159,21 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +182,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-download-all-youtube-images-for-free/"><u>[Updated] In 2024, Download All YouTube Images for Free!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-nurture-harmony-and-well-being-the-finest-yogic-channels-alive/"><u>[Updated] In 2024, Nurture Harmony & Well-Being - The Finest Yogic Channels Alive</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prolific-photography-and-video-app-selection-iphone-vs-android/"><u>[Updated] Prolific Photography & Video App Selection IPhone vs Android</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-tecno-pop-8-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Tecno Pop 8 Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-stream-instagram-and-youtube-a-step-by-step-guide/"><u>2024 Approved Stream Instagram & YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/from-novice-to-pro-mastering-github-desktop-on-windows-11/"><u>From Novice to Pro: Mastering GitHub Desktop on Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-grandview-alliance-how-to-settle-on-a-cms/"><u>In 2024, Grandview Alliance How to Settle on a CMS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-top-7-icloud-activation-bypass-tools-for-your-iphone-xs-max-by-drfone-ios/"><u>In 2024, Top 7 iCloud Activation Bypass Tools For your iPhone XS Max</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-ten-lady-gamers-on-youtube-rising/"><u>In 2024, Top Ten Lady Gamers on YouTube Rising</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/patching-flawed-mp4mov-through-quicktime-solutions/"><u>Patching Flawed MP4/MOV Through QuickTime Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nt-faces-mastering-makeup-and-lighting-together/"><u>Radiant Faces Mastering Makeup and Lighting Together</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/speedy-conversion-transforming-avchd-footage-into-h264-quickly/"><u>Speedy Conversion: Transforming AVCHD Footage Into H.264 Quickly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repair-why-arent-my-headphones-working-on-windows-11/"><u>Troubleshooting and Repair: Why Aren't My Headphones Working on Windows 11?</u></a></li>
+</ul></div>
 

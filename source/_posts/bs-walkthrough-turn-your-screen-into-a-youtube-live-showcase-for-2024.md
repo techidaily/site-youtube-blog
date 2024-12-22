@@ -1,7 +1,7 @@
 ---
 title: "\"[New] OBS Walkthrough  Turn Your Screen Into a Youtube Live Showcase for 2024\""
-date: 2024-08-23T09:27:37.491Z
-updated: 2024-08-24T09:27:37.491Z
+date: 2024-12-18T23:00:06.151Z
+updated: 2024-12-22T10:44:54.299Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/519b3f4f99f21bc6077dc8413643f3b96c2bf221a
 * [Part3\. Youtube Events set up](#part3)
 * [Part4\. Video tutorial](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Stream Now set up
 
 Follow these steps to live stream your impressive videos to YouTube using Stream Now tool:
@@ -53,6 +57,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![thumbnail ](https://images.wondershare.com/filmora/article-images/thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** It is time to provide an eye catching title to your video, add description and finally choose category from the drop down menu.
 
 ![  category](https://images.wondershare.com/filmora/article-images/category.jpg)
@@ -61,9 +69,17 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![make archive ](https://images.wondershare.com/filmora/article-images/make-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 8:** You can monetize your ads as per need.
 
 ![Monetizae you ](https://images.wondershare.com/filmora/article-images/monetizae-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** It also provides options to add cards.
 
@@ -77,6 +93,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
 ![watching and messages ](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
@@ -88,6 +108,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 14:** One can also use the social media button for live shares.
 
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2.Set up Your Live Streaming Encoder
 
@@ -103,9 +127,17 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Users can now add their sources and scenes.
 
 ![add you scenes ](https://images.wondershare.com/filmora/article-images/add-you-scenes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** Once all these settings are done then you can simply hit the option for start streaming and it will bring your content to YouTube directly.
 
@@ -119,25 +151,18 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 4:** Users can turn monetization On or Off as per their preferences.
 
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
@@ -147,8 +172,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![click create event](https://images.wondershare.com/filmora/article-images/click-create-event.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
 
 ![ your bitrate](https://images.wondershare.com/filmora/article-images/your-bitrate.jpg)
@@ -165,30 +191,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Video tutorial
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +214,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-dynamic-strategies-for-complementary-podcast-consumption/"><u>[New] 2024 Approved Dynamic Strategies for Complementary Podcast Consumption</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-deciphering-the-latest-instagram-posting-rules/"><u>[New] In 2024, Deciphering the Latest Instagram Posting Rules</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-motion-control-top-camera-gadgets/"><u>[New] In 2024, Mastering Motion Control - Top Camera Gadgets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-shorts-earning-strategies-what-you-need-how-much-you-can-make-for-2024/"><u>[New] Youtube Shorts Earning Strategies What You Need, How Much You Can Make for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-best-practices-for-organizing-online-video-stories/"><u>[Updated] 2024 Approved Best Practices for Organizing Online Video Stories</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-the-ultimate-guide-to-ps4-game-broadcasts-with-obs/"><u>[Updated] 2024 Approved The Ultimate Guide to PS4 Game Broadcasts with OBS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-exploring-advanced-techniques-making-a-difference-with-your-slow-motion-images-on-instagram/"><u>[Updated] Exploring Advanced Techniques Making a Difference with Your Slow Motion Images on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-instructions-clearing-stored-videos-on-youtubes-watchlater/"><u>[Updated] In 2024, Instructions Clearing Stored Videos on YouTube's Watchlater</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-topmusicreactionvids-yt-celebrity-highlights-2023/"><u>[Updated] TopMusicReactionVids YT Celebrity Highlights, 2023</u></a></li>
+<li><a href="https://extra-information.techidaily.com/canvas-audio-guide-adding-tweaking-and-refining-sounds/"><u>Canva's Audio Guide Adding, Tweaking, & Refining Sounds</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/experts-insights-on-owning-an-affordable-surface-pro-11-top-3-lessons/"><u>Experts' Insights on Owning an Affordable Surface Pro 11 - Top 3 Lessons</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-reno-10-proplus-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo Reno 10 Pro+ 5Gwith/without a PC</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/efinitive-list-of-top-quality-mics-for-yt-styles-for-2024/"><u>The Definitive List of Top-Quality Mics for YT Styles for 2024</u></a></li>
+</ul></div>
 

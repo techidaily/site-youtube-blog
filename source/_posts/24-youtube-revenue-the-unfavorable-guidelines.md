@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube Revenue  The Unfavorable Guidelines\""
-date: 2024-08-23T09:27:12.155Z
-updated: 2024-08-24T09:27:12.155Z
+date: 2024-12-20T10:42:53.676Z
+updated: 2024-12-21T23:12:11.721Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -52,8 +56,9 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -62,9 +67,6 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -76,8 +78,9 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
@@ -85,9 +88,9 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -96,9 +99,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -108,22 +108,20 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +130,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-full-feature-dissection-the-sony-fdr-x1000-videographer/"><u>[New] Full Feature Dissection - The Sony FDR-X1000 Videographer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/implified-strategies-for-muting-or-disabling-youtube-channels-computermobile/"><u>[New] Simplified Strategies for Muting or Disabling Youtube Channels (Computer/Mobile)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-profiting-off-reddit-13-ways-here-for-2024/"><u>[New] The Ultimate Guide to Profiting Off Reddit - 13 Ways Here for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-80plus-catchy-cooking-channel-names-to-attract-more-audience/"><u>[Updated] 2024 Approved 80+ Catchy Cooking Channel Names to Attract More Audience</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-professional-screen-grabber-for-modern-win11/"><u>[Updated] In 2024, Professional Screen Grabber for Modern Win11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sustainable-strategies-for-securing-over-a-million-viewers/"><u>[Updated] Sustainable Strategies for Securing Over a Million Viewers</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/exploring-windows-file-attributes-panel-tips-and-tricks/"><u>Exploring Windows File Attributes Panel: Tips and Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/youtube-outro-kings-6-top-suggestions-in-2024/"><u>Free YouTube Outro Kings 6 TOP Suggestions, In 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-itel-s23-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Itel S23? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210357325-trouble-with-pdf-printers-discover-swift-solutions/"><u>Trouble With PDF Printers? Discover Swift Solutions!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-viewership-into-cash-with-carminati-ajay/"><u>Turning Viewership Into Cash with Carminati (Ajay)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-video-ranking-what-factors-affect-your-rank-for-2024/"><u>YouTube Video Ranking - What Factors Affect Your Rank for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In Search of Success  Pivotal YouTube Gatherings (After VidCon)\""
-date: 2024-08-23T09:28:25.855Z
-updated: 2024-08-24T09:28:25.855Z
+date: 2024-12-18T05:36:25.238Z
+updated: 2024-12-22T08:20:15.457Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -51,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -114,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -149,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-10-best-camcorder-ultimate-review/"><u>[New] 10 Best Camcorder [Ultimate Review]</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-infographic-8-ways-to-make-money-on-youtube-for-beginners/"><u>[New] 2024 Approved Infographic - 8 Ways to Make Money on YouTube for Beginners</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-masterpieces-in-job-market-insight/"><u>[New] In 2024, 10 Masterpieces in Job Market Insight</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method/"><u>[Updated] 2024 Approved Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-spice-up-your-feeds-text-based-meme-magic/"><u>[Updated] 2024 Approved Spice Up Your Feeds Text-Based Meme Magic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-chuckle-chronicles-top-10-humoristic-youtube-video-plans-for-2024/"><u>[Updated] Chuckle Chronicles Top 10 Humoristic YouTube Video Plans for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-prime-screen-recording-tech-for-youtube-broadcasts/"><u>[Updated] In 2024, Prime Screen Recording Tech for YouTube Broadcasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-description-everything-you-need-to-know/"><u>[Updated] In 2024, YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-increase-viewership-swiftly-5-strategy-unveiled/"><u>[Updated] Increase Viewership Swiftly - $5 Strategy Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-viral-potential-the-key-to-popularizing-your-videos-for-2024/"><u>[Updated] Mastering Viral Potential The Key to Popularizing Your Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-premier-tools-to-record-your-pc-screenshots-for-2024/"><u>[Updated] Premier Tools to Record Your PC Screenshots for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-rise-to-prominence-6-game-changing-approaches-for-instagram-verification-and-fan-increase/"><u>[Updated] Rise to Prominence 6 Game-Changing Approaches for Instagram Verification & Fan Increase</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-steps-to-prevent-youtube-channels-mobile-and-desktop-methods-for-2024/"><u>[Updated] Steps to Prevent Youtube Channels Mobile and Desktop Methods for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tag-tactics-amplifying-your-gaming-content-online-for-2024/"><u>[Updated] Tag Tactics Amplifying Your Gaming Content Online for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-experts-guide-to-360-video-conversion-and-youtube-sharing-for-2024/"><u>[Updated] The Expert's Guide to 360 Video Conversion and YouTube Sharing for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-quick-start-utilizing-zoom-in-windows-10-environment/"><u>2024 Approved Quick Start Utilizing Zoom in Windows 10 Environment</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-the-creality-k1-carbon-revolutionizing-carbon-3d-printing-heres-what-you-need-to-know/"><u>Is the Creality K1-Carbon Revolutionizing Carbon 3D Printing? Here's What You Need to Know</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/swift-method-to-renew-distribution-and-catroot-on-ws11-pc/"><u>Swift Method to Renew Distribution & Catroot on WS11 PC</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2024-12-08T00:14:08.476Z
-updated: 2024-12-13T03:15:50.453Z
+date: 2024-12-19T12:02:25.882Z
+updated: 2024-12-22T03:15:47.175Z
 tags:
   - ai video
   - ai youtube
@@ -33,16 +33,12 @@ With that said, the following two-columned tables give you detailed information 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
@@ -53,6 +49,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -81,6 +81,10 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -119,7 +123,7 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
@@ -133,10 +137,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -158,11 +158,11 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -185,22 +185,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-a-list-of-the-quickest-rising-youtube-spaces-for-encouragement/"><u>[New] 2024 Approved A List of the Quickest Rising YouTube Spaces for Encouragement</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-capturing-dark-scenes-with-iphone-pros/"><u>[New] Capturing Dark Scenes with iPhone Pros</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-unleashed-a-creators-guide-to-greatness/"><u>[New] In 2024, YouTube Unleashed A Creator's Guide to Greatness</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ptimizing-video-clarity-with-youtube-tools/"><u>[New] Optimizing Video Clarity with YouTube Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-the-art-of-obtaining-facebooks-prestigious-blue-badge/"><u>[Updated] 2024 Approved Mastering the Art of Obtaining Facebook’s Prestigious Blue Badge</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-master-the-algorithm-effective-tools-to-increase-youtube-views-for-2024/"><u>[Updated] Master the Algorithm Effective Tools to Increase YouTube Views for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-setting-the-price-for-higher-youtube-engagement/"><u>[Updated] Setting the Price for Higher YouTube Engagement</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-quintet-at-the-pinnacle-youtube-subscribers-for-2024/"><u>[Updated] The Quintet at the Pinnacle YouTube Subscribers for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/affordable-screen-recorders-with-extra-features-for-2024/"><u>Affordable Screen Recorders with Extra Features for 2024</u></a></li>
-<li><a href="https://win-net.techidaily.com/cosmic-designs-by-yl-software-explore-galaxy-themed-wallpaper-image-and-picture-catalogues-for-your-digital-universe/"><u>Cosmic Designs by YL Software: Explore Galaxy-Themed Wallpaper, Image & Picture Catalogues for Your Digital Universe</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>In 2024, A Social Media Perspective Dissecting IGTV versus YouTube's Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unveiling-your-digital-destiny-the-art-of-creating-and-launching-a-youtube-chanel/"><u>In 2024, Unveiling Your Digital Destiny The Art of Creating and Launching a YouTube Chanel</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-updating-your-account-name-in-windows-1011/"><u>Step-by-Step Guide: Updating Your Account Name in Windows 10/11</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-moto-g84-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Motorola Moto G84 5G Device</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile-for-2024/"><u>YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/bes-edge-design-tips-for-compelling-video-thumbnails/"><u>YouTube's Edge Design Tips for Compelling Video Thumbnails</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/bing-into-visual-wonders-learn-from-greenscreen-pros-for-2024/"><u>Youtubing Into Visual Wonders – Learn From Greenscreen Pros for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlock-youtube-visuals-for-no-charge-best-free-downloader-guide/"><u>[New] 2024 Approved Unlock YouTube Visuals for No Charge Best Free Downloader Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ffortless-transformation-of-your-youtube-content-into-webm/"><u>[New] Effortless Transformation of Your YouTube Content Into WebM</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harnessing-the-power-of-personal-success-stories-in-videos-for-2024/"><u>[New] Harnessing the Power of Personal Success Stories in Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aster-the-skill-of-trimming-youtube-videos-for-perfect-bites/"><u>[New] Master the Skill of Trimming YouTube Videos for Perfect Bites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ideo-voyages-venturing-into-the-vlog-profit-world/"><u>[New] Video Voyages Venturing Into the Vlog Profit World</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-guide-for-crafting-engaging-shareable-youtube-shorts/"><u>[Updated] 2024 Approved The Ultimate Guide for Crafting Engaging, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-creative-reactors-the-10-premier-video-responses/"><u>[Updated] Creative Reactors The 10 Premier Video Responses</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[Updated] In 2024, From Average to Exceptional Discover the Finest Free Intra Designs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-top-20-best-twitter-unfollowers-and-tools/"><u>[Updated] In 2024, Top 20 Best Twitter Unfollowers & Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-action-recorder-an-overview-of-panasonics-hx-a1/"><u>[Updated] The Ultimate Action Recorder An Overview of Panasonic's HX-A1</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-collection-of-youtube-beauty-icons-to-admire/"><u>[Updated] The Ultimate Collection of YouTube Beauty Icons to Admire</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-mobile-marketers-blueprint-simple-pathway-to-youtube-success/"><u>2024 Approved The Mobile Marketer's Blueprint Simple Pathway to YouTube Success</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-vs-expanded-choosing-the-right-chatgpt-version/"><u>Essential Vs. Expanded: Choosing the Right ChatGPT Version</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-nubia-red-magic-8s-proplus-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Nubia Red Magic 8S Pro+ for Parents | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-65-picks-most-amazing-gaming-notebook-offers-for-seniors-during-the-festive-season-insights-from-zdnet/"><u>Top 65 Picks: Most Amazing Gaming Notebook Offers for Seniors During the Festive Season - Insights From ZDNet</u></a></li>
 </ul></div>
 

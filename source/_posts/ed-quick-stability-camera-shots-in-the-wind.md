@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Stability  Camera Shots in the Wind\""
-date: 2024-08-23T09:29:43.446Z
-updated: 2024-08-24T09:29:43.446Z
+date: 2024-12-14T19:35:28.900Z
+updated: 2024-12-21T22:26:08.620Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,15 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -58,9 +66,6 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +84,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +96,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,22 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-your-youtube-time-multi-stream-techniques/"><u>[New] In 2024, Maximizing Your YouTube Time Multi-Stream Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-market-essential-youtube-finance-channels/"><u>[New] Mastering the Market Essential YouTube Finance Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlocking-youtube-profits-a-comprehensive-manual/"><u>[Updated] 2024 Approved Unlocking YouTube Profits A Comprehensive Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-guide-youtube-videos-turned-into-engaging-animation-gifs-for-2024/"><u>[Updated] Quick Guide YouTube Videos Turned Into Engaging Animation Gifs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-online-video-capture-hub/"><u>[Updated] Seamless Online Video Capture Hub</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-techniques-to-slow-down-online-video-playback-49-chars/"><u>[Updated] Techniques to Slow Down Online Video Playback (49 Chars)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-youtube-video-mastery-through-finalcut-pro-methods-for-2024/"><u>[Updated] Unveiling YouTube Video Mastery Through FinalCut Pro Methods for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-where-are-my-youtube-comments-desktopiosandroid-strategies/"><u>[Updated] Where Are My YouTube Comments? Desktop/iOS/Android Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-maximize-video-reach-in-youtubes-seo-arena/"><u>2024 Approved Maximize Video Reach in YouTube's SEO Arena</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-youtube-channel-with-chatgpt-powered-scriptwriting-techniques/"><u>Boost Your YouTube Channel with ChatGPT-Powered Scriptwriting Techniques</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fixing-frequent-flickering-on-screen-videos/"><u>Fixing Frequent Flickering On-Screen Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-honor-magic-6-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Honor Magic 6 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-msi-afterburner-cant-recognize-your-graphics-card-in-windows-10-or-11/"><u>How to Fix: MSI Afterburner Can't Recognize Your Graphics Card in Windows 10 or 11</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-11-pro-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 11 Pro? Learn All 4 Methods</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unleashing-vibrance-grading-secrets-in-ps/"><u>In 2024, Unleashing Vibrance Grading Secrets in PS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-zenithbgfreeze-top-background-elimination-solution/"><u>In 2024, ZenithBgFreeze Top Background Elimination Solution</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-review-of-the-durable-asus-chromebook-c2/"><u>The Ultimate Review of the Durable Asus Chromebook C2</u></a></li>
+<li><a href="https://common-error.techidaily.com/understanding-and-repairing-catastrophic-directx-runtime-failures/"><u>Understanding and Repairing Catastrophic DirectX Runtime Failures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-strategies-and-hashtags-for-youtubes-best-freefirers-for-2024/"><u>Winning Strategies & Hashtags for YouTube's Best FreeFirers for 2024</u></a></li>
+</ul></div>
 

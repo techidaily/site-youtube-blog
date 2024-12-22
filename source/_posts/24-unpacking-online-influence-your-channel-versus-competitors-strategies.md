@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unpacking Online Influence  Your Channel Versus Competitors' Strategies\""
-date: 2024-08-23T09:28:49.052Z
-updated: 2024-08-24T09:28:49.052Z
+date: 2024-12-21T06:10:10.618Z
+updated: 2024-12-22T06:31:42.009Z
 tags:
   - ai video
   - ai youtube
@@ -40,11 +40,19 @@ thumbnail: https://thmb.techidaily.com/15566fd0d6cad9f26c793e08c16498fac2c5b4803
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\.  Demographics
 
@@ -76,11 +84,19 @@ thumbnail: https://thmb.techidaily.com/15566fd0d6cad9f26c793e08c16498fac2c5b4803
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8\.  Subscribers
 
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
@@ -97,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/15566fd0d6cad9f26c793e08c16498fac2c5b4803
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 11\.  Cards
 
@@ -142,20 +162,21 @@ thumbnail: https://thmb.techidaily.com/15566fd0d6cad9f26c793e08c16498fac2c5b4803
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,8 +185,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-film-fragments-the-ultimate-editors-collection/"><u>[New] Film Fragments The Ultimate Editor's Collection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-elite-content-consummation/"><u>[Updated] In 2024, Elite Content Consummation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-short-form-success-strategic-hashtags-for-social-media-stardom/"><u>[Updated] Short-Form Success Strategic Hashtags for Social Media Stardom</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-haven-guide-top-3-non-youtube-video-portals-for-2024/"><u>[Updated] The Haven Guide Top 3 Non-Youtube Video Portals for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-best-face-changing-tools-iphone-and-android-edition/"><u>2024 Approved Best Face-Changing Tools IPhone & Android Edition</u></a></li>
+<li><a href="https://win11.techidaily.com/combatting-the-mystery-of-infinite-c-drive-usage/"><u>Combatting the Mystery of Infinite C: Drive Usage</u></a></li>
+<li><a href="https://program-issues.techidaily.com/doom-eternal-crash-woes-discover-key-strategies-to-enhance-game-performance/"><u>DOOM Eternal Crash Woes? Discover Key Strategies to Enhance Game Performance</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-nvidia-geforce-gt-20-series-graphics-card-drivers-fast-and-simple/"><u>Download NVIDIA GeForce GT ^ 20 Series Graphics Card Drivers - Fast and Simple</u></a></li>
+<li><a href="https://driver-download.techidaily.com/guide-to-fixing-windows-1087-compatibility-with-hp-beats-audio-drivers/"><u>Guide to Fixing Windows 10/8/7 Compatibility with HP Beats Audio Drivers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-realme-narzo-60-pro-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Realme Narzo 60 Pro 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-principles-of-momentum-reversal-in-filming/"><u>In 2024, Principles of Momentum Reversal in Filming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ase-your-channels-reach-with-these-2-tricks-for-2024/"><u>Increase Your Channel's Reach with These 2 Tricks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/to-digital-fame-starting-and-building-a-youtube-chanel/"><u>Path to Digital Fame Starting and Building a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nail-artistry-for-valorant-game-imagery-swiftly-executed/"><u>Thumbnail Artistry for Valorant Game Imagery, Swiftly Executed</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Visual Marketing on YouTube with Banners & Thumbnails for 2024"
-date: 2024-08-23T09:27:47.717Z
-updated: 2024-08-24T09:27:47.717Z
+date: 2024-12-15T11:12:44.687Z
+updated: 2024-12-22T12:57:17.343Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -65,13 +69,25 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -79,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +108,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/levating-your-contents-reach-without-breaching-laws/"><u>[New] Elevating Your Content's Reach Without Breaching Laws</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssentials-of-youtube-mastery-free-online-course-series-for-2024/"><u>[New] Essentials of YouTube Mastery Free Online Course Series for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unleash-creativity-with-these-14-exceptional-text-animations-for-2024/"><u>[New] Unleash Creativity with These 14 Exceptional Text Animations for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-modern-content-curators-guide-to-branding-10-tools/"><u>[Updated] The Modern Content Curator's Guide to Branding - 10 Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-optimization-peak-times-for-maximum-impact/"><u>[Updated] YouTube Optimization Peak Times for Maximum Impact</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-reigning-titans-unveiling-reddits-ultimate-10-threads/"><u>2024 Approved Reigning Titans Unveiling Reddit's Ultimate 10 Threads</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/affordable-high-frame-rate-recordings/"><u>Affordable High Frame Rate Recordings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/compress-to-caption-zip-to-srt-for-video-editors/"><u>Compress to Caption ZIP-to-SRT for Video Editors</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-apps-to-enhance-your-fitbit-smartwatch-experience/"><u>Essential Apps to Enhance Your Fitbit Smartwatch Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/yourself-with-top-4-applications-for-youtube-to-wav-conversion/"><u>Free Yourself with Top 4 Applications for YouTube-to-WAV Conversion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/charge-your-content-key-seo-elements-for-youtube-for-2024/"><u>Supercharge Your Content Key SEO Elements for YouTube for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-easy-access-to-free-guitar-centric-background-media-and-sounds/"><u>Updated Easy Access to FREE Guitar-Centric Background Media and Sounds</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->

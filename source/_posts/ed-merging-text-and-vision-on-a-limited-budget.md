@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Merging Text & Vision on a Limited Budget"
-date: 2024-08-23T09:26:00.741Z
-updated: 2024-08-24T09:26:00.741Z
+date: 2024-12-17T22:57:34.963Z
+updated: 2024-12-22T00:04:52.449Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -50,6 +54,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -60,15 +68,27 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -88,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,9 +121,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-basics-to-brilliance-the-fb-cover-video-journey/"><u>[New] 2024 Approved From Basics to Brilliance The FB Cover Video Journey</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-most-advanced-video-grabbers-for-windows-enthusiasts/"><u>[New] In 2024, The Most Advanced Video Grabbers for Windows Enthusiasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-upside-down-views-the-art-of-reverse-videos/"><u>[New] In 2024, Upside Down Views The Art of Reverse Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/trategies-in-tagging-and-titling-videos-for-success-for-2024/"><u>[New] Strategies in Tagging and Titling Videos for Success for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enhancing-visuals-iphone-magnification-hacks/"><u>[Updated] 2024 Approved Enhancing Visuals IPhone Magnification Hacks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-the-art-of-personalizing-your-tiktok-image/"><u>[Updated] 2024 Approved Mastering the Art of Personalizing Your TikTok Image</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-essential-business-youtube-sites-you-must-follow/"><u>[Updated] In 2024, Essential Business YouTube Sites You Must Follow</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-real-time-descriptive-compiler-for-2024/"><u>[Updated] Real-Time Descriptive Compiler for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-visionary-artisan-merging-sights-and-sounds/"><u>[Updated] Visionary Artisan Merging Sights and Sounds</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/augment-creativity-a-compreenas-of-best-android-drawing-tools-for-2024/"><u>Augment Creativity A Compreenas of Best Android Drawing Tools for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/protecting-your-privacy-essential-guide-on-why-a-vpn-is-crucial-for-vision-pro-and-comparable-xr-gear/"><u>Protecting Your Privacy: Essential Guide on Why a VPN Is Crucial for Vision Pro and Comparable XR Gear</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-save-youtube-sounds-directly-for-2024/"><u>Step-by-Step Save YouTube Sounds Directly for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/l-storytelling-crafting-compelling-narratives-in-youtube-videos/"><u>Visual Storytelling Crafting Compelling Narratives in YouTube Videos</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->

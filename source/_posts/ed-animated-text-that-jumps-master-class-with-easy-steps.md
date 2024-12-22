@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Animated Text That Jumps  Master Class with Easy Steps\""
-date: 2024-08-23T09:29:29.477Z
-updated: 2024-08-24T09:29:29.477Z
+date: 2024-12-14T19:27:30.717Z
+updated: 2024-12-22T00:17:55.917Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -52,6 +56,10 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
@@ -62,6 +70,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -69,6 +81,10 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -81,6 +97,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,9 +161,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/oosting-engagement-with-effective-youtube-banners-and-thumbnails-for-2024/"><u>[New] Boosting Engagement with Effective YouTube Banners & Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-quick-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>[New] In 2024, Quick-Turn Artistry Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-palette-playbook-mastering-the-art-of-grading-for-2024/"><u>[New] Perfect Palette Playbook Mastering the Art of Grading for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-best-value-in-screen-recording-in-depth-review-of-free-apps/"><u>[Updated] In 2024, Best Value in Screen Recording In-Depth Review of Free Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prodigious-earnings-with-youtube-studio-for-every-gadget-for-2024/"><u>[Updated] Prodigious Earnings with YouTube Studio for Every Gadget for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-browsing-with-these-7-android-centric-adblockers/"><u>[Updated] Streamline Your Browsing with These 7 Android-Centric AdBlockers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-future-of-finance-15-must-watch-market-videos/"><u>[Updated] The Future of Finance 15 Must-Watch Market Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-weaving-whirlwind-writings/"><u>[Updated] Weaving Whirlwind Writings</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/how-to-add-roles-in-discord-in-2024/"><u>How to Add Roles in Discord, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastering-the-download-of-youtubes-default-thumbnails-effortlessly/"><u>In 2024, Mastering the Download of YouTube's Default Thumbnails Effortlessly</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-minimize-surround-loudness-economical-and-premium-solutions/"><u>In 2024, Minimize Surround Loudness - Economical & Premium Solutions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211343205-9782889702534-la-lumiere-de-lenneagramme/"><u>La Lumière de l'ennéagramme | Free Book</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ry-of-viewership-hierarchy-key-aspects-examined-for-2024/"><u>Mastery of Viewership Hierarchy Key Aspects Examined for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-playback-issues-in-the-witcher-3-wild-hunt-helpful-solutions/"><u>Overcoming Playback Issues in The Witcher 3: Wild Hunt - Helpful Solutions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/tackling-hp-monitor-driver-complications-across-windows-platforms-including-windows-11-8-and-7/"><u>Tackling HP Monitor Driver Complications Across Windows Platforms, Including Windows 11, 8 & 7</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-xiaomi-13t-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Xiaomi 13T Device</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-csgo-solutions-for-the-game-wont-start/"><u>Troubleshooting CS:GO - Solutions for the Game Won't Start</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->

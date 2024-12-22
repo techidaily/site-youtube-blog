@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering YouTube Clips  Beginnings & Conclusions on a Budget\""
-date: 2024-08-23T09:26:31.881Z
-updated: 2024-08-24T09:26:31.881Z
+date: 2024-12-18T11:21:19.297Z
+updated: 2024-12-22T02:19:07.290Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/5f965e05f94f7cfe9aba689162b9d85f8fa664dac
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-expert-voice-editing-software-for-video-content-makers/"><u>[New] In 2024, Expert Voice Editing Software for Video Content Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtubes-best-10-cutting-edge-reaction-ideas/"><u>[New] In 2024, YouTube's Best 10 Cutting-Edge Reaction Ideas</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-rapid-reactivities-leading-fast-paced-titles-on-pc-and-tablet/"><u>[New] Rapid Reactivities Leading Fast-Paced Titles on PC & Tablet</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tailor-your-media-auto-scaling-videos-for-instagram-via-macos-for-2024/"><u>[New] Tailor Your Media Auto-Scaling Videos for Instagram via MacOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-film-previews-unveiled-for-2024/"><u>[New] Top Film Previews Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts/"><u>[Updated] Assessing the Best Platform for Individual Use TikTok vs Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>[Updated] In 2024, Earning on YouTube A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bits-of-bulb-tech-top-17-choices-for-2024/"><u>Best Bits of Bulb Tech - Top 17 Choices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/g-heroes-the-most-motivating-vids-of-the-year-1-10-for-2024/"><u>Hiring Heroes The Most Motivating Vids of the Year #1-10 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-an-insiders-look-at-toolwizs-photo-editing-features/"><u>In 2024, An Insider’s Look at Toolwiz's Photo Editing Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-sustaining-youtube-cc-status-to-boost-engagement/"><u>In 2024, Sustaining YouTube CC Status to Boost Engagement</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-apple-iphone-7-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On Apple iPhone 7 You Should Try Out</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/resolving-non-functional-graphic-card-display-drivers-expert-solutions-by-yl-computing/"><u>Resolving Non-Functional Graphic Card Display Drivers - Expert Solutions by YL Computing</u></a></li>
+<li><a href="https://discover-great.techidaily.com/romance-revival-the-best-enduring-amour-films-ideal-for-a-memorable-valentines-celebration/"><u>Romance Revival: The Best Enduring Amour Films Ideal for a Memorable Valentine's Celebration</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719370971554-xbox-not-responding-unfreeze-and-get-back-in/"><u>Xbox Not Responding? Unfreeze and Get Back In!</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->

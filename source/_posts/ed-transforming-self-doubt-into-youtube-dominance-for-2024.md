@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Self-Doubt Into YouTube Dominance for 2024\""
-date: 2024-08-23T09:25:55.567Z
-updated: 2024-08-24T09:25:55.567Z
+date: 2024-12-20T11:31:35.683Z
+updated: 2024-12-21T21:15:56.772Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -50,6 +54,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -58,10 +66,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -71,8 +75,9 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -85,9 +90,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -108,9 +110,6 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -136,28 +135,26 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +163,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/levate-your-channels-youtubes-partner-program-for-2024/"><u>[New] Elevate Your Channels - YouTube's Partner Program for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-best-8-linux-platforms-for-video-mastery/"><u>[New] In 2024, Best 8 Linux Platforms for Video Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-market-movements-with-youtube-picks/"><u>[New] In 2024, Mastering Market Movements with YouTube Picks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-deciphering-how-t-series-earns-via-youtube/"><u>[Updated] Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-explore-virtual-realms-with-these-videos/"><u>[Updated] Explore Virtual Realms with These Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mirrorless-innovation-taking-over-dslr-in-videos/"><u>[Updated] Mirrorless Innovation Taking Over DSLR in Videos?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-youtubian-beginnings-establishing-your-channel-earning-earnings-for-2024/"><u>[Updated] Your Youtubian Beginnings Establishing Your Channel, Earning Earnings for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-templates-transformed-a-visual-guide-to-logo-mastery/"><u>2024 Approved Templates Transformed A Visual Guide to Logo Mastery</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-plus-upgrade-is-it-justifiably-priced/"><u>ChatGPT Plus Upgrade – Is It Justifiably Priced?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/creare-gif-da-video-facilmente-i-migliori-metodi-di-conversione-per-tutti-gli-utenti-spiegati-da-movavi/"><u>Creare Gif Da Video Facilmente: I Migliori Metodi Di Conversione per Tutti Gli Utenti, Spiegati Da Movavi</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/effective-techniques-to-downsize-your-mov-videos-without-losing-quality/"><u>Effective Techniques to Downsize Your MOV Videos Without Losing Quality</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo F25 Pro 5G</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-tecno-spark-20c-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-precision-protests-unveiling-the-difference-between-hero5-black-and-session/"><u>In 2024, Precision Protests Unveiling the Difference Between Hero5 Black and Session</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hts-into-youtubes-creative-commons-licensing-system/"><u>Insights Into YouTube’s Creative Commons Licensing System</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/sky-high-performance-windows-for-the-steam-deck/"><u>Sky-High Performance: Windows for the Steam Deck</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-top-2023-vr-engine-innovations-for-2024/"><u>Unveiling Top 2023 VR Engine Innovations for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-growth-hacking-for-new-videographers-for-2024/"><u>YouTube Growth Hacking for New Videographers for 2024</u></a></li>
+</ul></div>
 
