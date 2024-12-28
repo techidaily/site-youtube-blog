@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-08-16T06:00:33.346Z
-updated: 2024-08-17T06:00:33.346Z
+date: 2024-12-25T18:39:59.114Z
+updated: 2024-12-27T20:57:28.313Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -52,6 +56,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click on the "Video Manager" tab
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
@@ -65,11 +73,12 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,17 +88,15 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -128,9 +135,9 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -139,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +159,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-plating-perfection-30-unique-and-appealing-recipe-channels/"><u>[New] 2024 Approved Plating Perfection 30 Unique and Appealing Recipe Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-become-a-shorts-connoisseur-must-know-facts/"><u>[New] In 2024, Become a Shorts Connoisseur Must-Know Facts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-boosting-your-macs-potential-with-sierra-update-steps/"><u>[New] In 2024, Boosting Your Mac's Potential with Sierra Update Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-jokegenius-easy-login-creative-video-making/"><u>[New] In 2024, JokeGenius Easy Login, Creative Video Making</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pixelpipe-pro-discovering-freepaid-editors/"><u>[New] PixelPipe Pro Discovering Free/Paid Editors</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-next-gen-skyborne-a-deep-dive-into-h501s-x4/"><u>[Updated] 2024 Approved Next-Gen Skyborne A Deep Dive Into H501S X4</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[Updated] Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-creativity-youtubes-playground-for-talent-for-2024/"><u>[Updated] Pioneering Creativity YouTube's Playground for Talent for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-cross-social-content-share-youtube-videos-on-facebook-for-2024/"><u>[Updated] Pioneering Cross-Social Content Share YouTube Videos on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-collection-of-top-asmr-microphones-for-2024/"><u>[Updated] The Ultimate Collection of Top ASMR Microphones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleash-creativity-youtube-studio-editor-secrets-revealed-for-2024/"><u>[Updated] Unleash Creativity YouTube Studio Editor Secrets Revealed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-maximizing-reach-strategies-from-seasoned-tubebuddy-experts/"><u>2024 Approved Maximizing Reach Strategies From Seasoned TubeBuddy Experts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726224350174-3gpmkv/"><u>無料で簡単な手順で3GPからMKVへのオンライン変換 - ムーヴァヴィ説明</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/discovering-this-years-finest-earphones/"><u>Discovering This Year's Finest Earphones</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-reno-10-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo Reno 10 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-engaging-content-creation-in-vlogging-scripts-for-2024/"><u>Mastering Engaging Content Creation in Vlogging Scripts for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movaviwebp-n/"><u>MovaviによるオンラインWebP画像変換サービス – 完全無料提�nグ!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/official-canon-support-mf4800-driver-software-for-immediate-download/"><u>Official Canon Support - MF4800 Driver Software for Immediate Download</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/urrency-of-clicks-youtube-view-revenue-explored/"><u>The Currency of Clicks Youtube View Revenue Explored</u></a></li>
+</ul></div>
 

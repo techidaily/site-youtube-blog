@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2024-12-20T12:22:13.503Z
-updated: 2024-12-21T18:03:27.508Z
+date: 2024-12-20T22:35:02.198Z
+updated: 2024-12-27T16:51:26.998Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -62,10 +58,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -74,10 +78,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -98,10 +106,6 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,19 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/iscover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming/"><u>[New] Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/pic-battle-royale-thumbnails-done-fast/"><u>[New] Epic Battle Royale Thumbnails, Done Fast</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-video-views-with-these-top-5-link-shrinkers/"><u>[New] In 2024, Optimize Video Views with These Top 5 Link Shrinkers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-understanding-instagrams-privacy-controls/"><u>[Updated] 2024 Approved Understanding Instagram's Privacy Controls</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-common-issues-in-youtube-shorts-for-2024/"><u>[Updated] Mastering Common Issues in YouTube Shorts for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/asus-proarts-pa-329q-a-comprehensive-examination-of-high-end-monitoring-for-2024/"><u>Asus ProArt's PA 329Q A Comprehensive Examination of High-End Monitoring for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/comprehensive-solution-for-downloading-and-updating-broadcoms-netlink-ethernet-driver-on-new-windows-11-systems/"><u>Comprehensive Solution for Downloading and Updating Broadcom's NetLink Ethernet Driver on New Windows 11 Systems</u></a></li>
-<li><a href="https://games-able.techidaily.com/decision-guide-key-elements-to-consider-in-ps5/"><u>Decision Guide: Key Elements to Consider in PS5</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nting-music-visuals-using-the-lyric-video-maker-toolkit/"><u>Enchanting Music Visuals Using the Lyric Video Maker Toolkit</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/enlarged-pictures-maintaining-high-quality-standards/"><u>Enlarged Pictures Maintaining High-Quality Standards</u></a></li>
-<li><a href="https://games-able.techidaily.com/evaluating-performance-metrics-polling-ratio-insights/"><u>Evaluating Performance Metrics: Polling Ratio Insights</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-fifa-visuals-key-youtube-video-trends/"><u>In 2024, FIFA Visuals Key YouTube Video Trends</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-guide-to-instagram-leadership/"><u>In 2024, Step-by-Step Guide to Instagram Leadership</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-instructions-on-how-to-permanently-remove-your-tiktok-account/"><u>Ultimate Instructions on How To Permanently Remove Your TikTok Account</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-streamlined-conversion-of-youtube-content/"><u>[New] 2024 Approved Streamlined Conversion of YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unraveling-the-secrets-of-viral-content-creation/"><u>[New] 2024 Approved Unraveling the Secrets of Viral Content Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-overcoming-windows-11-photo-app-anomalies-with-ease/"><u>[New] In 2024, Overcoming Windows 11 Photo App Anomalies with Ease</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-youtubes-community-standards-as-a-viewer-or-creator/"><u>[New] Navigating YouTube's Community Standards as a Viewer or Creator</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-artistic-edge-premium-text-tools-for-adobe-after-effects/"><u>[New] The Artistic Edge Premium Text Tools for Adobe After Effects</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-strategy-to-seamlessly-upload-srt-subtitles-online/"><u>[New] The Ultimate Strategy to Seamlessly Upload SRT Subtitles Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-selective-mp4-editing-made-simple-on-mac/"><u>[Updated] Selective MP4 Editing Made Simple on Mac</u></a></li>
+<li><a href="https://app-tips.techidaily.com/1-insightful-analysis-unveiling-the-challenges-of-leveraging-generative-ai-in-business-key-findings-from-deloittes-latest-study/"><u>1. Insightful Analysis: Unveiling the Challenges of Leveraging Generative AI in Business - Key Findings From Deloitte's Latest Study</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-open-mov-files-on-redmi-note-12t-pro-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't open MOV files on Redmi Note 12T Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-a-step-by-step-manual-on-repetitive-watch-experiences-in-yt/"><u>In 2024, A Step-by-Step Manual on Repetitive Watch Experiences in YT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-best-youtube-video-reaction-ideas/"><u>In 2024, Best YouTube Video Reaction Ideas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-channel-profits-soar-the-secrets-to-successful-youtube-monetization/"><u>In 2024, Channel Profits Soar The Secrets to Successful YouTube Monetization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-decoding-the-art-of-engaging-in-youtube-short-forms/"><u>In 2024, Decoding the Art of Engaging in YouTube Short Forms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-directing-fundamentals-a-comprehensive-online-course-by-youtube-experts/"><u>In 2024, Directing Fundamentals A Comprehensive Online Course by YouTube Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-youtube-profitability-anywhere-anytime/"><u>In 2024, Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-smartphones-coming-soon-built-in-chatgpt-clones-without-needing-a-cloud-connection/"><u>Innovative Smartphones Coming Soon: Built-In ChatGPT Clones Without Needing a Cloud Connection</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "YouTube Video Enhancement Through Strategic Illumination Methods"
-date: 2024-12-15T07:15:17.925Z
-updated: 2024-12-21T17:21:55.718Z
+date: 2024-12-26T17:39:55.373Z
+updated: 2024-12-27T18:48:29.679Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -61,7 +65,7 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -70,16 +74,12 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -92,6 +92,10 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
@@ -99,7 +103,7 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -115,10 +119,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -143,16 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-vlog-editing-essentials-utilizing-jump-cuts-rightly/"><u>[Updated] 2024 Approved Vlog Editing Essentials Utilizing Jump Cuts Rightly</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-effective-strategies-for-removing-youtube-media-from-computers/"><u>[Updated] In 2024, Effective Strategies for Removing YouTube Media From Computers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-tactics-to-amplify-your-video-presence-with-targeted-keywords/"><u>[Updated] Tactics to Amplify Your Video Presence with Targeted Keywords</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-decoding-the-youtube-view-number-for-profitability/"><u>2024 Approved Decoding the YouTube View Number for Profitability</u></a></li>
-<li><a href="https://win-dash.techidaily.com/asus-touchpad-compatibility-downloading-and-configuring-drivers-on-windows-11-efficiently/"><u>ASUS Touchpad Compatibility: Downloading and Configuring Drivers on Windows 11 Efficiently</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nt-lighting-infrastructure/"><u>Current Lighting Infrastructure</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/descubre-los-top-18-creadores-de-peliculas-sin-coste-para-windows-1187-guia-completa/"><u>Descubre Los Top 18 Creadores De Películas Sin Coste Para Windows 11/8/7 - Guía Completa</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ts-choice-top-10-low-cost-sbd-applications/"><u>Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-capabilities-of-sj-cam-s6/"><u>In 2024, Exploring the Capabilities of SJ-CAM S6</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-mobile-imaging-iphone-16-integrates-advanced-visual-recognition-tech-mirroring-google-lens-features-analysis/"><u>Revolutionizing Mobile Imaging: IPhone 16 Integrates Advanced Visual Recognition Tech, Mirroring Google Lens Features Analysis</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/unrivaled-windows-video-calls-top-8-apps-for-2024/"><u>Unrivaled Windows Video Calls Top 8 Apps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-steps-to-bypass-youtube-prohibitions/"><u>[New] 2024 Approved Steps to Bypass YouTube Prohibitions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-synergistic-videos-to-skyrocket-your-follower-count/"><u>[New] 2024 Approved Synergistic Videos to Skyrocket Your Follower Count</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-three-legal-and-safe-methods-of-downloading-youtube-tunes/"><u>[New] 2024 Approved Three Legal & Safe Methods of Downloading YouTube Tunes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-gopro-hero5-black-showdown-with-hero4-silver-for-2024/"><u>[New] GoPro Hero5 Black Showdown with Hero4 Silver for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-prime-picks-top-tweets-for-must-see-original-series-for-2024/"><u>[New] Prime Picks Top Tweets for Must-See Original Series for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-conquering-the-labyrinth-of-lesser-known-youtube-content/"><u>[Updated] 2024 Approved Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-stabilizing-snapshots-preventing-blurry-results/"><u>[Updated] Stabilizing Snapshots Preventing Blurry Results</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-list-of-top-5-pc-screen-grabbers-ranked-1-5-for-2024/"><u>[Updated] The Ultimate List of Top 5 PC Screen Grabbers Ranked #1-#5 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-romance-in-spanish-best-pick-up-lines/"><u>Expressing Romance in Spanish: Best Pick-Up Lines</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-smart-7-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Smart 7 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-a-step-by-step-youtube-traffic-and-revenue-assessment-guide/"><u>In 2024, A Step-by-Step Youtube Traffic & Revenue Assessment Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-best-practices-for-youtube-card-implementation/"><u>In 2024, Best Practices for YouTube Card Implementation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-captivating-clicks-the-top-8-yt-thumbnails-to-use/"><u>In 2024, Captivating Clicks The Top 8 YT Thumbnails to Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-brand-discovering-the-essential-5-youtube-strategies/"><u>In 2024, Elevate Your Brand Discovering the Essential 5 YouTube Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-enhancing-storytelling-with-jump-cuts-technique/"><u>In 2024, Enhancing Storytelling with Jump Cuts Technique</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-14-pro-max-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone 14 Pro Max SIM Lock 4 Easy Methods</u></a></li>
 </ul></div>
 

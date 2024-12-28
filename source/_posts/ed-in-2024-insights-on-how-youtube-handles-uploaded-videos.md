@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Insights on How YouTube Handles Uploaded Videos"
-date: 2024-08-23T09:24:53.855Z
-updated: 2024-08-24T09:24:53.855Z
+date: 2024-12-23T21:15:36.333Z
+updated: 2024-12-27T23:56:31.710Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-does-money-flow-into-shopping-guides-vids/"><u>[New] Does Money Flow Into Shopping Guides Vids?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/fficient-ways-to-clean-your-youtube-watch-later-playlist/"><u>[New] Efficient Ways to Clean Your YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-tailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>[New] In 2024, Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nlock-high-view-counts-using-savvy-hashtag-use-for-2024/"><u>[New] Unlock High View Counts Using Savvy #Hashtag Use for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ace-in-the-halls-boosting-youtube-traffic/"><u>[Updated] Ace in the Halls Boosting YouTube Traffic</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-bypassing-tiktoks-watermarking-for-iphones-how-to-guide/"><u>[Updated] Bypassing TikTok's Watermarking for iPhones – How-To Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-insights-on-asmr-videos-for-2024/"><u>[Updated] Essential Insights on ASMR Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-from-stills-to-movement-examining-the-action-potential-of-camplus-for-2024/"><u>[Updated] From Stills to Movement Examining the Action Potential of Cam+ for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-investing-insights-on-screen-best-youtube-guides-for-stocks-for-2024/"><u>[Updated] Investing Insights on Screen Best YouTube Guides for Stocks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategic-broadcast-planning-youtube-and-the-top-30-networks/"><u>[Updated] Strategic Broadcast Planning YouTube & The Top 30 Networks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tailoring-the-spectrum-of-light-in-windows-based-video-editing/"><u>[Updated] Tailoring the Spectrum of Light in Windows-Based Video Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-yogi-essentials-top-ten-web-channels-for-exercise/"><u>[Updated] Yogi Essentials Top Ten Web Channels for Exercise</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/amazon-prime-day-2024-unveiled-all-the-essentials-covered/"><u>Amazon Prime Day 2024 Unveiled: All the Essentials Covered</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-capturing-piscine-adventures-5-superior-camers/"><u>In 2024, Capturing Piscine Adventures - 5 Superior Camers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-insiders-guide-to-using-and-maximizing-your-samsung-tv-apps/"><u>The Insider’s Guide to Using and Maximizing Your Samsung TV Apps</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

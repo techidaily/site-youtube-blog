@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Learn to Create Stunning Thumbnails in Minutes"
-date: 2024-12-21T09:50:42.286Z
-updated: 2024-12-22T04:16:41.078Z
+date: 2024-12-21T23:57:29.840Z
+updated: 2024-12-27T21:53:26.480Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -59,10 +67,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
@@ -70,10 +74,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
@@ -83,29 +83,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -116,6 +112,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,22 +138,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/amified-learning-educational-youtubers-to-subscribe-for-2024/"><u>[New] Gamified Learning Educational YouTubers to Subscribe for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-brand-partnerships-with-famebit-tools/"><u>[New] In 2024, Mastering YouTube Brand Partnerships with FameBit Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-frames-5-effective-charge-free-youtube-techniques/"><u>[New] In 2024, Unveiling Frames 5 Effective, Charge-Free YouTube Techniques</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-firecapture-pro-for-ff/"><u>[Updated] FireCapture Pro for FF</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-capture-the-essence-of-movement-in-iphone-photography/"><u>[Updated] In 2024, Capture the Essence of Movement in iPhone Photography</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-top-tier-video-transcription-aid-automated-in-2024/"><u>[Updated] Top-Tier Video Transcription Aid, Automated, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-culinary-callings-innovative-naming-for-foodie-channels/"><u>2024 Approved Culinary Callings Innovative Naming for Foodie Channels</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-ideal-top-ten-video-calls-applications-for-alltech/"><u>2024 Approved Ideal Top-Ten Video Calls Applications for Alltech</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-rise-to-success-with-these-essential-15-fb-sales-insights/"><u>2024 Approved Rise to Success with These Essential 15 FB Sales Insights</u></a></li>
-<li><a href="https://windows11.techidaily.com/combatting-memory-test-failed-in-windows/"><u>Combatting 'Memory Test Failed' In Windows</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/delta-airlines-treats-staff-as-regular-passengers-employee-discontent-soars/"><u>Delta Airlines Treats Staff as Regular Passengers: Employee Discontent Soars</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-earning-potential-revenue-from-youtube-advertisements-for-2024/"><u>Exploring Earning Potential Revenue From YouTube Advertisements for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/o-make-fortnite-thumbnail-for-free-and-easy/"><u>How to Make Fortnite Thumbnail for Free and Easy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/your-videos-right-top-tools-uncovered-for-youtube-success/"><u>Rank Your Videos Right - Top Tools Uncovered for YouTube Success</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/simplified-steps-for-snapchat-lens-design-for-2024/"><u>Simplified Steps for Snapchat Lens Design for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/egies-for-watching-multiple-youtube-videos-for-2024/"><u>Strategies for Watching Multiple YouTube Videos for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-tips-correcting-the-absent-coprocessor-driver-problem-on-windows-11/"><u>Troubleshooting Tips: Correcting the Absent Coprocessor Driver Problem on Windows 11</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-gaming-without-limits-screen-recorder-alternatives-explained/"><u>[New] Gaming Without Limits Screen Recorder Alternatives Explained</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-understanding-youtubes-user-interaction-options/"><u>[New] Understanding YouTube's User Interaction Options</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-livestream-giants-rivalry-facebook-vs-youtube-vs-periscope/"><u>[Updated] 2024 Approved Livestream Giants' Rivalry Facebook Vs. YouTube Vs. Periscope</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-creators-guide-15-unrestricted-music-archives/"><u>[Updated] 2024 Approved YouTube Creators' Guide 15 Unrestricted Music Archives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-key-techniques-for-assessing-youtube-engagement-and-profitability/"><u>[Updated] Key Techniques for Assessing YouTube Engagement and Profitability</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-making-engaging-youtube-video-thumbnails-with-phones-for-2024/"><u>[Updated] The Ultimate Guide to Making Engaging YouTube Video Thumbnails with Phones for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-a-new-dawn-in-gaming-stardew-valleys-best-mods-7/"><u>2024 Approved A New Dawn in Gaming - Stardew Valley's Best Mods (#7)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elite-mp4-media-sender/"><u>2024 Approved Elite MP4 Media Sender</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/essential-considerations-for-selecting-the-right-crypto-asset-insights-from-yl-computing/"><u>Essential Considerations for Selecting the Right Crypto Asset: Insights From YL Computing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-iphone-se-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On iPhone SE without Password?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/er-tips-for-getting-the-most-out-of-youtube-tv-for-2024/"><u>Insider Tips for Getting the Most Out of YouTube TV for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/minimizing-internet-latency-strategies-for-improved-response-times/"><u>Minimizing Internet Latency: Strategies for Improved Response Times</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ply-your-channels-subscribers-quickly-for-2024/"><u>Multiply Your Channel's Subscribers Quickly for 2024</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/rectification-importante-le-systeme-dexploitation-manquant-detecte-dans-les-produits-materiels-acer/"><u>Rectification Importante : Le Système D'exploitation Manquant Détecté Dans Les Produits Matériels Acer</u></a></li>
+<li><a href="https://win-updates.techidaily.com/scarlett-johansson-hd-backgrounds-and-images-complete-static-wallpaper-package-from-yl-computing-software/"><u>Scarlett Johansson HD Backgrounds and Images: Complete Static Wallpaper Package From YL Computing Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nary-storytelling-for-video-viewers-growth/"><u>Visionary Storytelling for Video Viewers' Growth</u></a></li>
 </ul></div>
 

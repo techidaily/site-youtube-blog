@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beauty Blogging Beginnings  Crafting a Captivating YouTube Channel\""
-date: 2024-08-16T05:59:16.636Z
-updated: 2024-08-17T05:59:16.636Z
+date: 2024-12-23T16:49:20.888Z
+updated: 2024-12-27T22:54:30.060Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/72ca63d6325a67d4b7a844299776fc3c0b1aca644
 
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
@@ -33,6 +37,10 @@ It’s easy to put together your own Beauty Vlog setup. There are four main elem
 #### 1\. Light It Up
 
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -64,20 +72,21 @@ If you do not have access to an external mic then you may be able to get by with
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,8 +95,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-androids-best-youtube-video-downloaders-reviewed/"><u>[New] 2024 Approved Android's Best YouTube Video Downloaders Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-digital-riches-transitioning-youtube-earnings-to-currency/"><u>[New] 2024 Approved Digital Riches Transitioning YouTube Earnings to Currency</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dodging-account-penaltinas-on-youtube/"><u>[New] 2024 Approved Dodging Account Penaltinas on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-dynamic-duo-display-youtubes-way-of-creative-splitting/"><u>[New] 2024 Approved Dynamic Duo Display YouTube’s Way of Creative Splitting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-easy-steps-to-extract-and-save-your-youtube-watch-lists/"><u>[New] 2024 Approved Easy Steps to Extract and Save Your YouTube Watch Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-monetization-magic-geek-channels/"><u>[New] 2024 Approved Monetization Magic Geek Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-nostalgia-in-streaming-restoring-yt-videos-removed/"><u>[New] 2024 Approved Nostalgia in Streaming Restoring YT Videos Removed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[Updated] In 2024, DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-overcoming-fullscreen-malfunctions-in-obs-for-2024/"><u>[Updated] Overcoming Fullscreen Malfunctions in OBS for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-steps-for-effective-ipad-screen-casts-for-2024/"><u>[Updated] Steps for Effective iPad Screen Casts for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates-for-2024/"><u>Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/embark-on-gaming-adventures-with-google-play-games-on-desktop/"><u>Embark on Gaming Adventures with Google Play Games on Desktop</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-content-climbing-from-zero-to-million-in-a-matter-of-seconds/"><u>In 2024, Content Climbing From Zero to Million in a Matter of Seconds</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-zte-nubia-flip-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your ZTE Nubia Flip 5G Phone FRP Lock</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-unique-sources-for-premium-youtube-imagery-for-2024/"><u>Top 6 Unique Sources for Premium YouTube Imagery for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
