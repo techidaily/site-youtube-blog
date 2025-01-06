@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vlog Glow  Achieving Professional Video Setup\""
-date: 2024-12-16T08:29:46.738Z
-updated: 2024-12-22T00:28:53.019Z
+date: 2025-01-04T16:46:24.844Z
+updated: 2025-01-06T16:27:41.504Z
 tags:
   - ai video
   - ai youtube
@@ -33,12 +33,16 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -53,15 +57,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -90,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -99,6 +95,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,20 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-charting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[New] 2024 Approved Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-custom-youtube-video-speed-control-desktopmobile-for-2024/"><u>[New] Custom YouTube Video Speed Control (Desktop/Mobile) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-maximize-engagement-learn-from-tubebuddy-experts/"><u>[New] In 2024, Maximize Engagement - Learn From TubeBuddy Experts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-world-of-streamed-games/"><u>[New] In 2024, Navigating the World of Streamed Games</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-smart-users-guide-to-enhancing-technology/"><u>[New] In 2024, The Smart User's Guide to Enhancing Technology</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-building-a-sports-channel-via-macos-step-by-step-guide-for-2024/"><u>[Updated] Building a Sports Channel via macOS Step by Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximizing-online-exposure-on-youtube-by-keeping-up-creative-commons-usage/"><u>[Updated] In 2024, Maximizing Online Exposure on YouTube by Keeping Up Creative Commons Usage</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-smart-approach-to-video-marketing-for-smbs/"><u>[Updated] In 2024, The SMART Approach to Video Marketing for SMBs</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-ultimate-screen-recorder-unleash-potential-on-win11/"><u>[Updated] In 2024, Ultimate Screen Recorder - Unleash Potential on Win11</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-guide-top-freefire-streams-and-strategies-on-youtube/"><u>[Updated] Ultimate Guide Top FreeFire Streams & Strategies on YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-movie-magic-on-mobile-ioss-best-free-and-paid-film-apps/"><u>2024 Approved Movie Magic on Mobile IOS's Best Free and Paid Film Apps</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/browser-security-alert-decoded-how-to-deal-with-firefox-secerrorunknownissuer/"><u>Browser Security Alert Decoded - How to Deal with FireFox SEC_ERROR_UNKNOWN_ISSUER</u></a></li>
-<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-13-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By Apple iPhone 13 without the Previous Owner?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-s-best-free-video-compression-solutions-for-windows-10-users/"><u>New S Best Free Video Compression Solutions for Windows 10 Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hannel-buying-made-simple-a-beginners-toolkit-for-2024/"><u>[New] Channel Buying Made Simple A Beginner’s Toolkit for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-backtrack-with-flair-ingenious-ways-to-watch-youtube-reverse/"><u>[New] In 2024, Backtrack with Flair Ingenious Ways to Watch Youtube Reverse</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-how-does-t-series-generate-revenue/"><u>[New] In 2024, How Does T-Series Generate Revenue?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-8-real-life-strategies-to-increase-youtube-reach/"><u>[New] In 2024, Top 8 Real-Life Strategies to Increase YouTube Reach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-guide-establishing-your-first-youtube-profile-for-2024/"><u>[New] Step-by-Step Guide Establishing Your First YouTube Profile for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elevating-your-minecraft-game-perfectly-shaped-circles-and-spheres/"><u>[Updated] 2024 Approved Elevating Your Minecraft Game Perfectly Shaped Circles and Spheres</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ultimate-guide-top-3d-introduction-software/"><u>[Updated] 2024 Approved The Ultimate Guide Top 3D Introduction Software</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-case-study-how-to-grow-on-youtube-to-have-millions-of-subs-for-2024/"><u>[Updated] Case Study How to Grow on YouTube to Have Millions of Subs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-effortless-estimation-of-digital-gains-for-2024/"><u>[Updated] Effortless Estimation of Digital Gains for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-harmonizing-content-and-platform-youtubes-brief-melodies-explained-for-2024/"><u>[Updated] Harmonizing Content and Platform YouTube's Brief Melodies Explained for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximizing-engagement-the-power-of-tailored-cards-and-ends-on-yt/"><u>[Updated] In 2024, Maximizing Engagement The Power of Tailored Cards & Ends on YT</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-digital-canvas-studio-essentials-for-2024/"><u>[Updated] Navigating YouTube's Digital Canvas Studio Essentials for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-directors-toolkit-youtube-lessons-on-film-making/"><u>2024 Approved The Director's Toolkit YouTube Lessons on Film Making</u></a></li>
+<li><a href="https://games-able.techidaily.com/adding-funds-a-key-to-ps-store-success/"><u>Adding Funds: A Key to PS Store Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-gpsmap/"><u>Garmin GPSMAP</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-itel-p40-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Itel P40 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-chromecast-firmware-updates-made-simple/"><u>Guide to Chromecast Firmware Updates Made Simple</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725285471074-pc/"><u>PCまたはスマートフォンでツイッター映像を記録する方法 - [手軽なガイド]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/is-filmora-certified-creative-program-and-how-to-become-an-fcc/"><u>What Is Filmora Certified Creative Program and How to Become an FCC</u></a></li>
 </ul></div>
 

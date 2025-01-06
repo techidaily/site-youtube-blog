@@ -1,7 +1,7 @@
 ---
 title: "How to Manage YouTube Video Comments for Enhanced Privacy for 2024"
-date: 2024-12-21T21:21:27.556Z
-updated: 2024-12-27T23:06:08.345Z
+date: 2025-01-02T17:11:07.039Z
+updated: 2025-01-06T17:00:26.369Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ Keeping all these points in mind, the following sections explain **how to enable
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
@@ -48,10 +48,6 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -78,7 +74,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -86,10 +82,6 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -111,6 +103,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -131,11 +127,11 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -167,6 +163,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,17 +188,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>[New] 2024 Approved Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-interactive-slides-with-youtube-videos/"><u>[New] 2024 Approved Interactive Slides with YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-masterful-multiclip-management-on-youtube/"><u>[New] 2024 Approved Masterful Multiclip Management on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-youtube-seo-boost-your-video-popularity/"><u>[New] 2024 Approved Mastering YouTube SEO Boost Your Video Popularity</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-demystifying-instagram-story-sections-for-2024/"><u>[New] Demystifying Instagram Story Sections for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-quickstream-simple-steps-for-live-podcast-broadcasting/"><u>[New] Quickstream Simple Steps for Live Podcast Broadcasting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-transferring-youtube-shorts-from-pcandroid-or-ios-for-2024/"><u>[Updated] How-To Transferring YouTube Shorts From PC/Android or iOS for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ace-vpn-choices-for-apple-devices-in-depth-analysis-and-evaluation-by-experts-at-techradar/"><u>Ace VPN Choices for Apple Devices: In-Depth Analysis & Evaluation by Experts at TechRadar</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-lenovo-legion-5-pro-drivers-compatible-with-model-16ach6h/"><u>Download Lenovo Legion 5 Pro Drivers - Compatible with Model 16ACH6H</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-mics-for-bloggers-educators-and-entertainment-clips/"><u>Ideal Mics for Bloggers, Educators, & Entertainment Clips</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ultimate-tutorial-for-hiding-subtitles-on-amazon-prime-videos/"><u>The Ultimate Tutorial for Hiding Subtitles on Amazon Prime Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-realme-v30-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Realme V30 Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-social-storytellers-playbook-maximizing-video-impact-on-fb/"><u>[New] A Social Storyteller’s Playbook Maximizing Video Impact on FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levating-your-valorant-videos-with-impressive-thumbnails/"><u>[New] Elevating Your Valorant Videos with Impressive Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-cultivate-creativity-10-inspiration-boosting-videos/"><u>[New] In 2024, Cultivate Creativity 10 Inspiration-Boosting Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nwind-the-clock-how-to-reverse-videos-online/"><u>[New] Unwind the Clock How to Reverse Videos Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-free-photos-for-every-project-an-exclusive-list-of-top-12-online-sources/"><u>[Updated] 2024 Approved Free Photos for Every Project - An Exclusive List of Top 12 Online Sources</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-list-of-virtual-journeys-by-channel/"><u>[Updated] In 2024, The Ultimate List of Virtual Journeys, By Channel</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-6-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone 6 iCloud Activation Lock</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722961064118-latest-samsung-850-evo-drive-software-and-drivers-get-them-here/"><u>Latest Samsung 850 EVO Drive Software and Drivers – Get Them Here!</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/live-chat-with-woocommerce-your-gateway-to-successful-live-selling-for-2024/"><u>Live Chat With WooCommerce Your Gateway to Successful Live Selling for 2024</u></a></li>
+<li><a href="https://fox-place.techidaily.com/reviving-lost-memories-a-tutorial-for-restoring-erased-pictures-in-discord-on-a-pc/"><u>Reviving Lost Memories: A Tutorial for Restoring Erased Pictures in Discord on a PC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-5-best-free-driver-updaters-for-windows/"><u>The 5 Best Free Driver Updaters for Windows</u></a></li>
 </ul></div>
 

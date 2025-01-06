@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Youtuber Convention Guide (Post-VidCon) for 2024\""
-date: 2024-08-16T05:57:51.201Z
-updated: 2024-08-17T05:57:51.201Z
+date: 2025-01-04T17:13:56.628Z
+updated: 2025-01-06T17:04:48.756Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -138,6 +146,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,20 +228,21 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/aining-ground-on-the-groundswell-of-online-viewers-for-2024/"><u>[New] Gaining Ground on the Groundswell of Online Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/etting-the-standard-for-online-video-presentations-yt-thumbnail-sizing-for-2024/"><u>[New] Setting the Standard for Online Video Presentations – YT Thumbnail Sizing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-discover-websites-your-gateway-to-youtube-branded-content-for-2024/"><u>[Updated] Discover Websites Your Gateway to YouTube Branded Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-double-trouble-replaying-youtube-videos-on-your-set/"><u>[Updated] Double Trouble Replaying YouTube Videos on Your Set</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ace-your-videos-essential-editors-for-youtube/"><u>[Updated] In 2024, Ace Your Videos Essential Editors for YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-finessing-your-profiles-first-look/"><u>[Updated] In 2024, Finessing Your Profile's First Look</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-monetization-tracker-tool-for-online-videos/"><u>[Updated] Monetization Tracker Tool for Online Videos</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-samsung-galaxy-a14-4g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Samsung Galaxy A14 4G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-down-the-secrets-of-impactful-asmr-video-creation/"><u>Breaking Down the Secrets of Impactful ASMR Video Creation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-techniques-for-crafting-backward-movies-in-snapchats-interface/"><u>Expert Advice: Techniques for Crafting Backward Movies in Snapchat's Interface</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/exploring-benq-bl2711u-ultra-hd-monitor-deep-dive/"><u>Exploring BenQ BL2711U Ultra-HD Monitor Deep Dive</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Use Life360 on Windows PC For Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-tackling-legal-differences-youtubes-restrictions-and-creative-commons-licensing/"><u>In 2024, Tackling Legal Differences YouTube's Restrictions & Creative Commons Licensing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-amazon-halo-the-next-generation-of-personalized-fitness-trackers/"><u>Introducing Amazon Halo: The Next Generation of Personalized Fitness Trackers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/knacks-review-a-blend-of-new-personality-in-an-age-old-format/"><u>Knack's Review: A Blend of New Personality in an Age-Old Format</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-hashtags-for-youtube-audience-surge/"><u>Proven #Hashtags for YouTube Audience Surge</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tech-battle-royale-comparing-the-latest-action-cams-gopro-and-garmin-virb-for-2024/"><u>Tech Battle Royale Comparing the Latest Action Cams, GoPro & Garmin VIRB for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/windows-users-ultimate-guide-to-email-attachments-insights-by-yl-software/"><u>Windows Users' Ultimate Guide to Email Attachments - Insights by YL Software</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->

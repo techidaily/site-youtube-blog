@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Swaying Symbols  Dynamic Animation for Text Effects for 2024\""
-date: 2024-12-21T22:56:19.684Z
-updated: 2024-12-28T01:06:04.704Z
+date: 2024-12-30T16:42:48.409Z
+updated: 2025-01-06T17:17:27.442Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
@@ -66,7 +66,7 @@ You can customize the default effect by double-clicking the shake filter in the 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
@@ -74,6 +74,10 @@ You can customize the default effect by double-clicking the shake filter in the 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -84,7 +88,11 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -98,10 +106,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -143,10 +147,6 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -168,22 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-crafting-the-perfect-picture-for-youtube-upload/"><u>[New] In 2024, Crafting the Perfect Picture for YouTube Upload</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-excellence-guild-crafting-photos-plus-sounds-visuals-for-2024/"><u>[Updated] Excellence Guild Crafting Photos + Sounds, Visuals for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-archiving-your-favorites-the-complete-list-of-9-podcast-recording-steps/"><u>[Updated] In 2024, Archiving Your Favorites The Complete List of 9 Podcast Recording Steps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-leading-tools-to-transform-your-vocal-recordings-for-2024/"><u>[Updated] Leading Tools to Transform Your Vocal Recordings for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-soundtrack-with-these-playlist-tips-for-youtube-for-2024/"><u>[Updated] Streamline Your Soundtrack with These Playlist Tips for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-conveying-excitement-perfecting-your-valorant-video-thumbnails-for-2024/"><u>[Updated] The Art of Conveying Excitement Perfecting Your Valorant Video Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-softer-side-of-promotion-elevating-your-audience-count-for-2024/"><u>[Updated] The Softer Side of Promotion Elevating Your Audience Count for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-potential-a-step-by-step-approach-to-youtube-links/"><u>[Updated] Unleashing Potential A Step-by-Step Approach to YouTube Links</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-how-regular-are-youtube-monetization-payments/"><u>2024 Approved How Regular Are YouTube Monetization Payments?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ace-your-green-screen-videos-must-know-secrets-for-2024/"><u>Ace Your Green Screen Videos Must-Know Secrets for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/book-your-apple-vision-pro-demo-discover-improved-experience-and-get-insider-tips-techguide/"><u>Book Your Apple Vision Pro Demo: Discover Improved Experience & Get Insider Tips | TechGuide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/download-now-updated-and-enhanced-macx-pro-for-complimentary-use/"><u>Download Now: Updated and Enhanced MacX Pro for Complimentary Use</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/te-your-videos-youtube-trailers-through-filmora/"><u>Elevate Your Videos YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mastering-stability-how-to-prevent-constant-crashing-of-the-fuser-application-in-microsoft-systems/"><u>Mastering Stability: How to Prevent Constant Crashing of the Fuser Application in Microsoft Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/step-by-step-inserting-times-on-youtube-videos-for-2024/"><u>Step-by-Step Inserting Times on YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-picks-free-fb-to-mp4-file-transformers/"><u>Top Picks Free FB to MP4 File Transformers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-flying-high-a-compreenasol-guide-to-cutting-edge-drone-editing/"><u>[New] 2024 Approved Flying High A Compreenasol Guide to Cutting-Edge Drone Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-advanced-guide-to-excellence-full-screen-preview-in-premiere/"><u>[New] Advanced Guide to Excellence Full Screen Preview in Premiere</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-path-to-youtube-riches-optimal-view-figures-for-monetization-success/"><u>[New] In 2024, Path to YouTube Riches Optimal View Figures for Monetization Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-racing-cameras-face-off-is-gopro-the-ultimate-champion/"><u>[New] In 2024, Racing Cameras Face Off Is GoPro the Ultimate Champion?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-screenflow-showdown-the-top-video-editing-software-for-macos-users/"><u>[New] In 2024, ScreenFlow Showdown The Top Video Editing Software for macOS Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-art-of-amplification-masterful-youtube-tagging-tips/"><u>[New] In 2024, The Art of Amplification Masterful YouTube Tagging Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-validating-your-yt-channels-earnings/"><u>[New] In 2024, The Ultimate Guide to Validating Your YT Channel's Earnings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-youtubes-best-music-responses/"><u>[New] In 2024, The Ultimate Guide to YouTube's Best Music Responses</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-transform-scenes-into-memorable-moments-your-comprehensive-guide-to-gopro-timelapses/"><u>[Updated] 2024 Approved Transform Scenes Into Memorable Moments Your Comprehensive Guide to GoPro Timelapses</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-decoding-revenue-from-a-million-watches-on-youtube-for-2024/"><u>[Updated] Decoding Revenue From A Million Watches on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-monetize-your-youtube-shorts-simple-steps/"><u>[Updated] How to Monetize Your YouTube Shorts Simple Steps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-rhythmic-reflections-in-photo-cinema/"><u>[Updated] Rhythmic Reflections in Photo Cinema</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-responses-7-groundbreaking-gpt-techniques/"><u>Enhancing Responses: 7 Groundbreaking GPT Techniques</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-change-your-location-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Your Location on Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-big-players-of-the-web-youtubes-subscriber-elite/"><u>In 2024, The Big Players of the Web YouTube's Subscriber Elite</u></a></li>
 </ul></div>
 

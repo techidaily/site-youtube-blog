@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hilarious YouTube Moments  Top 10 Quirky Short Film Concepts for 2024\""
-date: 2024-08-16T05:53:37.879Z
-updated: 2024-08-17T05:53:37.879Z
+date: 2025-01-04T16:05:25.012Z
+updated: 2025-01-06T17:19:02.065Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
@@ -76,6 +80,10 @@ If experimenting with chemicals or anything that surrounds you makes you out of 
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
 
 #### Idea 6: Funny Competition
@@ -83,6 +91,10 @@ Just review all your collection of experiments you did and combine them under Yo
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
@@ -99,6 +111,10 @@ Just give it a try and dance with the music you create with all the worldwide li
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
@@ -120,9 +136,6 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
 Creating ideas for YouTube Shorts videos alone is not sufficient to grab more views. Some specific golden rules or tips will leap while catching more views to the YouTube Short Videos while applying the above ideas. Let’s understand them.
@@ -168,8 +181,9 @@ Then, indeed, this guide is the pathway. You will get different funny YouTube Sh
 Thus, start utilizing these powerful ideas and tips and head towards your YouTube Shorts journey.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -178,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -194,4 +205,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/voiding-the-bottom-ranks-understanding-impactful-factors-for-2024/"><u>[New] Avoiding the Bottom Ranks Understanding Impactful Factors for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-much-income-arises-from-each-snapshot-video-for-2024/"><u>[New] How Much Income Arises From Each Snapshot (Video) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-rapidly-enhance-your-content-reach-with-simple-steps/"><u>[New] In 2024, Rapidly Enhance Your Content Reach with Simple Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/humbnail-tutorial-for-youtube-using-mobile-devices-for-2024/"><u>[New] Thumbnail Tutorial for YouTube Using Mobile Devices for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-best-practices-leveraging-videos-to-boost-education/"><u>[Updated] 2024 Approved Best Practices Leveraging Videos to Boost Education</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-htcs-immersive-revolution-a-deep-dive-into-vr-headset-magic-for-2024/"><u>[Updated] HTC's Immersive Revolution A Deep Dive Into VR Headset Magic for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie/"><u>[Updated] In 2024, Cut, Trim & Enhance YouTube Editing Tips for the Rookie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-smile-and-watch-your-guide-to-the-top-15-funny-youtubers/"><u>[Updated] Smile and Watch Your Guide to the Top 15 Funny YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-alternatives-3-best-video-sharing-sites-for-2024/"><u>[Updated] YouTube Alternatives 3 Best Video Sharing Sites for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-cutting-edge-techniques-for-excellent-sound-no-mic-included/"><u>2024 Approved Cutting-Edge Techniques for Excellent Sound, No Mic Included</u></a></li>
+<li><a href="https://app-tips.techidaily.com/exploring-ai-rust-language-with-linus-torvalds-why-the-linux-core-reigns-supreme-tech-insights/"><u>Exploring AI, Rust Language with Linus Torvalds: Why the Linux Core Reigns Supreme | Tech Insights</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ipad-reset-mastery-learn-to-enable-recovery-mode-with-ease/"><u>IPad Reset Mastery – Learn to Enable Recovery Mode with Ease</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/top-rated-free-wmv-video-editing-software-with-splitting-features/"><u>Top-Rated Free WMV Video Editing Software with Splitting Features</u></a></li>
+</ul></div>
 
