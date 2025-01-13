@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Breakdown of Payment Percentages in Short Video Royalties"
-date: 2024-08-16T05:46:36.943Z
-updated: 2024-08-17T05:46:36.943Z
+date: 2025-01-08T05:32:28.851Z
+updated: 2025-01-12T21:11:16.182Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ YouTube launched the Shorts platform in 2021, which gained popularity within a s
 
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yes, YouTube updated its Partner Program, allowing the revenue-sharing model to benefit Shorts creators. The platform pools all the money it gets from advertisers every month from the Shorts feeds. It then shares that money with creators based on the number of views. Since the launch of this program in February 2023, the previous YouTube Shorts Fund became defunct.
 
 The ad revenue-sharing model on YouTube Shorts may seem complex, but let’s break it down
@@ -41,18 +45,23 @@ The ad revenue-sharing model on YouTube Shorts may seem complex, but let’s bre
 
 So, is YouTube shorts monetized? Yes, the ads-sharing model defines the amount of money a creator can earn from Shorts every month. Depending on the number of views generated, high-performing Shorts can bring in a huge amount of money.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2\. YouTube Shorts Monetization: Eligibility Criteria and Earnings Potential**
 
 YouTube Shorts provides creators with an exceptional way of making extra income. Let’s have a look at what it takes and what the numbers say:
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Eligibility** **Criteria**
 
 If you are wondering, can I monetize YouTube shorts? To start earning ad revenue from Shorts, you need to be part of the YouTube Partner Program (YPP) This is the gateway to YouTube monetization opportunities. With the latest YouTube shorts monetization 2023 policy, the platform lowered the eligibility criteria.
 
 ![youtube shorts monetization](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To be eligible to the YPP, you will need:
 
@@ -77,20 +86,22 @@ YouTube Shorts have the potential to make a huge amount of money for creators. I
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) – Earned $163.73 from 4.2 million Shorts views
 * [Hassan Khadair](https://www.youtube.com/@HassanKhadair) (2.1 million subscribers) – Earned $872.14 from 22 million Shorts views
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 3\. How to Start Earning from YouTube Shorts**
 
 Eligible creators start earning from YouTube Shorts when they opt-in to the program. You need to make sure you are eligible and agree to start receiving revenue from your creations.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ### **Are You Eligible for YouTube Shorts Earnings?**
 
 Shorts creators growing their channel and are yet to meet the minimum requirements can track their eligibility status by selecting “Notify me when I’m eligible” in YouTube Studio’s Earn section.
 
 ![youtube shorts monetization eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-3.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When you become eligible, follow these steps to apply for the YPP program:
@@ -104,9 +115,6 @@ When you become eligible, follow these steps to apply for the YPP program:
 
 Once you have completed these steps, your YouTube Channel will be reviewed. You can expect to hear a decision within a month of enrolling you in the program.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### **How to opt in for YouTube Shorts Monetization**
 
 After being approved and enrolled in the YPP program, you need to opt in to monetize your channel. Remember that you will not be automatically signed up for the ad revenue-sharing model. Here are a few more steps you need to take:
@@ -129,8 +137,9 @@ The YPP program is the only ad-based monetization option for YouTube Shorts. How
 * **Join an Affiliate Program**: An affiliate program will pay you revenue associated with clicks to links hosted on your channel.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 4\.** [**Edit Your YouTube Videos to Shorts with Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To earn more from your YouTube Shorts, you need quality content that keeps your viewers entertained. With Shorts having a limit of 60 seconds, you want to make sure that you cover the most essential footage. Wondershare Filmora is a versatile video editing software that helps creators edit their vertical videos quickly and easily. The mobile app is specifically great for editing shorts on the go:
@@ -151,6 +160,10 @@ After opening Filmora, head over to the main interface. You will find the Auto R
 
 ![auto reframe 1](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-4.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **2\. Launch Directly from the Video**
 
 Click File, followed by Import Media. Select the file that you gave imported in the timeline and right-click on it. Then select Auto Reframe.
@@ -162,9 +175,6 @@ Click File, followed by Import Media. Select the file that you gave imported in 
 You may also use the Auto Reframe feature by clicking on the Tools feature on the top menu bar. Then click on Auto Reframe.
 
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-6.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 
 ### **Other Filmora Features for Editing Shorts**
 
@@ -172,9 +182,6 @@ You may also use the Auto Reframe feature by clicking on the Tools feature on th
 * [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Directly add texts to your videos, including subtitles and captions.
 * [**Text To Speech**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Instantly convert your text files to voice and introduce more elements that will enrich your Shorts video.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 YouTube Short’s revenue-sharing programs offer a great opportunity for creators specializing in short-form content to earn money on the platform. Once eligible for the YPP program, you can start earning a nice cash bonus monthly. However, you will need to create quality content that keeps your audience entertained and engaged. We recommend using Wondershare Filmora to edit your Shorts and make them more relatable to the audience,
@@ -182,18 +189,12 @@ YouTube Short’s revenue-sharing programs offer a great opportunity for creator
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +203,19 @@ YouTube Short’s revenue-sharing programs offer a great opportunity for creator
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/oosting-earning-potential-on-youtube-shorts/"><u>[New] Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-commanders-clash-the-ultimate-ranking-of-7-total-war-games/"><u>[New] Commanders' Clash The Ultimate Ranking of 7 Total War Games</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-laying-down-an-elegant-tiktok-credits-panel/"><u>[New] Laying Down an Elegant TikTok Credits Panel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-stream-to-success-obs-youtube-broadcast-basics/"><u>[Updated] In 2024, Stream to Success OBS Youtube Broadcast Basics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-live-pro-tips-outfitting-with-excellent-webcams/"><u>[Updated] In 2024, YouTube Live Pro Tips Outfitting with Excellent Webcams</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unraveling-the-efficiency-of-lg-ud88-w-display-technology/"><u>[Updated] Unraveling the Efficiency of LG UD88-W Display Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-crypto-clout-how-much-does-the-youtube-gamer-make/"><u>In 2024, Crypto Clout How Much Does the YouTube Gamer Make?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-realme-gt-neo-5-se-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Realme GT Neo 5 SE to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-live-streamers-predicament-pick-between-wirecast-and-obs/"><u>In 2024, Live Streamer's Predicament Pick Between Wirecast and OBS</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-correct-driver-match-for-your-hardware/"><u>No Correct Driver Match for Your Hardware</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ling-the-top-15-no-cost-audio-archives-for-content-makers/"><u>Unveiling the Top 15 No-Cost Audio Archives for Content Makers</u></a></li>
+</ul></div>
 

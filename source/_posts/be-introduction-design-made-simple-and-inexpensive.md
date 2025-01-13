@@ -1,7 +1,7 @@
 ---
 title: "YouTube Introduction Design Made Simple and Inexpensive"
-date: 2024-08-16T05:46:10.194Z
-updated: 2024-08-17T05:46:10.194Z
+date: 2025-01-11T16:12:13.321Z
+updated: 2025-01-13T01:37:42.234Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +147,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/eading-tech-review-the-top-10-screen-recorders/"><u>[New] Leading Tech Review The Top 10 Screen Recorders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tarting-from-scratch-video-gear-insights/"><u>[New] Starting From Scratch Video Gear Insights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rapid-fire-guide-to-successful-double-exposures/"><u>[Updated] 2024 Approved Rapid-Fire Guide to Successful Double Exposures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-tackling-youtube-shorts-issues-for-2024/"><u>[Updated] The Ultimate Guide Tackling YouTube Shorts Issues for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-12-pro-max-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone 12 Pro Max Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-iphone-images-jpeg-png-guided-conversion-to-pdfs/"><u>From iPhone Images (JPEG, PNG) - Guided Conversion to PDFs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-expertise-continuous-video-play-for-2024/"><u>IPhone Expertise Continuous Video Play for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/lenovos-compact-computing-marvel-examined-a-closer-look-at-the-thinkpad-x1-nano/"><u>Lenovo's Compact Computing Marvel Examined: A Closer Look at the ThinkPad X1 Nano</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/utorial-broadcasting-on-youtube-from-home-for-2024/"><u>OBS Tutorial Broadcasting on Youtube From Home for 2024</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/schritt-fur-schritt-leitfaden-zum-einsatz-von-rsync-auf-windows-11-einfach-und-effektiv/"><u>Schritt-Für-Schritt-Leitfaden Zum Einsatz Von Rsync Auf Windows 11 - Einfach Und Effektiv</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/snipgear-gone-wrong-nine-effective-tips-to-get-it-running-again/"><u>SnipGear Gone Wrong? Nine Effective Tips to Get It Running Again</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/telechargement-gratuit-de-mac-x-hd-video-convertisseur-pro-pour-windows-en-ligne/"><u>Téléchargement Gratuit De Mac X HD Vidéo Convertisseur Pro Pour Windows - En Ligne</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-list-leading-usb-flash-drives/"><u>The Ultimate List: Leading USB Flash Drives</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723011861002-wrc-10-pc-version-stability-fixed-now-running-smoothly/"><u>WRC 10 PC Version Stability Fixed: Now Running Smoothly</u></a></li>
+</ul></div>
 

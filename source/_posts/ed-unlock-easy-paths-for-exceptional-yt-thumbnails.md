@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlock Easy Paths for Exceptional YT Thumbnails"
-date: 2024-08-16T05:49:32.190Z
-updated: 2024-08-17T05:49:32.190Z
+date: 2025-01-08T19:56:39.245Z
+updated: 2025-01-13T03:50:05.315Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -55,6 +59,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
@@ -67,9 +75,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/hanneling-changes-transition-to-youtubes-updated-membership-model-for-2024/"><u>[New] Channeling Changes Transition to YouTube's Updated Membership Model for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ecoding-youtubes-operations-following-uploads/"><u>[New] Decoding YouTube’s Operations Following Uploads</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fixing-the-quake-tips-for-steadying-gopro-videos/"><u>[New] Fixing the Quake Tips for Steadying GoPro Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transforming-your-film-with-advanced-color-separation/"><u>[New] In 2024, Transforming Your Film with Advanced Color Separation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-youtubes-creative-commons-shapes-video-production/"><u>[Updated] How YouTube's Creative Commons Shapes Video Production</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sustainable-practices-greening-urban-landscapes/"><u>[Updated] Sustainable Practices Greening Urban Landscapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-creativity-secrets-of-unique-yt-short-content/"><u>[Updated] Unleashing Creativity Secrets of Unique YT Short Content</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-experience-the-power-of-automated-ppc-advertising/"><u>Cookiebot-Enhanced: Experience the Power of Automated PPC Advertising</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-on-apple-iphone-12-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery on Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-organize-photo-album-on-iphone-and-icloud/"><u>In 2024, How To Organize Photo Album On iPhone And iCloud</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your iPhone SE (2022)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-hue-mastery-interface/"><u>In 2024, Hue Mastery Interface</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-jest-junction-youtubes-top-20-for-a-lighthearted-pause/"><u>In 2024, Jest Junction YouTube's Top 20 for a Lighthearted Pause</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-video-dubbing-top-apps/"><u>New The Ultimate Guide to Video Dubbing Top Apps</u></a></li>
+<li><a href="https://techtrends.techidaily.com/simple-steps-for-airplay-magic-projecting-a-macs-world-onto-tv-screens/"><u>Simple Steps for AirPlay Magic: Projecting a Mac's World Onto TV Screens</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Softer Side of Promotion  Elevating Your Audience Count for 2024\""
-date: 2024-08-16T05:48:30.514Z
-updated: 2024-08-17T05:48:30.514Z
+date: 2025-01-10T00:58:45.847Z
+updated: 2025-01-12T18:01:12.633Z
 tags:
   - ai video
   - ai youtube
@@ -45,8 +45,9 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -56,10 +57,9 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
@@ -71,15 +71,13 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 Even with the above tricks, you may not get the subscribers as you wish unless you can make sure your videos and contents are of high quality. As YouTube is getting more and more popular and more YouTubers are competing for subscribers, you will need to polish your YouTube videos.
@@ -89,16 +87,17 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -107,14 +106,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +119,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-explaining-video-trims-the-logic-of-trimming/"><u>[New] Explaining Video Trims The Logic of Trimming</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-captivate-viewers-the-art-of-crafting-short-videos/"><u>[New] In 2024, Captivate Viewers The Art of Crafting Short Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-deciphering-youtube-shorts-a-comprehensive-overview/"><u>[Updated] 2024 Approved Deciphering YouTube Shorts A Comprehensive Overview</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unveiling-the-secrets-to-stellar-youtube-intros/"><u>[Updated] 2024 Approved Unveiling the Secrets to Stellar YouTube Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>[Updated] Channel Design Mastery Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-changing-ideas-inspiring-videos-to-enhance-creativity-for-2024/"><u>[Updated] Channel-Changing Ideas Inspiring Videos to Enhance Creativity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>[Updated] Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-stat-tracking-essentials/"><u>[Updated] Mastering YouTube Stat Tracking Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-micro-movie-moments-actors-in-audio-arts/"><u>[Updated] Micro Movie Moments Actors in Audio Arts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-youtube-growth-secrets-8-honestly-endorsed-methods-for-2024/"><u>[Updated] Top Youtube Growth Secrets – 8 Honestly-Endorsed Methods for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlocking-color-grading-with-luts-in-pscc/"><u>[Updated] Unlocking Color Grading with LUTs in PSCC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-boosting-mobile-slow-mo-top-app-picks/"><u>2024 Approved Boosting Mobile Slow Mo Top App Picks</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/creating-a-memorable-podcast-niche-top-ai-name-generators/"><u>Creating a Memorable Podcast Niche – Top AI Name Generators</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/easy-guide-tweak-your-pcs-energy-efficiency-with-windows-power-options-yl-computing-tech-solutions/"><u>Easy Guide: Tweak Your PC's Energy Efficiency with Windows Power Options - YL Computing Tech Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/innovative-use-of-graphics-cards-for-gaming-capture/"><u>Innovative Use of Graphics Cards for Gaming Capture</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/follower-tracker-software-for-2024/"><u>Live Follower Tracker Software for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-fixes-enhancing-images-in-windows-10s-photos-editor-for-2024/"><u>Quick Fixes Enhancing Images in Windows 10'S Photos Editor for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/step-by-step-atheros-wi-fi-enhancement-for-your-windows-environment/"><u>Step-by-Step Atheros Wi-Fi Enhancement for Your Windows Environment</u></a></li>
+</ul></div>
 

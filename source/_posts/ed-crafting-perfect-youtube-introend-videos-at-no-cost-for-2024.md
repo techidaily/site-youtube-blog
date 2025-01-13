@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Perfect YouTube Intro/End Videos at No Cost for 2024"
-date: 2025-01-01T16:10:48.611Z
-updated: 2025-01-06T16:32:20.235Z
+date: 2025-01-10T03:25:44.758Z
+updated: 2025-01-13T04:07:03.214Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/a2a04cdf466fbea2e01b9f9b4e0e053a2190bbd1c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,20 +154,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-a-compreran-guide-for-seamless-soundtrack-integration-in-video-editing-for-2024/"><u>[New] A Compreran Guide for Seamless Soundtrack Integration in Video Editing for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tep-by-step-adding-tracks-to-youtubes-playlist-for-2024/"><u>[New] Step-by-Step Adding Tracks to YouTube's Playlist for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>[Updated] 12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-capturepros-a-studio-showdown/"><u>[Updated] 2024 Approved CapturePros A Studio Showdown</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-key-approaches-to-building-effective-youtube-collaborations/"><u>[Updated] 2024 Approved Key Approaches to Building Effective YouTube Collaborations</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-professional-choice-high-quality-laptops-for-media-workers/"><u>[Updated] Professional Choice High-Quality Laptops for Media Workers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-power-of-revenue-streams-youtubers-adsense-manual-for-2024/"><u>[Updated] Unlocking the Power of Revenue Streams YouTubers' AdSense Manual for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-your-guide-to-the-finest-youtube-subtitles-extractor-for-2024/"><u>[Updated] Your Guide to the Finest YouTube Subtitles Extractor for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-building-your-brand-making-money-with-vids/"><u>2024 Approved Building Your Brand Making Money with Vids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-step-by-step-guide-to-free-youtube-downloads-without-apps/"><u>2024 Approved Step-by-Step Guide to Free YouTube Downloads Without Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/prehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor X9b? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/prime-emulation-tools-sonys-ps1-classics-at-the-fingertips/"><u>Prime Emulation Tools Sony's PS1 Classics at the Fingertips</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solving-invalid-service-installation-inf-segment/"><u>Solving Invalid Service Installation INF Segment</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-aspiring-asmr-producers-guide-to-video-excellence-for-2024/"><u>The Aspiring ASMR Producer's Guide to Video Excellence for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clearing-process-for-youtubes-pending-video-list/"><u>[New] Clearing Process for YouTube's Pending Video List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-multimedia-strategies-for-gamers-on-youtube/"><u>[New] In 2024, Mastering Multimedia Strategies for Gamers on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-youtube-creations-a-guide-to-high-quality-visuals/"><u>[New] In 2024, Optimize YouTube Creations A Guide to High-Quality Visuals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-8-camera-showdown-excellence-in-broadcasting/"><u>[New] In 2024, Ultimate 8 Camera Showdown Excellence in Broadcasting</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-journey-to-joyrides-top-housing-ideas-for-new-players-for-2024/"><u>[New] Journey to Joyrides Top Housing Ideas for New Players for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-understanding-vimeo-online-movie-marketplace/"><u>[New] Understanding Vimeo Online Movie Marketplace</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-capture-clash-comparing-the-latest-gopro-and-virb-models-for-2024/"><u>[Updated] Capture Clash Comparing the Latest GoPro and VIRB Models for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-download-youtube-videos-on-android-9-powerful-apps-compared/"><u>[Updated] In 2024, Download YouTube Videos on Android 9 Powerful Apps Compared</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/conquer-flickering-visual-vexations/"><u>Conquer Flickering Visual Vexations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-how-to-transform-smartphone-capabilities-into-a-professional-yt-channel/"><u>In 2024, How to Transform Smartphone Capabilities Into a Professional YT Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-navigating-copyright-on-youtube-and-cc/"><u>In 2024, Navigating Copyright on YouTube & CC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/quick-and-easy-steps-for-photos-in-your-instagram-gallery/"><u>Quick and Easy Steps for Photos in Your Instagram Gallery</u></a></li>
+<li><a href="https://win-bits.techidaily.com/two-methods-for-transferring-data-from-one-nvme-drive-to-another-on-windows-pcs/"><u>Two Methods for Transferring Data From One NVMe Drive to Another on Windows PCs</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-navigating-the-best-free-browser-based-daw-platforms-for-enhanced-audio-creation-2023-edition/"><u>Updated In 2024, Navigating the Best FREE Browser-Based DAW Platforms for Enhanced Audio Creation - 2023 Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/stocks-your-screen-ideal-youtube-groups-for-2024/"><u>Your Stocks, Your Screen Ideal YouTube Groups for 2024</u></a></li>
 </ul></div>
 

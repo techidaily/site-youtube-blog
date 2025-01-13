@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Use Google Trends to Come up with Video Ideas?\""
-date: 2024-08-16T05:51:04.941Z
-updated: 2024-08-17T05:51:04.941Z
+date: 2025-01-07T06:38:33.092Z
+updated: 2025-01-12T20:40:09.867Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _You’ll need to be signed into your Google account to use Google Trends._
 
 Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll see what’s trending in general – usually big news stories or things like sports finals. The data is laid out like this: at the top there are three ‘Featured Insights’. These are three of the most popular trending topics paired with graphs of their recent search traffic. Underneath these there will be a list of stories that are currently trending. You can click on them to see charts of their search data and links to where the stories are being covered online.
@@ -45,6 +49,10 @@ Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll
 Unless you do news or political commentary on your channel these probably aren’t topics you want to cover, but if you like to insert some topical references into your other videos then it’s still good to be aware of these things.
 
 To get information more relevant to your channel you’re going to have to do some filtering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
 
@@ -69,9 +77,6 @@ Once you have narrowed down your results you can just scroll through and pick ou
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
 
@@ -92,23 +97,20 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -129,21 +131,19 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -152,14 +152,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +165,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-expert-tips-on-producing-high-quality-facebook-video/"><u>[New] Expert Tips on Producing High-Quality Facebook Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-enhancing-youtube-visibility-with-tubebuddy/"><u>[New] In 2024, Enhancing YouTube Visibility with TubeBuddy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtubes-video-editor-integrating-tracks-into-your-videos/"><u>[New] In 2024, Mastering YouTube's Video Editor Integrating Tracks Into Your Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transforming-viewers-into-customers-youtubes-essential-5-tactics/"><u>[New] In 2024, Transforming Viewers Into Customers YouTube's Essential 5 Tactics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-viewership-volume-the-financial-impact-of-one-million-views/"><u>[New] In 2024, Viewership Volume The Financial Impact of One Million Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nlocking-the-secrets-behind-youtube-shorts-success-for-2024/"><u>[New] Unlocking the Secrets Behind YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-addressing-low-resolution-facebook-media-downloads/"><u>[Updated] 2024 Approved Addressing Low-Resolution Facebook Media Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-chuckle-fest-the-ultimate-list-of-hilarious-youtube-personalities/"><u>[Updated] 2024 Approved Chuckle Fest The Ultimate List of Hilarious YouTube Personalities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dominate-youtube-traffic-with-proficient-use-of-creator-studio/"><u>[Updated] 2024 Approved Dominate YouTube Traffic with Proficient Use of Creator Studio</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-2024s-best-camera-reviews-your-go-to-list/"><u>[Updated] 2024'S Best Camera Reviews Your Go-To List</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-az-screen-recorder-review-series-for-2024/"><u>[Updated] AZ Screen Recorder Review Series for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-pioneer-productions-leading-free-editors-on-android/"><u>[Updated] In 2024, Pioneer Productions Leading Free Editors on Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-scalable-earnings-via-youtube-beauty-channels/"><u>[Updated] In 2024, Scalable Earnings via YouTube Beauty Channels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-weaving-a-captivating-tiktok-closure-narrative/"><u>2024 Approved Weaving a Captivating TikTok Closure Narrative</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/visual-excellence-on-youtube-through-enhancements-for-2024/"><u>Audiovisual Excellence on YouTube Through Enhancements for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/el-naming-excellence-tips-and-strategies/"><u>Channel Naming Excellence Tips & Strategies</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/complete-guide-to-icom-type-libraries-streamline-your-data-management/"><u>Complete Guide to ICOM Type Libraries: Streamline Your Data Management</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/comprehensive-guide-to-adding-music-icons-in-instagram-posts/"><u>Comprehensive Guide to Adding Music Icons in Instagram Posts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-icloud-photo-stream-discover-7-effective-fixes-for-iphone-sync-problems/"><u>Revive Your iCloud Photo Stream: Discover 7 Effective Fixes for iPhone Sync Problems</u></a></li>
+</ul></div>
 

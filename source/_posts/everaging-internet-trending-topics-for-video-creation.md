@@ -1,7 +1,7 @@
 ---
 title: "[New] Leveraging Internet Trending Topics for Video Creation"
-date: 2024-08-16T05:49:11.135Z
-updated: 2024-08-17T05:49:11.135Z
+date: 2025-01-05T17:45:45.322Z
+updated: 2025-01-13T03:31:24.115Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Seeing The Big Picture
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
@@ -47,8 +51,9 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -58,9 +63,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -91,9 +93,6 @@ A [keyword is a word or short phrase](https://www.filmora.io/community-blog/the-
 Once you have a keyword in mind, type it into the Explore bar at the top of your page in Google Trends.
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
@@ -109,6 +108,10 @@ Next, what other words do I want to include in my video title? Is this a review,
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
 It’s pretty clear from the chart that ‘filmora review’ is the strongest of those 3 search terms. The title of my video should definitely start with the words **Filmora Review** because that is what most people are searching for when they want information about Filmora. Putting your most important keyword/search term first in your video titles will help them rank better in the viewer’s search results.
@@ -116,8 +119,9 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -130,19 +134,17 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -150,14 +152,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +165,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-visual-spectacle-becoming-a-reel-wizard/"><u>[New] 2024 Approved Instagram's Visual Spectacle Becoming a Reel Wizard</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>[New] In 2024, Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-navigating-through-hands-free-technological-advances/"><u>[New] Navigating Through Hands-Free Technological Advances</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-5-drone-friendly-vr-experiences/"><u>[New] Top 5 Drone-Friendly VR Experiences</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elite-visionaries-video-realm/"><u>[Updated] 2024 Approved Elite Visionaries Video Realm</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-digital-domination-worlds-top-10-video-content-kings-and-queens/"><u>[Updated] In 2024, Digital Domination World's Top 10 Video Content Kings & Queens</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elite-hdr-cameras-a-buyers-selection-guide/"><u>[Updated] In 2024, Elite HDR Cameras A Buyer's Selection Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-leading-tech-review-the-top-10-screen-recorders/"><u>[Updated] In 2024, Leading Tech Review The Top 10 Screen Recorders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-quick-step-by-step-guide-for-youtube-audio-in-imovie/"><u>[Updated] In 2024, Quick Step-by-Step Guide for YouTube Audio in iMovie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovating-video-streams-for-the-modern-gamer-on-youtube/"><u>[Updated] Innovating Video Streams for the Modern Gamer on Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-methods-to-validate-youtube-login/"><u>[Updated] Methods to Validate YouTube Login</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-top-15-no-cost-web-image-editors-review-for-2024/"><u>[Updated] Top 15 No-Cost Web Image Editors Review for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sonic-kickstarts-curated-playlist-powerhouses/"><u>2024 Approved Sonic Kickstarts Curated Playlist Powerhouses</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-todays-virtual-realty-hardware-exploration/"><u>2024 Approved Today’s Virtual Realty Hardware Exploration</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-you-get-fired-for-using-chatgpt-analyzing-10-possible-scenarios/"><u>Can You Get Fired for Using ChatGPT? Analyzing 10 Possible Scenarios</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-most-successful-profit-making-youtuber/"><u>In 2024, Most Successful Profit-Making YouTuber</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-ios-17-a-significant-improvement-over-the-previous-version/"><u>Is iOS 17 a Significant Improvement Over the Previous Version?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/g-the-way-to-success-with-professional-insights-into-youtube-banners-for-2024/"><u>Paving the Way to Success with Professional Insights Into YouTube Banners for 2024</u></a></li>
+</ul></div>
 

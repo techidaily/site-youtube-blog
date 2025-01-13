@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2025-01-03T16:54:55.674Z
-updated: 2025-01-06T16:35:18.511Z
+date: 2025-01-08T18:45:48.491Z
+updated: 2025-01-12T16:04:53.191Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,18 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -78,10 +74,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -95,7 +95,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -104,7 +104,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -166,24 +166,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ngaging-audiences-how-tos-for-effective-youtube-logo-creation-for-2024/"><u>[New] Engaging Audiences How-To's for Effective YouTube Logo Creation for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ow-to-smoothly-view-youtube-videos-without-borders/"><u>[New] How to Smoothly View YouTube Videos without Borders?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-get-your-hand-on-the-latest-50-youtube-promo-banners/"><u>[New] In 2024, Get Your Hand on the Latest 50 YouTube Promo Banners!</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-minimca-manorettes-simple-and-sleek-homes-in-mc-world/"><u>[New] In 2024, MiniMCA Manorettes Simple & Sleek Homes in MC World</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-share-process-with-youtube-and-fb-integration/"><u>[New] In 2024, Streamline Your Share Process with YouTube and FB Integration</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/isionary-video-planning-using-the-power-of-google-trends-for-2024/"><u>[New] Visionary Video Planning Using the Power of Google Trends for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-creating-an-individualistic-tiktok-identifier/"><u>[Updated] Creating an Individualistic TikTok Identifier</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-premier-media-transformer-mp4-)-fb/"><u>[Updated] In 2024, Premier Media Transformer MP4 -> FB</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-techniques-for-elevating-your-tiktok-unboxing-popularity-for-2024/"><u>[Updated] Techniques for Elevating Your TikTok Unboxing Popularity for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-path-from-hobbyist-to-profitable-video-blogger/"><u>[Updated] The Path From Hobbyist to Profitable Video Blogger</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-the-secrets-of-youtube-video-dimensions-and-resolution/"><u>[Updated] Unveiling the Secrets of YouTube Video Dimensions & Resolution</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-what-every-independent-youtuber-should-know-about-mcns-for-2024/"><u>[Updated] What Every Independent YouTuber Should Know About MCNs for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-monetization-value-per-million-views-for-2024/"><u>[Updated] Youtube's Monetization Value per Million Views for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/d-links-pl-2000-powerline-solution-evaluation-user-friendly-setup-lightning-fast-data-sharing/"><u>D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-champions-the-best-of-self-driving-car-manufacturing/"><u>Discover the Champions: The Best of Self-Driving Car Manufacturing</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/how-to-effortlessly-upgrade-your-hard-disk-expert-advice-by-yl-software-experts/"><u>How To Effortlessly Upgrade Your Hard Disk: Expert Advice by YL Software Experts</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-the-ultimate-guide-to-the-most-downloaded-iphone-apps/"><u>New 2024 Approved The Ultimate Guide to the Most Downloaded iPhone Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ram-revamp-enhancing-your-computer/"><u>RAM Revamp: Enhancing Your Computer</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ideal-narratives-distributed-among-8-movie-segments/"><u>[New] 2024 Approved Ideal Narratives Distributed Among 8 Movie Segments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-introduction-maker-apps-ios-vs-android-comparison/"><u>[New] Best Introduction Maker Apps IOS vs Android Comparison</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-assembling-channel-summaries-that-attract/"><u>[New] In 2024, Assembling Channel Summaries That Attract</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-mastering-laptop-screen-recording-a-dell-guide/"><u>[Updated] 2024 Approved Mastering Laptop Screen Recording A Dell Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-adjust-your-video-privacy-settings-for-2024/"><u>[Updated] Mastering YouTube Adjust Your Video Privacy Settings for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-speed-shots-and-stills-quicktime-techniques-for-samsung-users/"><u>[Updated] Speed Shots & Stills Quicktime Techniques for Samsung Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-mobile-apps-for-luts/"><u>2024 Approved Mastering Mobile Apps for LUTs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-share-a-podcast-on-instagram-story-or-post-for-2024/"><u>How to Share a Podcast on Instagram Story or Post for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Passcode Screen?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>In 2024, Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/mastering-file-conversion-seamlessly-changing-your-asf-videos-to-avi-format-with-an-all-inclusive-converter/"><u>Mastering File Conversion: Seamlessly Changing Your ASF Videos to AVI Format with an All-Inclusive Converter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uzzwords-for-vlogger-dialogues/"><u>New Buzzwords for Vlogger Dialogues</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ultimate-guide-to-the-best-dat-to-mp4-encoder-for-seamless-audio-and-video-file-transformation/"><u>Ultimate Guide to the Best DAT to MP4 Encoder for Seamless Audio and Video File Transformation</u></a></li>
 </ul></div>
 

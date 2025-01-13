@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Professional Thumbnail Tactics  Do's and Don'ts Guidebook\""
-date: 2025-01-01T17:07:56.973Z
-updated: 2025-01-06T17:12:16.817Z
+date: 2025-01-08T04:50:33.538Z
+updated: 2025-01-12T19:01:44.959Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,6 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -61,6 +57,10 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -83,7 +83,7 @@ It is always best to use a current photo of yourself. Many times viewers will go
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
@@ -106,6 +106,10 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -117,6 +121,10 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -138,24 +146,16 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,18 +179,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/nhancing-visuals-using-chroma-key-effectively-for-2024/"><u>[New] Enhancing Visuals Using Chroma Key Effectively for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-balancing-viral-potential-with-long-term-traction-in-videos/"><u>[New] In 2024, Balancing Viral Potential with Long-Term Traction in Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-new-horizons-best-6-instagram-reel-apps-for-2024/"><u>[New] Unlock New Horizons Best 6 Instagram Reel Apps for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-a-journey-beyond-top-10-global-explorer-channels/"><u>[Updated] 2024 Approved A Journey Beyond Top 10 Global Explorer Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-collaborative-video-workflows-for-content-growth/"><u>[Updated] 2024 Approved Collaborative Video Workflows for Content Growth</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-channel-traffic-with-youtube-backlink-tactics/"><u>[Updated] Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-craft-your-own-multitasking-masterpiece-with-these-15-tips-for-2024/"><u>[Updated] Craft Your Own Multitasking Masterpiece with These 15 Tips for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-excellent-10-drone-fleet-for-professional-photos-and-films/"><u>[Updated] Excellent 10-Drone Fleet for Professional Photos & Films</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-excellence-mirrorless-cameras-vs-traditional-dslrs/"><u>[Updated] Video Excellence Mirrorless Cameras vs Traditional DSLRs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-frolics-in-film-an-analytical-review-on-vhs/"><u>2024 Approved 'Frolics in Film' An Analytical Review on VHS</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-best-practices-for-identifying-premier-free-srt-translation-services/"><u>2024 Approved Best Practices for Identifying Premier Free SRT Translation Services</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-ghostly-movies-innovation-in-recorders/"><u>2024 Approved Ghostly Movies Innovation in Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/tangoing-turquoise-toucan-for-2024/"><u>Tangoing Turquoise Toucan for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[New] In 2024, Perfecting MP4 Segments Best Tools For Mac Filmmakers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-tales-that-echo-through-time-top-8-halls-for-storytellers/"><u>[New] In 2024, Tales That Echo Through Time Top 8 Halls for Storytellers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nside-look-at-vimeo-and-youtubes-market-strategies/"><u>[New] Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-decoding-youtubes-earning-rules-update/"><u>[Updated] 2024 Approved Decoding YouTube's Earning Rules Update</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ascending-with-aerial-artistry-9-top-editors-for-diverse-levels/"><u>[Updated] In 2024, Ascending with Aerial Artistry 9 Top Editors For Diverse Levels</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-elevating-presentations-with-adobe-captivate-skills/"><u>[Updated] In 2024, Elevating Presentations with Adobe Captivate Skills</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-seamless-mp4-to-fb-video-transfer-technology/"><u>[Updated] Seamless MP4-to-FB Video Transfer Technology</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-social-media-synergy-elevating-youtube-engagement-for-2024/"><u>[Updated] Social Media Synergy Elevating YouTube Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-guide-to-the-most-effective-youtube-marketing-tools/"><u>[Updated] Ultimate Guide to the Most Effective Youtube Marketing Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-sharing-platform-showdown-which-is-ideal-for-your-individual-usage/"><u>[Updated] Video Sharing Platform Showdown Which Is Ideal for Your Individual Usage?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhancing-social-media-impact-with-high-quality-360-facebook-content/"><u>2024 Approved Enhancing Social Media Impact with High-Quality 360 Facebook Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-learning-ranks-top-10-education-centric-channels/"><u>2024 Approved Learning Ranks Top 10 Education-Centric Channels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-obs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>In 2024, OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revolutionize-web-engagement-with-advanced-insights-from-our-cookiebot-platform/"><u>Revolutionize Web Engagement with Advanced Insights From Our Cookiebot Platform</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/schritt-fur-schritt-anleitung-zum-sicheren-speichern-alter-e-mails-in-outlook/"><u>Schritt-Für-Schritt-Anleitung Zum Sicheren Speichern Alter E-Mails in Outlook</u></a></li>
 </ul></div>
 

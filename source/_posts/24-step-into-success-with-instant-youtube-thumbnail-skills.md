@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Step Into Success with Instant YouTube Thumbnail Skills"
-date: 2024-08-16T05:47:23.283Z
-updated: 2024-08-17T05:47:23.283Z
+date: 2025-01-06T17:18:30.293Z
+updated: 2025-01-13T01:25:29.007Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -63,17 +67,33 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-unmatched-video-capture-selecting-the-best-pc-and-mac-recorder/"><u>[New] 2024 Approved Unmatched Video Capture Selecting the Best PC & Mac Recorder</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-skyrocketing-views-simple-strategies-without-cost/"><u>[New] In 2024, Skyrocketing Views Simple Strategies Without Cost</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-shorts-profitability-secrets/"><u>[New] In 2024, Youtube Shorts Profitability Secrets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-growing-engagement-ethically-youtube-success-stories/"><u>[Updated] 2024 Approved Growing Engagement Ethically YouTube Success Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-live-streaming-software-vs-hardware-which-is-better-in-2024/"><u>[Updated] Live Streaming Software Vs Hardware Which Is Better, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-money-making-enabling-youtube-monetization-for-mobile-devices-for-2024/"><u>[Updated] Mastering Money-Making Enabling YouTube Monetization for Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-soundscapes-in-hd-techniques-for-precision-recording-for-2024/"><u>[Updated] Soundscapes in HD Techniques for Precision Recording for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-compilation-techniques-for-posting-youtube-videos-on-facebook-for-2024/"><u>[Updated] The Ultimate Compilation Techniques for Posting YouTube Videos on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-exclusive-youtube-visuals-top-5-tools-reviewed-for-2024/"><u>[Updated] Unlock Exclusive YouTube Visuals – Top 5 Tools Reviewed for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-love-lines-a-modern-approach-to-mates/"><u>ChatGPT Love Lines: A Modern Approach to Mates</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-tecno-pop-7-pro-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Tecno Pop 7 Pro FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-v27e-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Vivo V27e Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastery-in-free-graphics-top-online-resource-directory/"><u>In 2024, Mastery in FREE Graphics Top Online Resource Directory</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-your-go-to-list-asmr-on-phone-platforms/"><u>In 2024, Your Go-To List ASMR on Phone Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/investigating-the-economics-of-t-series-on-youtube/"><u>Investigating the Economics of T-Series on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-instagram-reel-creating-stunning-slow-motion-content-for-2024/"><u>Mastering Instagram Reel Creating Stunning Slow-Motion Content for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-next-gen-gadgets-with-expertise-from-toms-hardware-central/"><u>Navigating Next-Gen Gadgets with Expertise From Tom's Hardware Central</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ower-play-joining-a-music-company-network-in-the-age-of-streaming-for-2024/"><u>The Power Play Joining a Music Company Network in the Age of Streaming for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-walkthrough-for-using-nvidias-cutting-edge-rtx-ai-chatbot-at-home/"><u>The Ultimate Walkthrough for Using Nvidia's Cutting-Edge RTX AI Chatbot at Home</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->

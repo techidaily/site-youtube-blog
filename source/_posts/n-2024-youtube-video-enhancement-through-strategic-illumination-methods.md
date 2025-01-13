@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, YouTube Video Enhancement Through Strategic Illumination Methods"
-date: 2024-08-16T05:51:16.935Z
-updated: 2024-08-17T05:51:16.935Z
+date: 2025-01-07T21:18:49.642Z
+updated: 2025-01-12T22:15:18.062Z
 tags:
   - ai video
   - ai youtube
@@ -46,8 +46,9 @@ The best thing about window lighting is that it’s free. The worst thing about 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
@@ -58,22 +59,24 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
@@ -83,10 +86,6 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -95,8 +94,9 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -112,8 +112,9 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +136,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ro-gamers-and-casters-to-subscribe-now-for-2024/"><u>[New] Pro Gamers & Casters to Subscribe Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-guide-to-free-youtube-intros-and-templates/"><u>[New] The Ultimate Guide to Free YouTube Intros & Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-rated-free-tools-to-extract-youtube-text-tracks-for-2024/"><u>[New] Top-Rated Free Tools to Extract YouTube Text Tracks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-quick-start-guide-to-lunapic-professionalism/"><u>[Updated] 2024 Approved Quick-Start Guide to LunaPic Professionalism</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-news-end-credits-a-step-by-step-guide-for-2024/"><u>[Updated] Crafting News End Credits A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leverage-audience-engagement-through-strategic-posting-for-2024/"><u>[Updated] Leverage Audience Engagement Through Strategic Posting for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-prime-liking-article-headliner-for-2024/"><u>[Updated] Prime Liking Article Headliner for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-thrifty-shopping-for-cameras-the-most-economical-lists-under-100-for-2024/"><u>[Updated] Thrifty Shopping for Cameras The Most Economical Lists Under $100 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-visual-voice-choir-discovering-video-driven-music-for-2024/"><u>[Updated] Visual Voice Choir Discovering Video-Driven Music for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-oppo-a78-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Oppo A78 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/comprehensive-overview-how-windows-defender-safeguards-your-pc-against-cyber-risks-expert-insights-by-yl-computing/"><u>Comprehensive Overview: How Windows Defender Safeguards Your PC Against Cyber Risks - Expert Insights by YL Computing</u></a></li>
+<li><a href="https://windows11.techidaily.com/seamless-activation-of-windows-11s-dialer/"><u>Seamless Activation of Windows 11'S Dialer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/akeup-mavens-handbook-youtube-edition-for-2024/"><u>The Makeup Maven’s Handbook YouTube Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/traps-in-transparency-when-ux-betrays-trust/"><u>Traps in Transparency: When UX Betrays Trust</u></a></li>
+</ul></div>
 

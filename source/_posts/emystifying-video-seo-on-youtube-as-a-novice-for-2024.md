@@ -1,7 +1,7 @@
 ---
 title: "[New] Demystifying Video SEO on YouTube as a Novice for 2024"
-date: 2024-08-16T05:48:55.876Z
-updated: 2024-08-17T05:48:55.876Z
+date: 2025-01-09T04:53:15.784Z
+updated: 2025-01-13T05:56:45.725Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
@@ -156,9 +160,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -193,6 +194,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -202,9 +207,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -214,14 +216,15 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -230,8 +233,9 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
@@ -257,16 +261,13 @@ If you treat SEO as an afterthought, only after your video is created, you are n
 Besides considering YouTube SEO, you should make a good YouTube video as well. Filmora is a powerful video editing software that features lots of templates and effects. Get the free trial version below and have a try today.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -275,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -291,4 +289,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-curated-collection-of-the-best-9-cross-device-video-calls-androidiphone-for-2024/"><u>[New] Curated Collection of the Best 9 Cross-Device Video Calls (Android/iPhone) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-auto-arcade-adventures-for-kids-for-2024/"><u>[Updated] Auto Arcade Adventures for Kids for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unleashing-potential-a-treasury-of-youtube-themes-for-channels/"><u>[Updated] In 2024, Unleashing Potential A Treasury of YouTube Themes for Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>[Updated] In 2024, Unveil Exclusive Video Snippets – All at Zero Cost</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-foundations-of-a-youtube-venture-a-comprehensive-guide/"><u>[Updated] The Foundations of a YouTube Venture A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-gross-revenue-for-a-mil-viewer-spectacle/"><u>[Updated] Youtube's Gross Revenue for a Mil Viewer Spectacle</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-seamless-sound-transfer-top-10-youtube-to-mp3-picks/"><u>2024 Approved Seamless Sound Transfer Top 10 YouTube to Mp3 Picks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/come-trasformare-i-file-webm-in-mp4-con-alta-definizione-su-windows-1011-ed-mac-os-x-tutorial-dettagliato/"><u>Come Trasformare I File WebM in MP4 Con Alta Definizione Su Windows 10/11 Ed Mac OS X: Tutorial Dettagliato</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-upgrades-in-the-latest-apple-airpods-gen-3-with-zdnets-in-depth-analysis/"><u>Exploring the Upgrades in the Latest Apple AirPods (Gen 3) with ZDNET's In-Depth Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ic-portrayal-of-future-social-momentum/"><u>Graphic Portrayal of Future Social Momentum</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-oppo-find-x7-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Oppo Find X7 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-versions-of-windows-movie-maker/"><u>In 2024, Versions of Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-world-of-youtube-live-visuals-for-2024/"><u>Navigating the World of YouTube Live Visuals for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-realme-narzo-60x-5g-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Realme Narzo 60x 5G.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-xs-max-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone XS Max Prevention & Solution</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-potential-in-5-second-videos-for-2024/"><u>Unlocking Potential in 5-Second Videos for 2024</u></a></li>
+</ul></div>
 
