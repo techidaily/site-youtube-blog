@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engaging Viewers with Ease  The Art of Confidently Filming for 2024\""
-date: 2025-01-11T22:19:03.629Z
-updated: 2025-01-13T01:39:17.319Z
+date: 2025-01-13T20:23:14.907Z
+updated: 2025-01-18T20:28:50.035Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -55,10 +59,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -68,7 +68,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -91,6 +91,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -102,7 +106,7 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
@@ -114,10 +118,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -143,11 +143,11 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -170,18 +170,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-discover-these-popular-periscope-alternatives-on-smartphones/"><u>[New] Discover These Popular Periscope Alternatives on Smartphones</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ffortless-subtitling-and-cc-addition-techniques-for-youtube-users/"><u>[New] Effortless Subtitling & CC Addition Techniques for YouTube Users</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ow-to-convert-youtube-to-mp4-safely-step-by-step-guide/"><u>[New] How to Convert YouTube to MP4 Safely? [Step by Step Guide]</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-digital-drama-videoviral-sagas-unfold-online/"><u>[Updated] 2024 Approved Digital Drama #VideoViral Sagas Unfold Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-enhance-interaction-share-your-custom-youtube-playlist/"><u>[Updated] 2024 Approved Enhance Interaction Share Your Custom YouTube Playlist</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-leading-with-visuals-setting-up-premium-cover-videos-on-fb/"><u>[Updated] 2024 Approved Leading With Visuals Setting Up Premium Cover Videos on FB</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>[Updated] Boosting Your Content Quality Essential Tips for YouTube Users</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-pro-streaming-setup-leading-livestream-hardware-and-software-for-2024/"><u>[Updated] Pro Streaming Setup Leading Livestream Hardware and Software for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beyond-chatgpt-unveiling-4-impressive-qualities-of-the-claude-ai-chatbot/"><u>Beyond ChatGPT: Unveiling 4 Impressive Qualities of the Claude AI Chatbot</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nubia-red-magic-9-proplus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nubia Red Magic 9 Pro+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-futures-best-on-display-premium-video-cameras-in-2-written-by-michael-a-risley/"><u>In 2024, Future's Best on Display Premium Video Cameras in 2 Written by Michael A. Risley</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-pictorial-insight-mastery-of-vsco-tools/"><u>In 2024, Pictorial Insight Mastery of VSCO Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winx-dvd-video-software-purchase-faqs-essential-answers-for-informed-shopping-decisions/"><u>WinX DVD Video Software Purchase FAQs: Essential Answers for Informed Shopping Decisions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-a-list-of-ten-soaring-youtube-creations-with-speed-and-purpose/"><u>[New] 2024 Approved A List of Ten Soaring YouTube Creations with Speed and Purpose</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-breezing-through-igtv-acquisition-on-smartphones-and-tablets/"><u>[New] 2024 Approved Breezing Through IGTV Acquisition on Smartphones and Tablets</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-engine-power-clash-thieye-t5-against-jcb-xs30-in-2024/"><u>[New] Engine Power Clash Thieye T5 Against JCB XS30, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-leading-edge-in-film-making-equipment-top-10-list/"><u>[New] In 2024, The Leading Edge in Film-Making Equipment - Top 10 List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aking-youtube-intros-interesting-without-costing-a-dime-for-2024/"><u>[New] Making YouTube Intros Interesting Without Costing a Dime for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-eco-film-frameworks-unlimited-free-template-access-for-pros-and-amateurs-for-2024/"><u>[Updated] Eco-Film Frameworks Unlimited Free Template Access for Pros & Amateurs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mobile-youtube-watching-iphone-and-android-edition/"><u>[Updated] In 2024, Mobile YouTube Watching IPhone & Android Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-prime-editing-choosing-the-best-for-youtube/"><u>[Updated] In 2024, Prime Editing Choosing the Best For YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infuse-rhythm-to-instagram-music-guide/"><u>2024 Approved Infuse Rhythm to Instagram Music Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-navigating-the-complexities-of-youtube-copyright-claims/"><u>2024 Approved Navigating the Complexities of YouTube Copyright Claims</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/efficiently-producing-quality-videos-on-the-latest-windows-os/"><u>Efficiently Producing Quality Videos on the Latest Windows OS</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-y17s-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo Y17s | Dr.fone</u></a></li>
 </ul></div>
 

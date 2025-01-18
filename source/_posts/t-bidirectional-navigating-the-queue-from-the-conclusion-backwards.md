@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YT Bidirectional  Navigating the Queue From the Conclusion Backwards\""
-date: 2025-01-05T16:49:19.483Z
-updated: 2025-01-12T20:52:47.186Z
+date: 2025-01-11T16:08:52.732Z
+updated: 2025-01-18T18:20:57.832Z
 tags:
   - ai video
   - ai youtube
@@ -27,13 +27,13 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Reverse a YouTube Playlist?
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using Chrome Web Extension
 
@@ -47,7 +47,7 @@ Step 1: In the first step, launch a browser on your computer and click the three
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2:
@@ -70,19 +70,15 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
-That's about it. You will now be able to watch a YouTube playlist in reverse order.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
 ### Using The Third Website
 
@@ -128,6 +124,10 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
@@ -135,7 +135,7 @@ Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -165,22 +165,22 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-entrepreneurs-blueprint-for-profiting-from-video-content/"><u>[New] In 2024, The Entrepreneur's Blueprint for Profiting From Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/recision-in-performance-utilizing-social-blade-for-youtube-data-for-2024/"><u>[New] Precision in Performance Utilizing Social Blade for YouTube Data for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-best-practices-for-leveraging-b-roll-content-for-2024/"><u>[Updated] Best Practices for Leveraging B-Roll Content for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-authentic-audience-growth-tricks-for-sustainable-views/"><u>[Updated] In 2024, Authentic Audience Growth Tricks for Sustainable Views</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-comprehensive-coverage-coalition-picking-an-mcn/"><u>[Updated] In 2024, Comprehensive Coverage Coalition Picking an MCN</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-legal-landscapes-understanding-youtube-and-cc-divergences/"><u>[Updated] In 2024, Legal Landscapes Understanding YouTube & CC Divergences</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-vector-magic-discovering-the-10-software-picks-you-need/"><u>[Updated] In 2024, Vector Magic Discovering the 10 Software Picks You Need</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-investigating-the-financial-benefits-of-each-youtube-watcher/"><u>2024 Approved Investigating the Financial Benefits of Each YouTube Watcher</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>2024 Approved Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-tecno-pop-8-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Tecno Pop 8 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/free-and-open-top-7-laptop-dvd-player-software-options-for-2024/"><u>Free & Open Top 7 Laptop DVD Player Software Options for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-logitech-driving-software-for-windows-systems/"><u>Get the Latest Logitech Driving Software for Windows Systems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/google-play-setup-a-comprehensible-path/"><u>Google Play Setup: A Comprehensible Path</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-realme-gt-3-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Realme GT 3 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-y200e-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo Y200e 5G online without jailbreak</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-nubia-red-magic-9-proplus-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Nubia Red Magic 9 Pro+.</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rt-of-video-cutting-and-compiling-in-studio/"><u>The Art of Video Cutting and Compiling in Studio</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/smr-audio-excellence-high-quality-mic-recommendations/"><u>[New] ASMR Audio Excellence High-Quality Mic Recommendations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-comedy-chorus-satirical-song-selections/"><u>[New] In 2024, Comedy Chorus Satirical Song Selections</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easy-techniques-for-archiving-screen-conversations/"><u>[New] In 2024, Easy Techniques for Archiving Screen Conversations</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-harmony-hub-tech-evolution/"><u>[New] In 2024, Harmony Hub Tech Evolution</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-high-quality-audio-collections-a-youtube-creators-guidebook/"><u>[New] In 2024, High-Quality Audio Collections A YouTube Creator's Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-trailblazer-in-multimedia-craftsmanship/"><u>[New] In 2024, Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-turn-viewers-into-cashflow-your-online-income-plan/"><u>[New] In 2024, Turn Viewers Into Cashflow Your Online Income Plan</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-creme-de-la-creme-live-streaming-services-for-2024/"><u>[New] The Crème De La Créme Live Streaming Services for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-cutting-edge-techniques-youtube-trailers-through-filmoras-lens-for-2024/"><u>[Updated] Cutting Edge Techniques YouTube Trailers Through Filmora's Lens for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-leading-free-art-pages-for-easy-no-cost-illustrations/"><u>[Updated] Leading Free Art Pages for Easy, No-Cost Illustrations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamlessly-transferring-youtube-videos-to-your-instagram-account-for-2024/"><u>[Updated] Seamlessly Transferring YouTube Videos to Your Instagram Account for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-create-animated-bouncing-text-2-ways/"><u>2024 Approved How to Create Animated Bouncing Text [2 Ways]</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beyond-code-the-story-of-virtual-reality-for-2024/"><u>Beyond Code The Story of Virtual Reality for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/buy-professional-macx-video-converter-get-the-ultimate-version/"><u>Buy Professional MacX Video Converter - Get the Ultimate Version!</u></a></li>
+<li><a href="https://games-able.techidaily.com/classic-psp-gaming-in-your-iphone-palms/"><u>Classic PSP Gaming in Your iPhone Palms</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-apple-iphone-15-pro-max-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock Apple iPhone 15 Pro Max Without Passcode Now</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-honor-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Honor FRP</u></a></li>
 </ul></div>
 

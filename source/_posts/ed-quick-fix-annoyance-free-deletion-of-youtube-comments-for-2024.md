@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Fix  Annoyance-Free Deletion of Youtube Comments for 2024\""
-date: 2025-01-06T04:01:00.497Z
-updated: 2025-01-13T03:01:28.609Z
+date: 2025-01-17T19:32:06.290Z
+updated: 2025-01-18T22:14:06.264Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -61,6 +65,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -109,7 +117,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -121,16 +129,12 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -139,10 +143,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -150,7 +150,7 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,22 +174,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-sounds-ownership-policy/"><u>[New] In 2024, Instagram Sounds Ownership Policy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-sparking-viewers-interest-top-youtube-themes-for-channels/"><u>[New] In 2024, Sparking Viewers' Interest Top YouTube Themes for Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ho-earns-more-in-the-video-market-dailymovement-vs-youtube/"><u>[New] Who Earns More in the Video Market? DailyMovement Vs YouTube</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-augmented-commerce-frontiers/"><u>[Updated] Augmented Commerce Frontiers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-full-breakdown-gopro-slr4-silver-edition-for-2024/"><u>[Updated] Full Breakdown GoPro SLR4 Silver Edition for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ensuring-effective-monetization-strategies-for-yt-channels/"><u>[Updated] In 2024, Ensuring Effective Monetization Strategies for YT Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-media-analysis-evaluating-your-vs-opponents-youtube-content/"><u>[Updated] In 2024, Mastering Media Analysis Evaluating Your Vs. Opponents' YouTube Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-speed-masterclass-turning-images-into-attention-grabbing-youtube-thumbnails-for-2024/"><u>[Updated] Speed Masterclass Turning Images Into Attention-Grabbing YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ver-top-platforms-for-youtube-brand-partnerships-for-2024/"><u>Discover Top Platforms for YouTube Brand Partnerships for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/sive-mcb-logo-designs-and-templates-for-2024/"><u>Exclusive MCB Logo Designs and Templates for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oneplus-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on OnePlus online without jailbreak</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Tecno Spark 20C? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s24-ultra-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S24 Ultra Bootloader Easily</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-thumbnails-the-20-most-recommended-youtube-fonts/"><u>Thriving Thumbnails The 20 Most Recommended YouTube Fonts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-outlook-steps-to-rectify-a-malfunctioning-spell-checker/"><u>Troubleshooting Outlook: Steps to Rectify a Malfunctioning Spell Checker</u></a></li>
-<li><a href="https://article-tips.techidaily.com/youtube-comment-discovery-a-step-by-step-walkthrough/"><u>YouTube Comment Discovery A Step-by-Step Walkthrough</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/youtube-income-mastery-latest-policy-guide-for-2024/"><u>YouTube Income Mastery Latest Policy Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-deleting-youtube-comments/"><u>[Updated] In 2024, Deleting YouTube Comments</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-first-rate-biodegradable-filming-gear-tutorials/"><u>[Updated] In 2024, First-Rate Biodegradable Filming Gear Tutorials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pioneering-digital-storytelling-youtubes-filmmaking-pathway/"><u>[Updated] Pioneering Digital Storytelling YouTube's Filmmaking Pathway</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-shopping-insights-into-youtube-paychecks/"><u>[Updated] Transforming Shopping Insights Into YouTube Paychecks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-editors-workshop-enhancing-your-youtube-video-visibility/"><u>2024 Approved Editor's Workshop Enhancing Your Youtube Video Visibility</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-shield-yourself-from-online-commercial-floods/"><u>2024 Approved How to Shield Yourself From Online Commercial Floods</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-realme-gt-5-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavijpgjpeg/"><u>Movaviの無料ウェブベースJPG・JPEGへの容易な画像コンバート – 自己提侰ジョブ</u></a></li>
+<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-honor-x8b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/omplete-guide-to-assembling-youtube-music-collections-onlineapp-wise/"><u>The Complete Guide to Assembling YouTube Music Collections Online/App-Wise</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-guide-resolving-issues-with-your-non-responsive-macbook-pro-keys/"><u>Troubleshooting Guide: Resolving Issues with Your Non-Responsive MacBook Pro Keys</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-pixel-7a-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Pixel 7a.</u></a></li>
 </ul></div>
 

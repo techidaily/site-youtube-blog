@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Inner Workings of YouTube's System After an Upload"
-date: 2025-01-09T02:41:58.856Z
-updated: 2025-01-13T06:58:18.225Z
+date: 2025-01-17T16:41:49.291Z
+updated: 2025-01-18T20:10:49.646Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -91,20 +91,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-from-online-video-beats-to-your-phones-ringtones-a-simple-guide/"><u>[New] From Online Video Beats to Your Phone's Ringtones A Simple Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-increase-click-through-with-best-youtube-thumbnail-fonts/"><u>[New] In 2024, Increase Click-Through with Best YouTube Thumbnail Fonts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-top-picks-the-best-10-recorders-for-podcasting/"><u>[New] In 2024, Top Picks The Best 10 Recorders for Podcasting</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/r-beast-net-worth-overview-for-2024/"><u>[New] Mr. Beast Net Worth Overview for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-pioneering-profit-navigating-the-path-to-money-making-on-vimeo/"><u>[New] Pioneering Profit Navigating the Path to Money-Making on Vimeo</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-overhauen-uncovering-hidden-shorts-content/"><u>[Updated] 2024 Approved Overhauen Uncovering Hidden Shorts Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-viral-vibrancy-trending-audio-amplifying-your-yt-shorts/"><u>[Updated] In 2024, Viral Vibrancy Trending Audio Amplifying Your YT Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-optimal-gameplay-tools-on-the-big-screen/"><u>[Updated] Optimal Gameplay Tools on the Big Screen</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-synchronize-content-releases-with-audience-activity-cycles/"><u>2024 Approved Synchronize Content Releases with Audience Activity Cycles</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-apple-iphone-14-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On Apple iPhone 14? How to Fix it?</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/high-resolution-hd-wallpaper-collection-premium-wide-screensaver-imagery-yl-computing-by-yl-software/"><u>High-Resolution HD Wallpaper Collection: Premium Wide Screensaver Imagery - YL Computing by YL Software</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-pro-max-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Pro Max to other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/nubia-red-magic-9-pro-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nubia Red Magic 9 Pro Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/strategizing-the-open-door-to-market-success/"><u>Strategizing the Open Door to Market Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-building-a-sustainable-income-via-youtube-and-adsense/"><u>[New] 2024 Approved Building a Sustainable Income via YouTube and AdSense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-seamless-video-transfer-from-youtube-to-instagram/"><u>[New] 2024 Approved Seamless Video Transfer From YouTube to Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-facetune-manual-for-perfected-2024-pics/"><u>[New] The Ultimate Facetune Manual for Perfected 2024 Pics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-free-6-best-youtube-to-mp3-downloader-for-android/"><u>[Updated] In 2024, FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-unveiling-intova-xs-action-potential/"><u>2024 Approved Unveiling Intova X's Action Potential</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-income-101-from-ideas-to-earnings-in-action/"><u>2024 Approved YouTube Income 101 From Ideas to Earnings in Action</u></a></li>
+<li><a href="https://howto.techidaily.com/asus-rog-phone-8-pro-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Asus ROG Phone 8 Pro Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/own-catch-more-the-best-url-reducers-for-youtube-for-2024/"><u>Cut Down, Catch More The Best URL Reducers for YouTube for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/from-compression-to-clarity-the-zip-srt-conversion-for-2024/"><u>From Compression to Clarity The ZIP-SRT Conversion for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-12-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/improve-connectivity-free-csr-bluetooth-drivers-downloads-at-hand/"><u>Improve Connectivity: Free CSR Bluetooth Drivers Downloads at Hand!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ultimate-titanbinge-kodi-add-on-step-by-step-installation-and-customization-guide/"><u>Ultimate TitanBinge Kodi Add-On: Step-by-Step Installation & Customization Guide</u></a></li>
 </ul></div>
 

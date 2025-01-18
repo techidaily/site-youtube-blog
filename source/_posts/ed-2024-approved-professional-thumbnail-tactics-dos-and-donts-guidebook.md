@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Professional Thumbnail Tactics  Do's and Don'ts Guidebook\""
-date: 2025-01-08T04:50:33.538Z
-updated: 2025-01-12T19:01:44.959Z
+date: 2025-01-16T22:56:13.984Z
+updated: 2025-01-18T22:45:12.298Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -59,7 +63,7 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
@@ -78,13 +82,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -106,10 +110,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -121,10 +121,6 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -146,6 +142,10 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -155,7 +155,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,22 +179,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[New] In 2024, Perfecting MP4 Segments Best Tools For Mac Filmmakers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-tales-that-echo-through-time-top-8-halls-for-storytellers/"><u>[New] In 2024, Tales That Echo Through Time Top 8 Halls for Storytellers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nside-look-at-vimeo-and-youtubes-market-strategies/"><u>[New] Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-decoding-youtubes-earning-rules-update/"><u>[Updated] 2024 Approved Decoding YouTube's Earning Rules Update</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ascending-with-aerial-artistry-9-top-editors-for-diverse-levels/"><u>[Updated] In 2024, Ascending with Aerial Artistry 9 Top Editors For Diverse Levels</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-elevating-presentations-with-adobe-captivate-skills/"><u>[Updated] In 2024, Elevating Presentations with Adobe Captivate Skills</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-seamless-mp4-to-fb-video-transfer-technology/"><u>[Updated] Seamless MP4-to-FB Video Transfer Technology</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-social-media-synergy-elevating-youtube-engagement-for-2024/"><u>[Updated] Social Media Synergy Elevating YouTube Engagement for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-guide-to-the-most-effective-youtube-marketing-tools/"><u>[Updated] Ultimate Guide to the Most Effective Youtube Marketing Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-sharing-platform-showdown-which-is-ideal-for-your-individual-usage/"><u>[Updated] Video Sharing Platform Showdown Which Is Ideal for Your Individual Usage?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhancing-social-media-impact-with-high-quality-360-facebook-content/"><u>2024 Approved Enhancing Social Media Impact with High-Quality 360 Facebook Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-learning-ranks-top-10-education-centric-channels/"><u>2024 Approved Learning Ranks Top 10 Education-Centric Channels</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Tecno Phantom V Fold? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-obs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>In 2024, OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/revolutionize-web-engagement-with-advanced-insights-from-our-cookiebot-platform/"><u>Revolutionize Web Engagement with Advanced Insights From Our Cookiebot Platform</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/schritt-fur-schritt-anleitung-zum-sicheren-speichern-alter-e-mails-in-outlook/"><u>Schritt-Für-Schritt-Anleitung Zum Sicheren Speichern Alter E-Mails in Outlook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevating-your-earning-game-with-youtube-monetization-strategies/"><u>[New] 2024 Approved Elevating Your Earning Game with YouTube Monetization Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-achieve-the-perfect-look-youtubes-guide-to-video-aspect-ratios/"><u>[New] In 2024, Achieve the Perfect Look YouTube's Guide to Video Aspect Ratios</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-distinctive-digital-monikers-for-video-creators/"><u>[New] In 2024, Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-inside-their-secrets-top-10-youtube-beauty-gurus-you-need-to-see/"><u>[Updated] 2024 Approved Inside Their Secrets Top 10 YouTube Beauty Gurus You Need to See</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-audio-modification-methods-for-youtube-stars/"><u>[Updated] Best Audio Modification Methods for YouTube Stars</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-decoding-aspect-ratios-for-effective-youtube-videos/"><u>[Updated] In 2024, Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/embracing-a-smarter-home-key-considerations-and-actionable-steps-for-transformation/"><u>Embracing a Smarter Home: Key Considerations & Actionable Steps for Transformation</u></a></li>
+<li><a href="https://some-tips.techidaily.com/find-your-tech-match-comparing-chromebooks-and-laptops-for-optimal-performance/"><u>Find Your Tech Match: Comparing Chromebooks and Laptops for Optimal Performance</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-the-missing-touchpad-driver-dilemma/"><u>Fixing the Missing Touchpad Driver Dilemma</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-poco-c50-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Poco C50 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/e-account-integration-for-private-youtube-video-sharing-for-2024/"><u>Google Account Integration for Private YouTube Video Sharing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-for-educators-maximizing-its-classroom-potential/"><u>In 2024, YouTube for Educators Maximizing Its Classroom Potential</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-trending-hashtags-on-instagram-to-boost-your-visibility/"><u>Top Trending Hashtags on Instagram to Boost Your Visibility</u></a></li>
 </ul></div>
 

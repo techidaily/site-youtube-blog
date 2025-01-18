@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Quick Guide to Free YouTube Closure Creation for 2024"
-date: 2024-08-08T16:30:37.586Z
-updated: 2024-08-09T16:30:37.586Z
+date: 2025-01-15T22:55:31.994Z
+updated: 2025-01-18T22:09:12.161Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/46a1cbcc9f3ef94937263b6008c9b5073cf79aa9d
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/46a1cbcc9f3ef94937263b6008c9b5073cf79aa9d
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,11 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +147,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-affordable-video-grabbing-tools-tested-on-pcs-for-2024/"><u>[New] Affordable Video Grabbing Tools Tested on PCs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-free-templates-for-sustainable-storytelling/"><u>[Updated] In 2024, Free Templates for Sustainable Storytelling</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-merging-youtube-with-imovie-a-soundtrack-journey/"><u>[Updated] In 2024, Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-attention-retention-on-youtube-with-these-6-tactics/"><u>[Updated] Mastering the Art of Attention Retention on YouTube with These 6 Tactics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-view-count-faster-discover-the-most-effective-shortcuts-for-2024/"><u>[Updated] Maximizing View Count Faster Discover the Most Effective Shortcuts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-income-calculating-adsense-per-1k-viewer-for-2024/"><u>[Updated] Unlocking YouTube Income Calculating AdSense Per 1K Viewer for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-reaping-health-rewards-from-asmrs-embrace/"><u>2024 Approved Reaping Health Rewards From ASMR's Embrace</u></a></li>
+<li><a href="https://some-tips.techidaily.com/comprehensive-guide-to-leading-compact-tablets-of-2nplusd-endorsed-by-industry-experts/"><u>Comprehensive Guide to Leading Compact Tablets of 2N+d, Endorsed by Industry Experts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/htful-digests-a-list-of-top-food-channels-for-2024/"><u>Delightful Digests A List of Top Food Channels for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-surface-book-2-drivers-a-simple-guide/"><u>Download and Update Surface Book 2 Drivers: A Simple Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-se-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone SE Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hp-victus-15-gaming-laptop-sale-alert-snatch-it-for-just-515-during-the-ultimate-best-buy-prime-day-offer-tips/"><u>HP Victus 15 Gaming Laptop Sale Alert! Snatch It for Just $515 During the Ultimate Best Buy Prime Day Offer - Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-video-performance-following-the-path-of-stars/"><u>In 2024, Elevate Video Performance Following the Path of Stars</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934344-9781800652392-manifest-your-everything/"><u>Manifest Your Everything | Free Book</u></a></li>
+</ul></div>
 

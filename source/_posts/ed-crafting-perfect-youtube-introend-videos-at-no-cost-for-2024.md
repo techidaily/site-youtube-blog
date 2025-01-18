@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Perfect YouTube Intro/End Videos at No Cost for 2024"
-date: 2025-01-10T03:25:44.758Z
-updated: 2025-01-13T04:07:03.214Z
+date: 2025-01-17T22:49:35.687Z
+updated: 2025-01-18T21:58:07.289Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/a2a04cdf466fbea2e01b9f9b4e0e053a2190bbd1c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,20 +154,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-clearing-process-for-youtubes-pending-video-list/"><u>[New] Clearing Process for YouTube's Pending Video List</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-multimedia-strategies-for-gamers-on-youtube/"><u>[New] In 2024, Mastering Multimedia Strategies for Gamers on Youtube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimize-youtube-creations-a-guide-to-high-quality-visuals/"><u>[New] In 2024, Optimize YouTube Creations A Guide to High-Quality Visuals</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-8-camera-showdown-excellence-in-broadcasting/"><u>[New] In 2024, Ultimate 8 Camera Showdown Excellence in Broadcasting</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-journey-to-joyrides-top-housing-ideas-for-new-players-for-2024/"><u>[New] Journey to Joyrides Top Housing Ideas for New Players for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-understanding-vimeo-online-movie-marketplace/"><u>[New] Understanding Vimeo Online Movie Marketplace</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-capture-clash-comparing-the-latest-gopro-and-virb-models-for-2024/"><u>[Updated] Capture Clash Comparing the Latest GoPro and VIRB Models for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-download-youtube-videos-on-android-9-powerful-apps-compared/"><u>[Updated] In 2024, Download YouTube Videos on Android 9 Powerful Apps Compared</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/conquer-flickering-visual-vexations/"><u>Conquer Flickering Visual Vexations</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-how-to-transform-smartphone-capabilities-into-a-professional-yt-channel/"><u>In 2024, How to Transform Smartphone Capabilities Into a Professional YT Channel</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-navigating-copyright-on-youtube-and-cc/"><u>In 2024, Navigating Copyright on YouTube & CC</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/quick-and-easy-steps-for-photos-in-your-instagram-gallery/"><u>Quick and Easy Steps for Photos in Your Instagram Gallery</u></a></li>
-<li><a href="https://win-bits.techidaily.com/two-methods-for-transferring-data-from-one-nvme-drive-to-another-on-windows-pcs/"><u>Two Methods for Transferring Data From One NVMe Drive to Another on Windows PCs</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-navigating-the-best-free-browser-based-daw-platforms-for-enhanced-audio-creation-2023-edition/"><u>Updated In 2024, Navigating the Best FREE Browser-Based DAW Platforms for Enhanced Audio Creation - 2023 Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/stocks-your-screen-ideal-youtube-groups-for-2024/"><u>Your Stocks, Your Screen Ideal YouTube Groups for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-constructing-compelling-channel-overviews/"><u>[New] 2024 Approved Constructing Compelling Channel Overviews</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-tripod-utilization-for-improved-vlogs/"><u>[New] In 2024, Mastering the Art of Tripod Utilization for Improved Vlogs</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-timing-translation-from-20mb-to-seconds-measurement/"><u>[New] Timing Translation From 20Mb to Seconds Measurement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-viewers-into-livelihood-with-right-numbers-for-2024/"><u>[Updated] Transforming Viewers Into Livelihood with Right Numbers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-data-to-drama-utilizing-google-trends-in-video-planning/"><u>2024 Approved From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crushing-through-the-0x800f0831-windows-barrier/"><u>Crushing Through the 0X800F0831 Windows Barrier</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-a24-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy A24 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/leading-cloud-service-providers-unveiled-in-depth-expert-evaluations-bytehub/"><u>Leading Cloud Service Providers Unveiled: In-Depth Expert Evaluations | ByteHub</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/msi-dragoncenter-not-responding-discover-proven-fixes-to-restore-functionality/"><u>MSI DragonCenter Not Responding? Discover Proven Fixes to Restore Functionality</u></a></li>
+<li><a href="https://discover-great.techidaily.com/top-3-ottimi-software-di-conversione-video-in-4k-pc-e-mac-da-4k-a-1080p/"><u>Top 3 Ottimi Software Di Conversione Video in 4K (PC E Mac) - Da 4K a 1080P</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-from-youtube-shorts-the-complete-process-for-2024/"><u>Unlinking From YouTube Shorts - The Complete Process for 2024</u></a></li>
 </ul></div>
 

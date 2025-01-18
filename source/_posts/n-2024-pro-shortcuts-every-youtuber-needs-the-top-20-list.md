@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2025-01-09T04:59:25.106Z
-updated: 2025-01-13T04:57:32.156Z
+date: 2025-01-12T16:31:31.763Z
+updated: 2025-01-18T22:59:54.689Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,12 @@ With that said, the following two-columned tables give you detailed information 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -95,7 +91,7 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
@@ -122,6 +118,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -135,7 +135,7 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -150,10 +150,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -161,6 +157,10 @@ Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorial
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -185,18 +185,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-instant-youtube-playlists-shared-tutorial/"><u>[New] In 2024, Instant YouTube Playlists Shared Tutorial</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-iphone-photography-boosted-by-ios-11-features/"><u>[Updated] 2024 Approved IPhone Photography Boosted by iOS 11 Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-creating-engaging-stream-content-shorts/"><u>[Updated] In 2024, Creating Engaging Stream Content Shorts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-live-speech-to-text-converter-for-2024/"><u>[Updated] Live Speech to Text Converter for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-master-the-craft-essential-filmmaking-advice-from-youtube-pros-for-2024/"><u>[Updated] Master the Craft Essential Filmmaking Advice From YouTube Pros for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-content-transcriber/"><u>[Updated] Video Content Transcriber</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-elevating-your-visual-storytelling-techniques-and-strategies-for-shooting-compelling-slow-motion-content-for-instagram/"><u>2024 Approved Elevating Your Visual Storytelling Techniques and Strategies for Shooting Compelling Slow Motion Content for Instagram</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-ultimate-choice-for-affordable-virtual-meetings-online/"><u>2024 Approved The Ultimate Choice for Affordable Virtual Meetings Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/epson-printer-error-windows-11-workaround-and-solution/"><u>Epson Printer Error: Windows 11 Workaround and Solution</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722050088001-free-gpt-4-available-to-everyone-dont-overlook-the-6-platinum-perks/"><u>Free GPT-4 Available to Everyone! Don't Overlook the 6 Platinum Perks</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-hidden-reasons-behind-imovies-cuts-for-2024/"><u>The Hidden Reasons Behind iMovie’s Cuts for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-lenovo-yoga-pro-9i-a-look-into-its-soft-touch-keys-and-compact-body/"><u>Unveiling the Lenovo Yoga Pro 9I: A Look Into Its Soft-Touch Keys & Compact Body</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-cutting-edge-tips-elevating-content-with-tags/"><u>[New] In 2024, Cutting-Edge Tips Elevating Content with Tags</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pulse-picking-playlists-hot-tracks-for-viral-youtube-shorts/"><u>[New] In 2024, Pulse-Picking Playlists Hot Tracks for Viral YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategic-interaction-for-sustainable-subscriber-acquisition/"><u>[New] In 2024, Strategic Interaction for Sustainable Subscriber Acquisition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ioneering-video-structuring-methods-on-youtube-for-2024/"><u>[New] Pioneering Video Structuring Methods on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ips-and-tricks-for-rearranging-your-youtube-playlists-for-2024/"><u>[New] Tips & Tricks for Rearranging Your YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>[Updated] 2024 Approved The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-ultimate-guide-top-10-gratis-mmo-rpgs/"><u>[Updated] 2024 Approved Ultimate Guide Top 10 Gratis MMO RPGs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exclusive-list-of-asmr-apps-for-phones/"><u>[Updated] Exclusive List of ASMR Apps for Phones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-2024-fortnite-pc-stutter-issue-essential-troubleshooting-steps/"><u>Fixing the 2024 Fortnite PC Stutter Issue: Essential Troubleshooting Steps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ignite-your-screenplay-essential-wins11-apps-and-games-for-2024/"><u>Ignite Your Screenplay Essential Wins11 Apps & Games for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>In 2024, Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-prime-hashtag-combinations-driving-view-count-higher/"><u>In 2024, Prime Hashtag Combinations Driving View Count Higher</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-tecno-spark-20-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Tecno Spark 20 Pro Phone? Unlock It Now</u></a></li>
 </ul></div>
 

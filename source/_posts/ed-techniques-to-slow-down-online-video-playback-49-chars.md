@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Techniques to Slow Down Online Video Playback (49 Chars)"
-date: 2025-01-09T01:29:03.245Z
-updated: 2025-01-12T18:41:13.381Z
+date: 2025-01-16T22:13:00.008Z
+updated: 2025-01-18T17:15:23.974Z
 tags:
   - ai video
   - ai youtube
@@ -57,10 +57,6 @@ Besides, watching YouTube videos in slow motion, you can also make a slow motion
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 1\. Import Video Footage to Filmora Video Editor
 
 First of all, you need to import all your video footage for YouTube videos to Filmora. If you want to slow down a video downloaded from online, like youtube, please make sure there is copyright issue for you to use the video before processing. In case that you want to download YouTube with free youtube downloader, you can try Wondershare [Free Youtube Downloader](https://www.wondershare.com/pro/free-youtube-downloader.html) and [Video DownloadHelper](https://www.wondershare.com/download/downloadhelper-for-chrome.html) (Firefox Add-on).
@@ -69,6 +65,10 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 ![YouTube Slow Motion](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2. One click to add slow motion to YouTube video
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
@@ -76,7 +76,7 @@ On the Timeline, click on the added YouTube video and select   **Speed and Durat
 ![ YouTube Video slow down ](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With Filmora youtube video editor, you can also add the slow motion effects to some certain clips of the video footage. What you need to do is use the split feature to split the video first. Learn more details about [How to Cut / Split / Trim Videos without Quality Loss](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -87,15 +87,19 @@ You could continue editing YouTube videos. When all done, click "Export" to save
 
 ![Export](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 See, with Filmora video editor you can slow down YouTube videos with ease, what’s more, you can also apply reverse effects to play Youtube videos backwards. Download and try this YouTube Slow motion effect and you will master how to slow down YouTube videos.
 
 **Related:**[How to Make Slow/Fast Motion Videos](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Slow down YouTube videos with Slow Motion in YouTube Video Editor
 
@@ -120,14 +124,10 @@ Above are the 3 ways that you can watch a YouTube video in slow motion, and slow
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -150,17 +150,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/levate-your-cinematography-skills-editing-and-sharing-360-videos-on-youtube-for-2024/"><u>[New] Elevate Your Cinematography Skills Editing and Sharing 360° Videos on YouTube for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-tomorrows-digital-playground-a-comparative-study-of-metaverse-and-omniverse/"><u>[New] In 2024, Tomorrow's Digital Playground A Comparative Study of Metaverse & Omniverse</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-from-stillness-to-stirring-tips-for-bouncing-text/"><u>[Updated] 2024 Approved From Stillness to Stirring Tips for Bouncing Text</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlock-the-potential-of-your-youtube-videos-with-effective-end-screens/"><u>[Updated] 2024 Approved Unlock the Potential of Your YouTube Videos with Effective End Screens</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-precision-playback-aligning-video-views-in-real-time-for-2024/"><u>[Updated] Precision Playback Aligning Video Views in Real-Time for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streamlining-co-productions-a-guide-to-more-followers-for-2024/"><u>[Updated] Streamlining Co-Productions A Guide to More Followers for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/ace-editing-essential-10-final-cut-pro-extensions-for-2024/"><u>Ace Editing Essential 10 Final Cut Pro Extensions for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/comparing-dvdplus-r-dual-layer-to-standard-dvd-key-insights-into-capacity-and-quality/"><u>Comparing DVD+/- R Dual Layer to Standard DVD - Key Insights Into Capacity & Quality</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/improving-zoom-picture-quality-quick-solutions-for-2024/"><u>Improving Zoom Picture Quality Quick Solutions for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-no-speaker-or-headphones-detected-problems-on-windows-11-8-and-7/"><u>Resolving 'No Speaker or Headphones Detected' Problems on Windows 11, 8 & 7</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/winx-dvd-authoring-masterclass-step-by-step-tutorial/"><u>WinX DVD Authoring Masterclass: Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remier-microphone-picks-for-blogging-pros/"><u>[New] Premier Microphone Picks for Blogging Pros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlock-the-power-of-slow-mo-with-these-android-hacks/"><u>[New] Unlock the Power of Slow Mo with These Android Hacks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-media-makers-software-linux-edition/"><u>[Updated] 2024 Approved Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-simplest-scan-capture-app-on-windows-10/"><u>[Updated] In 2024, Simplest Scan-Capture App on Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-swift-techniques-mastering-effective-double-exposure/"><u>[Updated] In 2024, Swift Techniques Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perplexing-perspective-shifts-in-instagram-video-feeds-for-2024/"><u>[Updated] Perplexing Perspective Shifts in Instagram Video Feeds for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reduce-buffering-and-lag-turn-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Reduce Buffering & Lag - Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stabilize-your-lens-no-trips-only-tricks/"><u>[Updated] Stabilize Your Lens No Trips, Only Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-pathway-to-profit-enabling-youtuber-earnings-via-mobile-devices-for-2024/"><u>[Updated] The Pathway to Profit Enabling YouTuber Earnings via Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-total-guide-to-video-dimensions-and-proportion-harmony-on-youtube-for-2024/"><u>[Updated] Total Guide to Video Dimensions & Proportion Harmony on YouTube for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionize-communication-top-7-free-mac-tts-apps-uncovered/"><u>2024 Approved Revolutionize Communication Top 7 Free Mac TTS Apps Uncovered</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-atheros-network-adapter-drivers-on-windows-computers/"><u>Download and Install Atheros Network Adapter Drivers on Windows Computers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a38-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Oppo A38 Phone without PIN</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-prime-live-tech-the-most-popular-streaming-tools-reviewed/"><u>In 2024, Prime Live Tech The Most Popular Streaming Tools Reviewed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mastering-zoom-segregation-techniques-quickstart/"><u>Mastering Zoom Segregation Techniques Quickstart</u></a></li>
+<li><a href="https://article-tips.techidaily.com/seamless-integration-of-srt-files-in-windows-macos/"><u>Seamless Integration of SRT Files in Windows, MacOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mline-your-vlog-with-video-length-optimization/"><u>Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-great-reconnect-fixing-the-laptop-headset-gap/"><u>The Great Reconnect: Fixing the Laptop-Headset Gap</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-samsung-galaxy-s24-ultra-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Samsung Galaxy S24 Ultra Phone With/Without IMEI Number</u></a></li>
 </ul></div>
 
