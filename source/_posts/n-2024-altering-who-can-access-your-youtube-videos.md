@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Altering Who Can Access Your YouTube Videos"
-date: 2024-08-08T16:28:04.081Z
-updated: 2024-08-09T16:28:04.081Z
+date: 2025-01-24T04:37:43.592Z
+updated: 2025-01-24T17:05:10.589Z
 tags:
   - ai video
   - ai youtube
@@ -34,17 +34,10 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -67,9 +60,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -78,9 +68,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
@@ -89,16 +76,29 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -106,10 +106,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -117,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +131,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-flip-flop-your-watching-anchoring-yourself-at-the-end-of-queue/"><u>[New] 2024 Approved Flip-Flop Your Watching Anchoring Yourself at the End of Queue</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-flash-share-sharing-playlists-in-a-snap/"><u>[Updated] 2024 Approved Flash-Share Sharing Playlists in a Snap</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-world-of-webcams-for-high-quality-streams-for-2024/"><u>[Updated] Navigating the World of Webcams for High-Quality Streams for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-streamline-your-skype-experience-with-obs-recordings-for-2024/"><u>[Updated] Streamline Your Skype Experience with OBS Recordings for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-editors-edge-exploring-the-best-of-youtube-video-tools/"><u>[Updated] The Editor's Edge Exploring the Best of YouTube Video Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-ultimate-blueprint-adopting-mobizen-screen-recording-skills/"><u>2024 Approved The Ultimate Blueprint Adopting Mobizen Screen Recording Skills</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-transforming-viewers-into-loyalists-with-essential-youtube-tips/"><u>2024 Approved Transforming Viewers Into Loyalists with Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-understanding-the-dynamics-behind-youtubes-investment-in-shorts/"><u>2024 Approved Understanding the Dynamics Behind YouTube's Investment in Shorts</u></a></li>
+<li><a href="https://win-bits.techidaily.com/evaluating-graphics-card-performance-under-windows-os-tips-from-yl-software-experts/"><u>Evaluating Graphics Card Performance Under Windows OS: Tips From YL Software Experts</u></a></li>
+<li><a href="https://win-popular.techidaily.com/gpu-troubleshooting-guide-understanding-zero-output-issues-with-expert-insights-from-yl-software/"><u>GPU Troubleshooting Guide: Understanding Zero Output Issues with Expert Insights From YL Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-basics-of-weaving-a-narrative-thread/"><u>In 2024, Basics of Weaving a Narrative Thread</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-obs-and-zoom-integration-your-quick-pathway/"><u>In 2024, OBS and Zoom Integration Your Quick Pathway</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/jailbreak-joy-top-funny-faces-at-the-social-networks-limits-for-2024/"><u>Jailbreak Joy - Top Funny Faces at the Social Network’s Limits for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/online-free-mp4/"><u>Online Free MP4 피드 쿼리 휴리스트 - 모바이비전</u></a></li>
+</ul></div>
 

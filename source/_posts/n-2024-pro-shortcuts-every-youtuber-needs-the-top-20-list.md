@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2025-01-12T16:31:31.763Z
-updated: 2025-01-18T22:59:54.689Z
+date: 2025-01-21T19:23:07.421Z
+updated: 2025-01-24T20:21:37.881Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ With that said, the following two-columned tables give you detailed information 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
@@ -69,6 +65,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -90,10 +90,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -103,6 +99,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -118,10 +118,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -135,7 +131,7 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -150,6 +146,10 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -159,7 +159,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -185,18 +185,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-cutting-edge-tips-elevating-content-with-tags/"><u>[New] In 2024, Cutting-Edge Tips Elevating Content with Tags</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pulse-picking-playlists-hot-tracks-for-viral-youtube-shorts/"><u>[New] In 2024, Pulse-Picking Playlists Hot Tracks for Viral YouTube Shorts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-strategic-interaction-for-sustainable-subscriber-acquisition/"><u>[New] In 2024, Strategic Interaction for Sustainable Subscriber Acquisition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ioneering-video-structuring-methods-on-youtube-for-2024/"><u>[New] Pioneering Video Structuring Methods on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ips-and-tricks-for-rearranging-your-youtube-playlists-for-2024/"><u>[New] Tips & Tricks for Rearranging Your YouTube Playlists for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>[Updated] 2024 Approved The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-ultimate-guide-top-10-gratis-mmo-rpgs/"><u>[Updated] 2024 Approved Ultimate Guide Top 10 Gratis MMO RPGs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-exclusive-list-of-asmr-apps-for-phones/"><u>[Updated] Exclusive List of ASMR Apps for Phones</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-2024-fortnite-pc-stutter-issue-essential-troubleshooting-steps/"><u>Fixing the 2024 Fortnite PC Stutter Issue: Essential Troubleshooting Steps</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ignite-your-screenplay-essential-wins11-apps-and-games-for-2024/"><u>Ignite Your Screenplay Essential Wins11 Apps & Games for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>In 2024, Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-prime-hashtag-combinations-driving-view-count-higher/"><u>In 2024, Prime Hashtag Combinations Driving View Count Higher</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-tecno-spark-20-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Tecno Spark 20 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-crafting-news-end-credits-a-step-by-step-guide/"><u>[New] In 2024, Crafting News End Credits A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-fix-the-youtube-shorts-not-showing-up-issue/"><u>[New] In 2024, How to Fix the YouTube Shorts Not Showing Up Issue?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-solving-grey-voids-in-gaming-capture-software-for-2024/"><u>[New] Solving Grey Voids in Gaming Capture Software for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-is-inshot-leading-video-cutting-tech-deep-insight-reviewed/"><u>2024 Approved Is InShot Leading Video Cutting Tech? Deep Insight Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/h-your-brain-with-these-15-ultimate-science-youtubes-for-2024/"><u>Enrich Your Brain with These 15 Ultimate Science Youtubes for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-from-oven-to-screen-cooking-videos-unveiled/"><u>In 2024, From Oven to Screen Cooking Videos Unveiled</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-potential-with-easy-integration-of-msix-packages/"><u>Unlock Potential with Easy Integration of MSIX Packages</u></a></li>
 </ul></div>
 
