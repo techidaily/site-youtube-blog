@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Video's Visibility with Perfect Thumbnail Sizing for 2024"
-date: 2025-01-20T03:02:32.660Z
-updated: 2025-01-24T21:18:58.947Z
+date: 2025-01-27T01:31:58.120Z
+updated: 2025-02-02T05:08:39.972Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
@@ -78,13 +78,17 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
@@ -104,16 +108,16 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -123,10 +127,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -152,15 +152,15 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -183,21 +183,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-designing-news-outro-sequences/"><u>[New] 2024 Approved Designing News Outro Sequences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-efficiency-at-play-reducing-youtube-video-length/"><u>[New] 2024 Approved Efficiency at Play Reducing YouTube Video Length</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-fitness-routine-top-10-yoga-streams-unveiled/"><u>[New] 2024 Approved Elevate Your Fitness Routine - Top 10 Yoga Streams Unveiled</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-eye-candy-extravaganza-highest-watched-videos-in-a-day/"><u>[New] 2024 Approved Eye Candy Extravaganza Highest Watched Videos in a Day</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-prime-line-up-the-best-9-free-youtube-logo-makers-reviewed/"><u>[New] 2024 Approved Prime Line-Up The Best 9 Free YouTube Logo Makers Reviewed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-quickly-adapt-to-changing-video-speeds-on-youtube/"><u>[New] 2024 Approved Quickly Adapt to Changing Video Speeds on YouTube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-live-and-record-flawlessly-find-the-best-conference-tech-today/"><u>[New] Live and Record Flawlessly - Find the Best Conference Tech Today</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-metaverse-chronicles-a-list-of-the-most-unforgettable-sci-fi-adventures-on-screen/"><u>[New] Metaverse Chronicles A List of the Most Unforgettable Sci-Fi Adventures on Screen</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-unwind-in-a-world-of-top-stress-busters/"><u>[Updated] Unwind in a World of Top Stress Busters</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fundamentals-of-creating-persuasive-social-media-messages/"><u>2024 Approved Fundamentals of Creating Persuasive Social Media Messages</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719161582279-ditch-the-glitches-seamlessly-switch-to-updated-nvidia-driver/"><u>Ditch the Glitches - Seamlessly Switch to Updated Nvidia Driver</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-clear-choice-between-projectors-and-televisions-for-4k-quality/"><u>In 2024, The Clear Choice Between Projectors and Televisions for 4K Quality</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/prime-methods-for-turning-youtube-videos-into-mpegs/"><u>Prime Methods for Turning YouTube Videos Into MPEGs</u></a></li>
-<li><a href="https://techtrends.techidaily.com/transform-your-webp-pictures-into-animated-gifs-easily-using-the-movavi-image-tool/"><u>Transform Your WebP Pictures Into Animated GIFs Easily Using the Movavi Image Tool</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-platforms-at-a-glance-comparing-vimeo-and-youtube/"><u>Video Platforms at a Glance Comparing Vimeo & YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-in-class-8-webcams-perfect-for-streaming-professionals/"><u>[New] Best-in-Class 8 Webcams Perfect For Streaming Professionals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-stream-google-meet-directly-on-youtube-with-these-tips/"><u>[New] In 2024, Stream Google Meet Directly on YouTube with These Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ecruitment-powerhouses-top-ten-shorts-for-2024/"><u>[New] Recruitment Powerhouses - Top Ten Shorts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/treamlining-education-with-youtube-videos/"><u>[New] Streamlining Education with YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-chart-success-using-youtube-statistics-to-grow-engagement/"><u>[Updated] Chart Success Using YouTube Statistics to Grow Engagement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>[Updated] Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-flawless-offline-viewing-your-guide-to-mobile-video-downloads-for-idevices/"><u>[Updated] Flawless Offline Viewing Your Guide to Mobile Video Downloads for iDevices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-personalize-your-youtube-watch-experience-with-alerts-and-notes/"><u>[Updated] Personalize Your Youtube Watch Experience with Alerts & Notes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-reigning-on-rankings-transforming-your-online-presence-for-2024/"><u>[Updated] Reigning on Rankings Transforming Your Online Presence for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-decoding-the-best-of-beauty-youtubes-elite-artists-showcased/"><u>2024 Approved Decoding the Best of Beauty YouTube's Elite Artists Showcased</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-prevent-non-shown-stories-on-twitter/"><u>2024 Approved Prevent Non-Shown Stories on Twitter</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-tools-for-high-quality-schedule-captures/"><u>2024 Approved Top Tools for High-Quality Schedule Captures</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-the-features-and-uses-of-chatgpt-copilot/"><u>A Comprehensive Guide to the Features and Uses of ChatGPT Copilot</u></a></li>
+<li><a href="https://fox-http.techidaily.com/harmony-match-maker/"><u>Harmony Match Maker</u></a></li>
+<li><a href="https://win-dash.techidaily.com/microsoft-bluetooth-support-software-free-download-and-updates-for-windows-10-11-8-and-7/"><u>Microsoft Bluetooth Support Software: Free Download and Updates for Windows 10, 11, 8 & 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721450826525-troubleshooting-iphones-control-center-top-8-fixes-that-work/"><u>Troubleshooting iPhone's Control Center: Top 8 Fixes That Work!</u></a></li>
 </ul></div>
 

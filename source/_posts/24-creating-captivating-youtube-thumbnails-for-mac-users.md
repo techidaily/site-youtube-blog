@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Creating Captivating YouTube Thumbnails for Mac Users"
-date: 2024-07-29T16:18:01.240Z
-updated: 2024-07-30T16:18:01.240Z
+date: 2025-01-30T18:17:40.323Z
+updated: 2025-02-02T04:30:18.622Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
 
 # How to Make a YouTube Thumbnail On Mac
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -50,8 +47,9 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -62,19 +60,21 @@ Then, use the thumbnail editor to play your video and choose the snapshot that y
 
 You can easily choose the frame from the video or use the preview frame button to view the frames one by one!
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. Add effects
 
@@ -83,8 +83,9 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -97,14 +98,12 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -113,14 +112,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +125,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>[New] 2024 Approved Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-playbook-for-procuring-partners-on-youtube/"><u>[New] 2024 Approved The Ultimate Playbook for Procuring Partners on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ulinary-carousel-swirling-up-top-food-network-names-for-2024/"><u>[New] Culinary Carousel Swirling Up Top Food Network Names for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ditorprime-design/"><u>[New] EditorPrime Design</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[New] In 2024, 5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-expert-review-the-ultimate-guide-to-capturing-your-pc-screen/"><u>[New] In 2024, Expert Review The Ultimate Guide to Capturing Your PC Screen</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-insightful-recap-updated-sony-bdp-s3700-features-for-2024/"><u>[New] Insightful Recap Updated Sony BDP-S3700 Features for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-instantly-share-selfies-the-step-by-step-walkthrough/"><u>[Updated] 2024 Approved Instantly Share Selfies The Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximize-engagement-with-custom-youtube-thumbnails/"><u>[Updated] In 2024, Maximize Engagement with Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-2-step-plan-to-a-viral-youtube-video/"><u>[Updated] In 2024, The 2-Step Plan to a Viral YouTube Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-learn-youtube-video-ad-building-at-no-cost-in-2024/"><u>[Updated] Learn YouTube Video Ad Building at No Cost, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-pip-blueprint-crafting-compelling-video-presentations-on-macos/"><u>[Updated] The PIP Blueprint Crafting Compelling Video Presentations on macOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-10-best-sites-for-downloading-youtube-template-videos/"><u>2024 Approved Top 10 Best Sites for Downloading YouTube Template Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-clear-youtube-watch-later-playlist/"><u>How to Clear YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-optimize-system-performance-by-fixing-wsappxs-heavy-disk-and-cpu-demands/"><u>How to Optimize System Performance by Fixing WSAPPX's Heavy Disk & CPU Demands</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-financial-flourishing-with-glamour-vlogs/"><u>In 2024, Financial Flourishing with Glamour Vlogs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-mastering-youtube-list-mix-a-step-by-step-guide/"><u>In 2024, Mastering YouTube List Mix A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-the-art-of-stability-eliminating-pc-game-crashes-in-halo-3-with-ease/"><u>Master the Art of Stability: Eliminating PC Game Crashes in Halo 3 with Ease</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-zte-nubia-flip-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from ZTE Nubia Flip 5G to iPhone 14/15 | Dr.fone</u></a></li>
+</ul></div>
 

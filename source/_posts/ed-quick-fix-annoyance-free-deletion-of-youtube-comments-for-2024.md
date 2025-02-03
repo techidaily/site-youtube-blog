@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Fix  Annoyance-Free Deletion of Youtube Comments for 2024\""
-date: 2025-01-20T22:23:54.677Z
-updated: 2025-01-25T02:59:01.666Z
+date: 2025-01-25T21:28:36.095Z
+updated: 2025-02-02T09:22:34.421Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -89,7 +93,7 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -113,11 +117,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -129,13 +129,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -144,7 +144,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -174,22 +174,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gaming-income-optimization-tips/"><u>[New] 2024 Approved Gaming Income Optimization Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-eliminate-youtube-short-headaches-with-these-tips/"><u>[New] In 2024, Eliminate YouTube Short Headaches with These Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-keep-up-to-date-with-youtube-community-guidelines/"><u>[New] In 2024, Keep Up-to-Date With YouTube Community Guidelines</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-tailored-titling-techniques-for-impactful-youtube-channels/"><u>[New] In 2024, Tailored Titling Techniques for Impactful YouTube Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-essence-of-online-video-success-keywords-on-youtube/"><u>[New] In 2024, The Essence of Online Video Success Keywords on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-counterclockwise-content-youtube-replay-methods-for-2024/"><u>[Updated] Counterclockwise Content YouTube Replay Methods for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-no-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series-for-2024/"><u>[Updated] No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-visual-ventures-partnership-playbook-for-2024/"><u>[Updated] Visual Ventures Partnership Playbook for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-maximizing-your-youtube-income-understanding-adsense-payments-for-every-1k-watch/"><u>2024 Approved Maximizing Your Youtube Income Understanding AdSense Payments for Every 1K Watch</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/complete-troubleshooting-steps-for-fixing-non-removable-external-hdd-problems-on-windows-10/"><u>Complete Troubleshooting Steps for Fixing Non-Removable External HDD Problems on Windows 10</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Samsung Galaxy A05? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Nokia C210? | Dr.fone</u></a></li>
-<li><a href="https://discover-best.techidaily.com/driven-by-advanced-automation-the-power-of-cookiebot-technology/"><u>Driven by Advanced Automation: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fix-guide-resolving-the-missing-dbghookdll-error/"><u>Fix Guide: Resolving the MISSING dBghook.dll Error</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/gamerecorder-gambit/"><u>GameRecorder Gambit</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-repair-logitech-c920-webcam-connectivity-and-performance/"><u>How To Repair Logitech C920 Webcam Connectivity and Performance</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/er-the-most-stellar-yt-gamers-intros-no-cost-high-quality/"><u>Uncover the Most Stellar YT Gamers' Intros No Cost, High Quality?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-economical-embellishments-free-youtube-template-packs/"><u>[New] 2024 Approved Economical Embellishments FREE YouTube Template Packs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-finance-frontiers-the-finest-youtube-channels-to-follow/"><u>[New] In 2024, Finance Frontiers The Finest YouTube Channels to Follow</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-glamour-unleashed-comprehensive-youtube-guide-to-elegance/"><u>[New] In 2024, Glamour Unleashed Comprehensive YouTube Guide to Elegance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimize-your-vlogs-with-smart-youtube-editing-tips/"><u>[New] Optimize Your Vlogs with Smart YouTube Editing Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/remiere-pro-a-launchpad-for-youtube-videos/"><u>[New] Premiere Pro A Launchpad for YouTube Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tips-for-non-vid-based-self-education-success/"><u>[New] Tips for Non-Vid Based Self-Education Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eaving-in-youtubes-video-selection-a-step-by-step-guide/"><u>[New] Weaving in YouTube's Video Selection A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-power-of-pausing-incorporating-effective-chapters-in-your-youtube-series-for-2024/"><u>[Updated] The Power of Pausing Incorporating Effective Chapters in Your YouTube Series for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/converting-your-music-library-to-audiobooks-on-itunes-easy-methods-revealed/"><u>Converting Your Music Library to Audiobooks on iTunes: Easy Methods Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-how-to-sample-your-favorite-games-pre-purchase-expert-tips-inside/"><u>Discover How to Sample Your Favorite Games Pre-Purchase: Expert Tips Inside</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-6-plus-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone 6 Plus or iPad?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mellow-mixdowns-lowlighting-with-ease-in-garageband-for-2024/"><u>Mellow Mixdowns Lowlighting with Ease in Garageband for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ize-soundtracks-on-youtube-the-playlist-guide/"><u>Organize Soundtracks on Youtube The Playlist Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/into-profitability-on-youtube-beginners-guide-for-2024/"><u>Step Into Profitability on YouTube - Beginner's Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/sh-creativity-angled-rotation-mastery-for-youtube-vids-for-2024/"><u>Unleash Creativity Angled Rotation Mastery for YouTube Vids for 2024</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/verifying-your-pcs-sound-card-installation-a-step-by-step-guide-yl-computing/"><u>Verifying Your PC's Sound Card Installation: A Step-by-Step Guide - YL Computing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-video-dimensionssize-guide-for-upload-settings/"><u>YouTube Video Dimensions/Size Guide for Upload Settings</u></a></li>
 </ul></div>
 
