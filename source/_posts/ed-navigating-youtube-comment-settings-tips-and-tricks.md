@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2025-01-27T18:58:08.029Z
-updated: 2025-02-01T21:39:14.234Z
+date: 2025-01-27T18:33:04.938Z
+updated: 2025-02-03T19:01:04.118Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -44,10 +48,6 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -68,7 +68,7 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
@@ -84,7 +84,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -127,11 +127,11 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -149,6 +149,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -162,10 +166,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -188,16 +188,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/astering-youtube-team-ups-finding-perfect-co-stars/"><u>[New] Mastering YouTube Team-Ups Finding Perfect Co-Stars</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-finding-free-music-a-producers-handbook/"><u>[Updated] 2024 Approved Finding Free Music A Producer's Handbook</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-capturing-every-moment-in-motion-with-polaroids-new-release-for-2024/"><u>[Updated] Capturing Every Moment in Motion with Polaroid's New Release for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-fix-low-quality-footage-on-different-devices-for-2024/"><u>[Updated] Fix Low-Quality Footage on Different Devices for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-guide-to-adjust-youtube-video-speeds-on-the-fly/"><u>[Updated] Step-By-Step Guide to Adjust YouTube Video Speeds on the Fly</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/68197795-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>Direct YouTube Tunes to MP3s Online & Offline Options</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-your-pcs-audio-issue-instantly-a-simple-guide/"><u>Fix Your PC's Audio Issue Instantly: A Simple Guide</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-infinix-hot-40-pro-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/reach-out-to-your-personalized-ai-companions-contact-digiarty-now/"><u>Reach Out to Your Personalized AI Companions - Contact Digiarty Now!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveil-secure-and-swift-gpo-management-pathways-win11-style/"><u>Unveil Secure and Swift GPO Management Pathways, Win11 Style</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/wonderfox-dvd-ripper-pro-70/"><u>WonderFox DVD Ripper Pro 割引！ディスクコピーツールで70%安くお求めいただけます</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-youtube-experience-through-a-subscription-for-2024/"><u>[New] Maximizing YouTube Experience Through a Subscription for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mart-budget-audio-gear-for-online-sensation-hopefuls/"><u>[New] Smart Budget Audio Gear for Online Sensation Hopefuls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-best-7-high-motion-dslrs-for-dynamic-live-content-creation/"><u>[Updated] 2024 Approved Best 7 High-Motion DSLRs for Dynamic Live Content Creation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-your-professional-space-setting-up-an-account-on-ig-for-2024/"><u>[Updated] Crafting Your Professional Space Setting Up an Account on IG for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-substitute-film-gems-for-fans-top-7-lists/"><u>[Updated] In 2024, Substitute Film Gems for Fans - Top 7 Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-amplifying-popularity-on-youtube/"><u>[Updated] The Art of Amplifying Popularity on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-vloggers-ultimate-guide-to-best-gaming-microphones-for-2024/"><u>[Updated] Vloggers' Ultimate Guide to Best Gaming Microphones for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-3-best-ios-video-editors-free-tips-and-guides/"><u>2024 Approved Top 3 Best iOS Video Editors FREE Tips & Guides</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-orbi-wireless-router-review-speedy-seamless-connectivity-in-every-room/"><u>Comprehensive Orbi Wireless Router Review: Speedy, Seamless Connectivity in Every Room</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-aspect-ratios-for-effective-youtube-videos/"><u>Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/elite-7-secure-platforms-for-smaller-companies-for-2024/"><u>Elite 7 Secure Platforms for Smaller Companies for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/epic-launcher-stability-guide-for-windows/"><u>Epic Launcher Stability Guide for Windows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-nailing-the-perfect-shot-expert-tips-for-android-time-lapse-videography/"><u>In 2024, Nailing the Perfect Shot Expert Tips for Android Time-Lapse Videography</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/introduction-to-plot-and-character-dynamics/"><u>Introduction to Plot and Character Dynamics</u></a></li>
+<li><a href="https://win11.techidaily.com/simplify-your-pc-disableremove-ms-edge-w11/"><u>Simplify Your PC: Disable/Remove MS Edge W11</u></a></li>
 </ul></div>
 

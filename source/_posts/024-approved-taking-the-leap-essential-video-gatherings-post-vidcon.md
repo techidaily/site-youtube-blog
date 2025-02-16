@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2024-07-29T16:11:24.530Z
-updated: 2024-07-30T16:11:24.530Z
+date: 2025-01-31T16:04:03.536Z
+updated: 2025-02-03T19:19:20.388Z
 tags:
   - ai video
   - ai youtube
@@ -37,16 +37,18 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -57,6 +59,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -84,10 +90,11 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -145,9 +152,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -198,10 +202,11 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **London, UK:** August
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -225,10 +230,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -237,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,4 +251,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/rom-video-conference-to-youtube-broadcast-google-meet-explained/"><u>[New] From Video Conference to Youtube Broadcast Google Meet Explained</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-trend-titan-tags-the-list-that-elevates-your-youtube-shorts-to-fame/"><u>[New] In 2024, Trend Titan Tags The List That Elevates Your YouTube Shorts to Fame</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aughter-loops-scouring-the-best-chuckles-in-youtube-worlds-for-2024/"><u>[New] Laughter Loops Scouring the Best Chuckles in YouTube Worlds for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-maximize-your-ios-for-ps2-gaming-with-best-emulators-for-2024/"><u>[New] Maximize Your IOS for PS2 Gaming with Best Emulators for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eamless-time-logging-on-youtube-desktopmobile-for-2024/"><u>[New] Seamless Time Logging on YouTube (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-efficacy-of-quick-subscribing-in-video-platforms-for-2024/"><u>[New] The Efficacy of Quick-Subscribing in Video Platforms for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-transformative-text-in-creative-photography-and-video-for-2024/"><u>[New] Transformative Text in Creative Photography & Video for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nwanted-comments-made-easy-an-overview-for-2024/"><u>[New] Unwanted Comments Made Easy An Overview for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-mac-os-unveiled-comprehensive-review-of-screenflow-v4/"><u>[Updated] In 2024, Mac OS Unveiled Comprehensive Review of ScreenFlow V4</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-s3700-blu-ray-box-player-fresh-perspective/"><u>[Updated] S3700 Blu-Ray Box Player - Fresh Perspective</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlining-inshot-cuts-for-professional-edge/"><u>[Updated] Streamlining Inshot Cuts for Professional Edge</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-5-efficient-mac-snippers-for-quick-captures-for-2024/"><u>[Updated] Top 5 Efficient Mac Snippers for Quick Captures for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streamline-your-site-including-youtube-playlists-directly/"><u>2024 Approved Streamline Your Site Including YouTube Playlists Directly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-tap-into-the-secrets-of-successful-video-thumbnails-for-youtube/"><u>2024 Approved Tap Into the Secrets of Successful Video Thumbnails for YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-xiaomi-redmi-note-13-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-note-30-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Infinix Note 30 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-recipe-rendezvous-top-30-channels-with-a-taste-for-success/"><u>In 2024, Recipe Rendezvous Top 30 Channels with a Taste for Success</u></a></li>
+</ul></div>
 

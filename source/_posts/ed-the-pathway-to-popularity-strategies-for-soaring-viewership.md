@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Pathway to Popularity  Strategies for Soaring Viewership\""
-date: 2025-01-26T01:34:27.549Z
-updated: 2025-02-01T22:54:59.942Z
+date: 2025-01-28T21:00:25.615Z
+updated: 2025-02-03T18:28:12.392Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,13 @@ If you get above **60%** Average Percentage Viewed, you should feel very proud. 
 
 ![audience-retention-one](https://images.wondershare.com/filmora/audience-retention-one.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In the example above, we see that on average, a viewer will only see 44% of the video. For the video below, we see that it only has 30% of the video viewed. Overall, the first video is performing better.
 
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
@@ -99,6 +99,10 @@ Knowing how to structure your video will allow you to be strategic as you build 
 ## **2\. Do Keyword Research:**
 
 Many viewers find YouTube videos via search, and if you aren’t using the appropriate keywords, then YouTube won’t be able to identify your content and display it for your viewers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Where Do Keywords Appear on YouTube?**
 
@@ -127,7 +131,7 @@ Here is how you can see what keywords were used to find your video:
 ![traffic-source](https://images.wondershare.com/filmora/article-images/traffic-source-youtube-search.png.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you want to find some new keywords for your upcoming video, you will need to do some research.
@@ -135,10 +139,6 @@ If you want to find some new keywords for your upcoming video, you will need to 
 **1\. Enter Keywords You Want to Rank for In YouTube Search:** This allows you to see what the most popular phrases are in the YouTube search engine.
 
 ![search-for-keywords](https://images.wondershare.com/filmora/search-for-keywords.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2\. Study the Competitors:** See which videos are ranking high for your search term. Use a tool called [VidIQ](https://vidiq.com/)to see the keywords that the top videos are performing.
 
@@ -149,7 +149,7 @@ If you want to find some new keywords for your upcoming video, you will need to 
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
@@ -161,10 +161,6 @@ If you want to find some new keywords for your upcoming video, you will need to 
 **4\. Come Up With Content Related to Those Keywords:** To come up with topic ideas around a keyword, you can use a tool called [Answer the Public](https://answerthepublic.com/), which gives you all the most popular questions searched online.
 
 ![answer-the-public](https://images.wondershare.com/filmora/answer-the-public.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **3\. Engage Your Audience:**
 
@@ -211,7 +207,7 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 ![related-videos-for-your-audience](https://images.wondershare.com/filmora/related-videos-for-your-audience.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Playlist**: If you have multiple videos that fit a specific topic, add them to a playlist so the viewer can enjoy them all in one viewing.
@@ -219,7 +215,7 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Key Takeaways:**
@@ -229,6 +225,10 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 3. **Increasing Subscribers** gets your video in front of more people the moment it is published.
 4. **Encourage Comments** and respond to establish a relationship with your viewers.
 5. Ensure that **Viewers Continue Watching** videos on YouTube after they finish watching yours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Other Things That Affects Your YouTube Ranking**
 
@@ -256,11 +256,11 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -283,22 +283,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ow-to-locate-your-youtube-fanbase-for-2024/"><u>[New] How to Locate Your YouTube Fanbase for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unrivaled-5-editors-perfect-for-non-youtube-vids/"><u>[New] In 2024, Unrivaled 5 Editors Perfect for Non-YouTube Vids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nviolate-disengagement-protocol-for-compact-youtube-clips/"><u>[New] Inviolate Disengagement Protocol for Compact YouTube Clips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aster-your-youtube-experience-with-premium-subscription/"><u>[New] Master Your YouTube Experience with Premium Subscription</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rime-video-strategies-selecting-perfect-format-for-youtube/"><u>[New] Prime Video Strategies – Selecting Perfect Format for YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-tutorial-for-fb-360-streaming/"><u>[New] The Ultimate Tutorial for FB 360 Streaming</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ideal-ringtone-hunt-prime-downloads/"><u>[Updated] In 2024, Ideal Ringtone Hunt Prime Downloads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streaming-success-gamers-software-for-2024/"><u>[Updated] Streaming Success Gamers' Software for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-audio-artists-almanac-your-guide-to-video-submission/"><u>2024 Approved Audio Artists' Almanac Your Guide to Video Submission</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-leading-id3-tagging-software-options-compatible-with-windows-10-8-7-and-macos-systems/"><u>Discover the Leading ID3 Tagging Software Options Compatible with Windows 10, 8, 7 & macOS Systems</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722997865973-expert-guide-overcome-stuttering-and-smooth-your-ride-in-forza-horizon-5/"><u>Expert Guide: Overcome Stuttering and Smooth Your Ride in Forza Horizon 5!</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/beginner-to-expert-choose-studio-or-beta-for-2024/"><u>From Beginner to Expert Choose Studio or Beta for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Nokia C32? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-realme-12-proplus-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Realme 12 Pro+ 5G Phone</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/streamline-your-dj-setups-with-remote-requests-in-pcdj-karaoki-via-the-songbookdb-integration/"><u>Streamline Your DJ Setups with Remote Requests in PCDJ Karaoki via the SongBookDB Integration</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/surge-in-early-orders-explore-the-latest-self-mowing-robot-a-review-from-zdnet/"><u>Surge in Early Orders: Explore the Latest Self-Mowing Robot - A Review From ZDNet</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-rated-macintosh-models-expert-reviews/"><u>Top-Rated Macintosh Models - Expert Reviews</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-step-by-step-approach-to-professional-chromatic-control/"><u>[New] A Step by Step Approach to Professional Chromatic Control</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-micro-videos-in-the-spotlight-who-wins-youtube-shorts-or-tiktok/"><u>[New] In 2024, Micro-Videos in the Spotlight Who Wins, YouTube Shorts or TikTok?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ncovering-the-efficacy-of-youtubes-4-second-rule/"><u>[New] Uncovering the Efficacy of YouTube's 4-Second Rule</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-building-your-asmr-empire-key-concepts-and-best-practices/"><u>[Updated] Building Your ASMR Empire Key Concepts and Best Practices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>2024 Approved __Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-premier-screen-capture-device-essential-for-video-sharers/"><u>2024 Approved Premier Screen Capture Device Essential for Video Sharers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-se-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone SE iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-rank-the-best-7-android-friendly-adblockers-reviewed/"><u>In 2024, Rank the Best 7 Android-Friendly AdBlockers Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ase-your-streams-value-youtube-monetizing-techniques-worldwide/"><u>Increase Your Stream's Value YouTube Monetizing Techniques Worldwide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/innovating-poetry-through-chatgpt-interactions/"><u>Innovating Poetry Through ChatGPT Interactions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/the-ultimate-premiere-pro-system-checklist-prepare-your-computer-for-success-for-2024/"><u>The Ultimate Premiere Pro System Checklist Prepare Your Computer for Success for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-continuous-outlook-program-failures/"><u>Troubleshooting Steps for Continuous Outlook Program Failures</u></a></li>
+<li><a href="https://win-webster.techidaily.com/yl-softwares-guide-effective-methods-to-cool-down-and-fix-an-overheated-laptop/"><u>YL Software's Guide: Effective Methods to Cool Down and Fix an Overheated Laptop</u></a></li>
 </ul></div>
 
