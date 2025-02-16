@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Instructional Guide  Modify Comment Accessibility on YouTube\""
-date: 2024-08-08T16:22:45.173Z
-updated: 2024-08-09T16:22:45.173Z
+date: 2025-02-12T19:32:14.869Z
+updated: 2025-02-15T16:42:59.040Z
 tags:
   - ai video
   - ai youtube
@@ -31,8 +31,9 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -42,6 +43,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -93,6 +98,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +124,10 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -130,6 +143,10 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -151,14 +168,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,6 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-prime-9-options-to-capture-high-quality-audio-remotely-23/"><u>[New] 2024 Approved Prime 9 Options to Capture High-Quality Audio Remotely ('23)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hart-a-course-for-success-top-5-effective-video-marketing-strategies-on-youtube/"><u>[New] Chart a Course for Success Top 5 Effective Video Marketing Strategies on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-immersive-play-samsung-vr-classics-for-2024/"><u>[New] Immersive Play Samsung VR Classics for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-to-dynamic-youtube-openers-in-imovie/"><u>[New] In 2024, The Ultimate Guide to Dynamic YouTube Openers in iMovie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unending-suspension-how-to-erase-youtube-shorts/"><u>[New] In 2024, Unending Suspension How to Erase YouTube Shorts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-innovating-your-approach-a-compre-written-by-an-industry-expert-on-effective-youtube-banner-strategies-for-advertisers/"><u>[Updated] 2024 Approved Innovating Your Approach A Compre Written by an Industry Expert on Effective YouTube Banner Strategies for Advertisers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-future-of-streaming-money-youtube-update/"><u>[Updated] 2024 Approved The Future of Streaming Money YouTube Update</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guide-clearing-up-youtube-watchlater-stored-list/"><u>[Updated] In 2024, Guide Clearing Up YouTube Watchlater Stored List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-the-art-of-thumbnail-design-tips-and-pitfalls/"><u>[Updated] In 2024, Mastering the Art of Thumbnail Design Tips and Pitfalls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-simplify-collaboration-share-and-connect-through-playlists/"><u>[Updated] Simplify Collaboration Share & Connect Through Playlists</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-guide-exporting-mp4-files-using-final-cut-pro/"><u>Complete Guide: Exporting MP4 Files Using Final Cut Pro</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/curated-collection-of-the-best-9-cross-device-video-calls-androidiphone/"><u>Curated Collection of the Best 9 Cross-Device Video Calls (Android/iPhone)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-techniques-for-professional-voice-capture/"><u>In 2024, Top Techniques for Professional Voice Capture</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leading-conversations-in-gpt-and-crypto-space/"><u>Leading Conversations in GPT & Crypto Space</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-youtube-broadcast-wirecast-streaming-guide-for-2024/"><u>Mastering YouTube Broadcast WireCast Streaming Guide for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1723808298178-overcome-skype-connection-woes-on-windows-11-discover-5-effective-fix-methods/"><u>Overcome Skype Connection Woes on Windows 11 - Discover 5 Effective Fix Methods</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/resolvido-inicio-fallido-en-windows-11-desde-disco-duplicado-con-clonazila/"><u>Resolvido: Inicio Fallido en Windows 11 Desde Disco Duplicado Con Clonazila</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-issues-with-non-syncing-apple-music-collection-on-your-mac/"><u>Resolving Issues with Non-Syncing Apple Music Collection on Your Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/comprehensive-pathway-to-hidden-youtube-treasures/"><u>Your Comprehensive Pathway to Hidden YouTube Treasures</u></a></li>
+</ul></div>
 

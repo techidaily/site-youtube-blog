@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Write a Script for a YouTube Video\""
-date: 2024-08-08T16:21:26.158Z
-updated: 2024-08-09T16:21:26.158Z
+date: 2025-02-12T16:06:49.916Z
+updated: 2025-02-15T16:02:40.145Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -51,20 +55,29 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -100,6 +113,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +138,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ow-to-craft-eye-catching-youtubes-end-titles-for-2024/"><u>[New] How to Craft Eye-Catching YouTubes End Titles for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-shot-without-a-lifeline-hand-balancing-hacks/"><u>[New] In 2024, The Shot Without a Lifeline Hand Balancing Hacks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>[New] In 2024, Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-end-credits-maker-the-1-video-closers-guide/"><u>[Updated] 2024 Approved Free End Credits Maker - The #1 Video Closers Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-beginners-guide-to-earning-success/"><u>[Updated] In 2024, YouTube Beginners' Guide to Earning Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-royalty-free-sounds-for-youtube-clips/"><u>[Updated] Navigating Royalty-Free Sounds for YouTube Clips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-everlasting-titles-with-millions-of-viewers-for-2024/"><u>[Updated] YouTube's Everlasting Titles with Millions of Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-comedy-central-the-best-laughter-inducing-channels-online/"><u>2024 Approved Comedy Central The Best Laughter-Inducing Channels Online</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/clearing-up-fatal-errors-how-to-fix-xbox-game-pass-issue-code-0x00000001-in-windows-11/"><u>Clearing Up Fatal Errors: How to Fix Xbox Game Pass Issue Code 0X00000001 in Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/sive-insight-free-access-to-1-6-video-clips-for-2024/"><u>Exclusive Insight Free Access to #1-#6 Video Clips for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-thumbnails-for-maximum-clicks/"><u>Ideal Thumbnails for Maximum Clicks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-asus-rog-phone-7-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Asus ROG Phone 7 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-strategies-for-splendid-colors-in-gopro-videos/"><u>Step-by-Step Strategies for Splendid Colors in GoPro Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iques-for-perfect-chroma-key-compositing/"><u>Techniques for Perfect Chroma Key Compositing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-netgear-nighthawk-rax120-decoded-breaking-down-one-of-todays-speedy-routers/"><u>The Netgear Nighthawk RAX120 Decoded: Breaking Down One of Today's Speedy Routers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transform-your-in-game-identity-with-these-free-free-fire-vocal-hacks/"><u>Transform Your In-Game Identity with These Free Free Fire Vocal Hacks</u></a></li>
+</ul></div>
 

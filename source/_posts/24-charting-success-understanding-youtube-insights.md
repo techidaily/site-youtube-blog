@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Charting Success  Understanding YouTube Insights\""
-date: 2024-07-29T16:09:15.625Z
-updated: 2024-07-30T16:09:15.625Z
+date: 2025-02-13T23:33:21.003Z
+updated: 2025-02-15T20:38:08.740Z
 tags:
   - ai video
   - ai youtube
@@ -18,18 +18,6 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
 
 # How to View YouTube Statistics
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -51,19 +39,18 @@ The information available for each video includes how many new subscribers it at
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -71,6 +58,10 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -86,9 +77,6 @@ In the watch time reports for individual videos, you will be able to see data on
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -114,8 +102,9 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -124,20 +113,21 @@ Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,4 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-platform-picker-optimal-content-on-youtube-or-tiktok/"><u>[New] In 2024, Platform Picker Optimal Content on Youtube or TikTok?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ife-lessons-visualized-storytelling-on-your-channel-for-2024/"><u>[New] Life Lessons Visualized Storytelling on Your Channel for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unifying-online-collaboration-tools-skype-and-zoom-for-2024/"><u>[New] Unifying Online Collaboration Tools Skype & Zoom for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-dissecting-youtubes-operational-model-post-upload/"><u>[Updated] 2024 Approved Dissecting YouTube's Operational Model Post-Upload</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ignite-interest-top-tier-content-to-motivate-viewers-for-2024/"><u>[Updated] Ignite Interest Top-Tier Content to Motivate Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-creator-hub-for-2024/"><u>[Updated] Video Creator Hub for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-become-a-viral-sensation-maximizing-your-youtube-reach/"><u>2024 Approved Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mobile-editing-hacks-select-top-10-short-form-apps/"><u>2024 Approved Mobile Editing Hacks Select Top 10 Short Form Apps</u></a></li>
+<li><a href="https://some-tips.techidaily.com/choosing-the-best-apple-smart-speaker-a-comparison-between-homepod-and-homepod-mini/"><u>Choosing the Best Apple Smart Speaker: A Comparison Between HomePod and HomePod Mini</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gaming-to-goals-celebrating-the-top-10-ladies-on-youtube-for-2024/"><u>From Gaming to Goals Celebrating the Top 10 Ladies on YouTube for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-iphone-14-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From iPhone 14 Plus without Password?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/how-to-use-obs-streamlabs-on-mac-for-2024/"><u>How to Use OBS Streamlabs on Mac？ for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-shh-9-secrets-of-simple-stock-editing/"><u>In 2024, Shh! 9 Secrets of Simple Stock Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/styling-conversations-on-discord-with-flair-and-ease-for-2024/"><u>Styling Conversations on Discord with Flair & Ease for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-iphone-the-ultimate-guide-to-reestablishing-icloud-photo-sync/"><u>Unstuck iPhone: The Ultimate Guide to Reestablishing iCloud Photo Sync</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/upcoming-google-pixel-tablet-unveiled-launch-date-and-detailed-specifications-revealed/"><u>Upcoming Google Pixel Tablet Unveiled - Launch Date & Detailed Specifications Revealed</u></a></li>
+</ul></div>
 

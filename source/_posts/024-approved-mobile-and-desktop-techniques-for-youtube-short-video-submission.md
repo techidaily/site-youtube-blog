@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mobile & Desktop Techniques for YouTube Short Video Submission\""
-date: 2024-08-16T05:38:23.963Z
-updated: 2024-08-17T05:38:23.963Z
+date: 2025-02-12T19:42:33.716Z
+updated: 2025-02-15T23:33:53.023Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
 ![Upload YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/upload-short-videos-interface-on-youtube-pc.jpg)
@@ -53,6 +57,10 @@ Launch your favorite web browser on your PC, go to YouTube, make sure to sign in
 On the **Details** window that appears, add **#Shorts** in the **Title** or **Description** field, optionally pick a thumbnail from the suggested images present under the **Thumbnail** section (or upload a custom picture from your PC), select your preferred radio button from under the **Audience** section, make the other necessary changes if need be, and click **NEXT**. When the **Video elements** window comes up, choose your preferred options and elements, click **NEXT**.
 
 ![Mark YouTube Shorts Video in title and description](https://images.wondershare.com/filmora/article-images/mark-shorts-videos-on-youtube-pc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3: Publish the Short Video
 
@@ -66,9 +74,6 @@ To sum up, uploading YouTube Shorts video from desktop has nothing different fro
 
 For Win 7 or later (64-bit)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -85,6 +90,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -92,6 +101,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -137,7 +150,15 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,6 +179,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-expert-evaluation-of-vsdc-features-and-best-competitor-software/"><u>[New] 2024 Approved Expert Evaluation of VSDC Features and Best Competitor Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-academic-journey-across-time-top-10-history-youtubers/"><u>[New] In 2024, Academic Journey Across Time Top 10 History YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-asmr-gurus-recommend-best-microphones-reviewed/"><u>[New] In 2024, ASMR Gurus Recommend Best Microphones Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-premium-cutters-the-8-must-have-linux-apps/"><u>[New] In 2024, Premium Cutters The 8 Must-Have Linux Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-essential-guide-to-choosing-youtube-friendly-video-formats/"><u>[New] In 2024, The Essential Guide to Choosing YouTube-Friendly Video Formats</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-revolutionize-your-content-reach-livestreaming-past-footage-on-facebook/"><u>[New] Revolutionize Your Content Reach Livestreaming Past Footage on Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-sound-selection-for-social-media-stars-for-2024/"><u>[New] Ultimate Sound Selection for Social Media Stars for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-studio-validating-earnings-flow/"><u>[New] YouTube Studio Validating Earnings Flow</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-making-youtube-intros-interesting-without-costing-a-dime/"><u>[Updated] In 2024, Making YouTube Intros Interesting Without Costing a Dime</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximize-impact-with-these-11-economical-youtube-naming-tools-for-2024/"><u>[Updated] Maximize Impact with These 11 Economical YouTube Naming Tools for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-premium-audio-capabilities-1-10-free-desktop-tools-for-2024/"><u>[Updated] Premium Audio Capabilities #1-#10 Free Desktop Tools for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-up-to-date-strategies-for-youtube-earnings/"><u>[Updated] Up-to-Date Strategies for YouTube Earnings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-digital-deftness-transforming-photo-colors-professionally/"><u>2024 Approved Digital Deftness Transforming Photo Colors Professionally</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-the-5-superior-videophoto-artists-that-compose/"><u>2024 Approved Discover the 5 Superior Video/Photo Artists That Compose</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-monetization-mastery-how-ajay-achieves-wealth-online/"><u>2024 Approved Monetization Mastery How AJay Achieves Wealth Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-your-iphone-the-secrets-to-hdr-image-magic/"><u>In 2024, Mastering Your iPhone The Secrets to HDR Image Magic</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/investigating-new-horizons-past-manycams-realm-for-2024/"><u>Investigating New Horizons Past ManyCam's Realm for 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/troubleshooting-guide-solving-discord-video-issues-no-display-wont-load-or-work/"><u>Troubleshooting Guide: Solving Discord Video Issues - No Display, Won't Load or Work</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Asus ROG Phone 7 | Dr.fone</u></a></li>
+</ul></div>
 

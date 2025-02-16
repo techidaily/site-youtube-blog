@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Professional Filmmaking Made Easy with Right Lenses\""
-date: 2024-08-08T16:21:01.427Z
-updated: 2024-08-09T16:21:01.427Z
+date: 2025-02-13T16:55:32.935Z
+updated: 2025-02-15T20:53:27.351Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ In this article, I’m going to help you figure that out.
 * [Part 5: Aperture](#aperture)
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -101,9 +105,17 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -114,6 +126,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -129,6 +145,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -141,9 +161,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -152,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,6 +182,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/nside-look-fundamentals-of-asmr-videos-for-2024/"><u>[New] Inside Look Fundamentals of ASMR Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-live-stream-tech-showdown-soft-vs-hardscape-winners/"><u>[New] Live Stream Tech Showdown Soft vs Hardscape Winners</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-transforming-mundane-interviews-into-memorable-experienrances/"><u>[New] Transforming Mundane Interviews Into Memorable Experienrances</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-flashfreeze-video-interruption-tip/"><u>[Updated] 2024 Approved FlashFreeze Video Interruption Tip</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-techniques-for-unlinking-youtube-videos-from-devices-for-2024/"><u>[Updated] Techniques for Unlinking YouTube Videos From Devices for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unparalleled-selection-of-budget-stock-media-sites/"><u>[Updated] Unparalleled Selection of Budget Stock Media Sites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveil-top-8-websites-with-free-green-screen-video-treasures-for-2024/"><u>[Updated] Unveil Top 8 Websites with FREE Green Screen Video Treasures for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-ultimate-blueprint-for-perfecting-zooms-screen-cast/"><u>2024 Approved The Ultimate Blueprint for Perfecting Zoom's Screen Cast</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-huawei-nova-y71-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Huawei Nova Y71 Phone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-incompatibility-between-windows-and-fingerprint-device/"><u>Addressing Incompatibility Between Windows and Fingerprint Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-language-for-travelers-a-compreited-guide/"><u>Brit Language for Travelers: A Compreited Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ermoves-in-media-how-to-reverse-videos-for-2024/"><u>Countermoves in Media How to Reverse Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-revenue-revolution-unlocking-online-income-through-youtube-monetization/"><u>In 2024, Revenue Revolution Unlocking Online Income Through YouTube Monetization</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/kostenloze-online-omzetting-voor-gif-bestandjes-met-movavi-asnemen/"><u>Kostenloze Online Omzetting Voor Gif-Bestandjes Met Movavi Asnemen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sourav-joshis-guide-to-youtube-earning-power-by-2024/"><u>Sourav Joshi’s Guide to YouTube Earning Power by 2024</u></a></li>
+</ul></div>
 

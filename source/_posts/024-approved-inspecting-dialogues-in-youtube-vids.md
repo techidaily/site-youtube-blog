@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Inspecting Dialogues in YouTube Vids\""
-date: 2024-08-08T16:20:41.893Z
-updated: 2024-08-09T16:20:41.893Z
+date: 2025-02-13T20:28:38.728Z
+updated: 2025-02-15T19:51:52.830Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/cb769af3708fc15b594c9ede31a115d7b902d54d4
 
 # How to Search Comments on YouTube Quickly?
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -76,6 +73,14 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 ![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -102,11 +107,19 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -143,20 +156,21 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,6 +179,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-unplugged-enjoyment-best-indoor-gaming-apps-on-mobile-devices/"><u>[New] In 2024, Unplugged Enjoyment Best Indoor Gaming Apps on Mobile Devices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-it-illegal-to-archive-your-youtube-watch-history-in-2024/"><u>[New] Is It Illegal to Archive Your YouTube Watch History, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-list-mix-a-step-by-step-guide/"><u>[New] Mastering YouTube List Mix A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rime-recommendations-downloading-video-intros-and-templates/"><u>[New] Prime Recommendations Downloading Video Intros & Templates</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-cinematiccapture-easy-screen-recorder-for-win11-pcs-for-2024/"><u>[Updated] CinematicCapture Easy Screen Recorder for Win11 PCs for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-free-thumbnail-extract-from-youtube-videos-today/"><u>[Updated] In 2024, Free Thumbnail Extract From YouTube Videos Today!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-key-strategies-in-building-successful-youtube-shorts-templates/"><u>[Updated] Key Strategies in Building Successful YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-rapid-fire-guide-to-successful-double-exposures-for-2024/"><u>[Updated] Rapid-Fire Guide to Successful Double Exposures for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-sports-highlight-video-creation-for-2024/"><u>[Updated] The Essential Guide to Sports Highlight Video Creation for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-path-to-perfect-videos-with-any-of-these-7-free-tools-for-2024/"><u>[Updated] Your Path to Perfect Videos with Any of These 7 Free Tools for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-leading-15-no-cost-image-editing-apps-top-picks-of-2023/"><u>2024 Approved Leading 15 No-Cost Image Editing Apps - Top Picks of 2023</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722990703799-conquer-diablo-immortal-on-pc-no-more-interruptions-learn-how-to-prevent-crashing-now/"><u>Conquer Diablo Immortal on PC: No More Interruptions, Learn How to Prevent Crashing Now</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-guide-to-the-premier-8-gaming-websites/"><u>Essential Guide to the Premier 8 Gaming Websites</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-x90s-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo X90S to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-ultimate-guide-to-free-flv-video-editors-2023-update/"><u>New 2024 Approved The Ultimate Guide to Free FLV Video Editors (2023 Update)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/gen-streaming-enable-av1-codec-on-youtube-for-2024/"><u>Next-Gen Streaming Enable AV1 Codec on YouTube for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/optimal-8-chatgpt-inquiries-to-reduce-digital-interference/"><u>Optimal 8 ChatGPT Inquiries to Reduce Digital Interference</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-beginners-manual-building-your-ideal-home-audio-experience/"><u>Step-by-Step Beginner's Manual: Building Your Ideal Home Audio Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unbeatable-deal-portable-15n-inch-1080p-ips-monitor-now-just-6599-best-quality-for-the-lowest-price/"><u>Unbeatable Deal: Portable 15.n Inch, 1080P IPS Monitor Now Just $65.99 - Best Quality for the Lowest Price!</u></a></li>
+</ul></div>
 

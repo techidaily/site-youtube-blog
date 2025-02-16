@@ -1,7 +1,7 @@
 ---
 title: Driver Unresponsive - BCM20702A0 Alert
-date: 2025-01-28T20:02:30.238Z
-updated: 2025-02-03T19:49:09.772Z
+date: 2025-02-09T17:35:01.866Z
+updated: 2025-02-15T18:19:34.113Z
 tags:
   - win11
   - win10
@@ -42,17 +42,17 @@ thumbnail: https://thmb.techidaily.com/b855ebe51b5189358ef7af65d06591503136d0471
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/turn-on-and-off-airplane-mode-2.jpg)
 3. Under the Airplane mode,**toggle on** the button.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/turn-on-and-off-airplane-mode-3.jpg)
 4. Restart your computer and**disable the airplane mode** following the steps above.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Check if your Bluetooth works. If not, continue to the second fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2 – Run the Bluetooth troubleshooter
@@ -63,10 +63,14 @@ Check if your Bluetooth works. If not, continue to the second fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/1-1-2.jpg)
 2. Scroll down to find**Bluetooth** and click it. Then click**Run the troubleshooter** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/1-2-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It may take a couple of minutes for the process. Once done, you can follow the on-screen instructions to repair the detected problems and check if the driver error persists. If so, move on to the next fix below.
@@ -94,18 +98,10 @@ Check if your Bluetooth works. If not, continue to the second fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
 3. Click the**Update** button next to the flagged Bluetooth driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/bcm20702a0-driver-update-1.jpg)
 
  After the driver updates, test your Bluetooth devices to see if it works normally. If not, there is one more fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4 – Check the Bluetooth service
 
@@ -115,17 +111,21 @@ Check if your Bluetooth works. If not, continue to the second fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3-1-1.jpg)
 2. Right-click the**Bluetooth Support Service** and click**Start** . If it’s already running, right-click it and click**Restart** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3-2.jpg)
 3. After the service restarts, right-click it again and select**Properties** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3-3.jpg)
 4. Set the **Startup type** to **Automatic** and click **OK** to apply the changes.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now test your device and see if the error gets fixed.
 
@@ -152,15 +152,16 @@ Now test your device and see if the error gets fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/rom-conference-call-to-youtube-stream-how-to-broadcast-google-meet/"><u>[New] From Conference Call to YouTube Stream - How To Broadcast Google Meet</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-a-complete-guide-to-aspect-ratios-about-youtube-videosshortsads/"><u>[New] In 2024, A Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-from-global-reach-to-engagement-deciphering-igtv-and-youtubes-strategies/"><u>[New] In 2024, From Global Reach to Engagement Deciphering IGTV & YouTube’s Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-platform-profitability-showdown-dailymovements-standards-vs-youtube/"><u>[Updated] 2024 Approved Platform Profitability Showdown DailyMovement's Standards Vs Youtube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-varieties-of-fb-video-screens/"><u>[Updated] In 2024, Varieties of FB Video Screens</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-your-hands-on-the-just-released-affordable-apple-10gen-ipad-for-a-steal-at-299-post-prime-day-insider-info-from-zdnet/"><u>Get Your Hands on the Just-Released, Affordable Apple 10Gen iPad for a Steal at $299 Post-Prime Day – Insider Info From ZDNet!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-reset-your-graphics-driver-on-windows-11107/"><u>How to Reset Your Graphics Driver on Windows 11/10/7</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-mastering-vlogging-with-top-12-innovative-screen-swivel-cams/"><u>In 2024, Mastering Vlogging with Top 12 Innovative Screen Swivel Cams</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/smart-contract-functionality-a-game-changer-for-decentralization/"><u>Smart Contract Functionality: A Game-Changer for Decentralization</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-ten-blueprints-for-meme-mastery-for-2024/"><u>Top Ten Blueprints for Meme Mastery for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpert-conversion-tools-for-video-content-for-2024/"><u>[New] Expert Conversion Tools for Video Content for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtubes-aesthetics-enhancing-your-videos/"><u>[New] In 2024, Mastering YouTube's Aesthetics Enhancing Your Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-harnessing-youtubes-power-for-maximum-earnings-via-adsense-for-2024/"><u>[Updated] Harnessing YouTube's Power for Maximum Earnings via AdSense for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-edit-360-degree-video-in-premiere-pro-for-2024/"><u>[Updated] How to Edit 360 Degree Video in Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-fresh-concepts-for-youtube-channels-inspiration-at-its-peak/"><u>[Updated] In 2024, Fresh Concepts for YouTube Channels Inspiration at Its Peak</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-scriptwriting-for-viral-impact-for-2024/"><u>[Updated] Mastering YouTube Scriptwriting for Viral Impact for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-create-standout-videos-with-these-top-7-free-thumbnail-builders/"><u>2024 Approved Create Standout Videos with These Top 7 Free Thumbnail Builders</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-lava-blaze-2-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-poco-c51-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Poco C51 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://discover-great.techidaily.com/step-by-step-tutorial-on-image-blending-using-midjourney-for-newbies/"><u>Step-by-Step Tutorial on Image Blending Using Midjourney for Newbies</u></a></li>
 </ul></div>
 

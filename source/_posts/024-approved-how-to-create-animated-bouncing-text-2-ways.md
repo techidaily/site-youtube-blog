@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Create Animated Bouncing Text [2 Ways]\""
-date: 2024-08-08T16:22:43.190Z
-updated: 2024-08-09T16:22:43.190Z
+date: 2025-02-13T20:58:39.320Z
+updated: 2025-02-15T22:58:33.907Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,11 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
 
@@ -59,11 +60,19 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -72,6 +81,10 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -125,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +161,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/nnovators-crafting-engaging-marvel-escapades/"><u>[New] Innovators Crafting Engaging Marvel Escapades</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-curtail-unexpected-youtube-recommendations-for-2024/"><u>[Updated] Curtail Unexpected YouTube Recommendations for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-content-creation-10-must-have-ig-editing-software/"><u>[Updated] Enhancing Content Creation 10 Must-Have IG Editing Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-finest-list-of-cost-effective-video-conferencing-apps-for-2024/"><u>[Updated] Finest List of Cost-Effective Video Conferencing Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-youtube-subscriber-milestones/"><u>[Updated] In 2024, Mastering YouTube Subscriber Milestones</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unleashing-video-magic-on-tiktok-with-pre-made-designs/"><u>[Updated] In 2024, Unleashing Video Magic on TikTok with Pre-Made Designs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-maze-of-personal-style-and-business-identity-for-2024/"><u>[Updated] Navigating the Maze of Personal Style & Business Identity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-itunes-video-downloading-for-ios-users-for-2024/"><u>[Updated] The Ultimate Guide to iTunes Video Downloading for iOS Users for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-iphone-8-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your iPhone 8 on MetroPCS</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719170601170-live-laugh-and-stream-with-twitch-app-on-the-go/"><u>Live, Laugh & Stream with Twitch App on the Go!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-your-pcs-core-settings-entering-the-bios-on-win-10-and-7-computers/"><u>Navigating Your PC's Core Settings: Entering the BIOS on Win 10 and 7 Computers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-top-rated-mp4-video-editors-with-free-cutting-features-for-2024/"><u>New Top-Rated MP4 Video Editors with Free Cutting Features for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/et-filmmaker-pro/"><u>Snippet Filmmaker Pro</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tricks-and-tips-for-mastering-your-new-win11-experience-for-2024/"><u>Tricks & Tips for Mastering Your New Win11 Experience for 2024</u></a></li>
+</ul></div>
 

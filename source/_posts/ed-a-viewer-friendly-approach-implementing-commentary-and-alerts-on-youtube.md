@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2025-01-27T16:44:23.111Z
-updated: 2025-02-03T18:48:56.639Z
+date: 2025-02-12T21:43:09.857Z
+updated: 2025-02-15T18:18:30.568Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,17 +62,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -78,10 +78,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -100,7 +104,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,21 +166,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ish-on-titles-crafting-captivating-cookery-channel-names-for-2024/"><u>[New] Dish on Titles Crafting Captivating Cookery Channel Names for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-highly-compensated-online-visionary-creator/"><u>[New] In 2024, Highly Compensated Online Visionary Creator</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/remier-choice-the-best-10-recorders-for-tech-talks-for-2024/"><u>[New] Premier Choice The Best 10 Recorders for Tech Talks for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-digital-footprint-how-to-share-your-short-videos-on-computers-and-phones-for-2024/"><u>[Updated] Digital Footprint How to Share Your Short Videos on Computers & Phones for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-audio-purging-techniques-for-streaming-success/"><u>[Updated] In 2024, Audio Purging Techniques for Streaming Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-up-your-earning-potential-with-youtube-shorts-strategy/"><u>[Updated] In 2024, Channel Up Your Earning Potential with YouTube Shorts Strategy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-optimal-7-dslr-recommendations-for-dynamic-video-content/"><u>[Updated] In 2024, Optimal 7 DSLR Recommendations For Dynamic Video Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-approach-fine-tuning-your-youtube-videos-dimensions-and-sizes/"><u>[Updated] In 2024, Step-by-Step Approach Fine-Tuning Your YouTube Videos' Dimensions & Sizes</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-fundamentals-of-screen-capture-with-a-dell-device/"><u>[Updated] In 2024, The Fundamentals of Screen Capture with a Dell Device</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-prestige-pickers-top-ranked-websites-for-snapping-alert-songs-for-2024/"><u>[Updated] Prestige Pickers Top-Ranked Websites for Snapping Alert Songs for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-picture-youtubes-quick-clips/"><u>[Updated] The Complete Picture YouTube's Quick Clips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-teaching-techniques-with-youtube-a-practical-approach/"><u>2024 Approved Teaching Techniques with YouTube A Practical Approach</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-video-capturing-duel-obs-challenges-shadowgl/"><u>2024 Approved Video Capturing Duel OBS Challenges ShadowGL</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-your-next-favorite-film-with-these-7-leading-trailer-pages/"><u>Find Your Next Favorite Film with These 7 Leading Trailer Pages</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-google-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Google</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-reno-10-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Reno 10 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reak-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[New] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-simple-steps-to-change-iphones-call-alert-sounds-for-2024/"><u>[New] Simple Steps to Change iPhones' Call Alert Sounds for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-nba-experience-top-15-ways-to-watch-games-online/"><u>[New] The Ultimate NBA Experience - Top 15 Ways to Watch Games Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>[Updated] 2024 Approved Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-insider-guide-recording-full-desktop-scenes-in-w8/"><u>[Updated] In 2024, Insider Guide Recording Full Desktop Scenes in W8</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-lights-camera-action-youtubes-17-essentials-for-2024/"><u>[Updated] Lights, Camera, Action! - YouTube's #17 Essentials for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>[Updated] Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-fundamentals-of-crafting-youtube-videos-from-scratch/"><u>[Updated] The Fundamentals of Crafting YouTube Videos From Scratch</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-view-counts-with-strategic-video-tagging-techniques/"><u>[Updated] Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-troubleshooting-why-are-your-shorts-thumbnails-hiding/"><u>[Updated] Troubleshooting Why Are Your Shorts' Thumbnails Hiding?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-creation-for-all-ages-crafting-your-first-10-youtube-videos/"><u>[Updated] Video Creation for All Ages Crafting Your First 10 YouTube Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/foundations-of-fast-and-easy-nft-innovation/"><u>Foundations of Fast & Easy NFT Innovation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-content-youtubes-keyword-strategies-exposed/"><u>In 2024, Elevate Your Content YouTube's Keyword Strategies Exposed</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/insiders-review-experience-stunning-visual-quality-with-sony-xbr4ex900f-49-uhd-tv/"><u>Insider's Review: Experience Stunning Visual Quality with Sony XBR4eX900F 49 UHD TV</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-science-of-attractiveness-building-engaging-audio-introductions-for-2024/"><u>The Science of Attractiveness Building Engaging Audio Introductions for 2024</u></a></li>
 </ul></div>
 

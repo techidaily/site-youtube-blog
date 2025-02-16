@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Find Your Comments on YouTube?\""
-date: 2024-08-08T16:21:32.141Z
-updated: 2024-08-09T16:21:32.141Z
+date: 2025-02-14T23:28:53.209Z
+updated: 2025-02-15T21:28:07.759Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,10 @@ Click **Comments** from the right of the **History** page to view all the commen
 
 ![YouTube History Menu  Comments](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Find Your YouTube Comments on an iPhone
 
 Unfortunately, at the time of this writing, the YouTube app for iOS doesn’t have the feature to view your comments history. However, there is a workaround where you can use a web browser on your smartphone to get this done. The process that is given below explains how to view your past YouTube comments on an iPhone:
@@ -73,11 +77,19 @@ Tap the **More Options** icon from the top-left corner of the browser, and then 
 
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/request-desktop-website-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: View Your Past YouTube Comments**
 
 Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. On the **History** page, tap **Comments** from the right pane to view/access your YouTube comments that you posted in the past.
 
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
@@ -115,10 +127,11 @@ Open your favorite Internet browser, go to <https://www.youtube.com>, and sign i
 
 Make sure that the **Uploads** tab is selected on the **Channel content** window, and check the number under the **Comments** column of each video to see how many comments that particular film has received. You can click the number for any video to view its comments.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Hide or Hold a Comment for Approval**
 
@@ -148,6 +161,10 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -170,6 +187,14 @@ Choose **Comments** from the search type drop-down list, enter the name of the u
 
 ![Serach  YouTube Comments of specific users](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
 Editing an existing YouTube comment that you have posted earlier, or replying to the one published by someone else is simple. The process is given below:
@@ -183,6 +208,10 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -210,6 +239,10 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 **Q1) Why can’t I see the comments I posted?**
@@ -230,14 +263,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,6 +276,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-methods-for-eliminating-invisible-youtube-playback/"><u>[New] In 2024, Methods for Eliminating Invisible YouTube Playback</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-premium-picks-for-the-ultimate-gopro-experience/"><u>[New] In 2024, Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/everaging-your-smartphone-a-2024-tutorial-on-youtubing-money/"><u>[New] Leveraging Your Smartphone A 2024 Tutorial on YouTubing Money</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/treamers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos-for-2024/"><u>[New] Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-ultimate-guide-top-10-high-quality-no-cost-recording-tools/"><u>[New] Ultimate Guide Top 10 High-Quality, No-Cost Recording Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-building-a-successful-career-through-youtube-short-film-making/"><u>[Updated] 2024 Approved Building a Successful Career Through YouTube Short Film-Making</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-professional-tips-integrating-closed-captions-with-ease-on-youtube/"><u>[Updated] 2024 Approved Professional Tips Integrating Closed Captions with Ease on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-practical-technique-swap-film-direction-in-vlc-player/"><u>2024 Approved Practical Technique Swap Film Direction in VLC Player</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-repair-techniques-for-a-non-functional-lenovo-fingerprint-reader/"><u>Effortless Repair Techniques for a Non-Functional Lenovo Fingerprint Reader</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723964489278-elevate-your-pc-experience-with-a-deal-on-asus-rog-strix-scope-ii-keyboard-save-69/"><u>Elevate Your PC Experience with a Deal on ASUS ROG Strix Scope II Keyboard – Save $69</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/quality-youtube-images-download-without-any-cost-in-2024/"><u>High-Quality YouTube Images Download Without Any Cost, In 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-14-pro-max-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 14 Pro Max Passcode Easily Video Inside</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-your-sticky-notes-not-syncing-on-windows-11/"><u>How to Fix Your Sticky Notes Not Syncing on Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-beats-now-at-your-fingertips-in-imovie-editing/"><u>In 2024, YouTube Beats, Now at Your Fingertips in iMovie Editing</u></a></li>
+<li><a href="https://games-able.techidaily.com/spine-support-ergonomic-gaming-chair-hacks/"><u>Spine Support: Ergonomic Gaming Chair Hacks</u></a></li>
+</ul></div>
 

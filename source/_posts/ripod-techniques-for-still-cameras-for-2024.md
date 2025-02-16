@@ -1,7 +1,7 @@
 ---
 title: "\"Non-Tripod Techniques for Still Cameras for 2024\""
-date: 2025-01-29T16:36:29.281Z
-updated: 2025-02-02T03:53:55.145Z
+date: 2025-02-13T17:35:05.051Z
+updated: 2025-02-15T23:40:32.082Z
 tags:
   - ai video
   - ai youtube
@@ -33,15 +33,15 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
@@ -60,7 +60,7 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -68,12 +68,16 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -93,7 +97,7 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -126,10 +130,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,14 +151,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-spin-the-web-advanced-tips-for-video-orientation-in-youtube/"><u>[Updated] 2024 Approved Spin the Web Advanced Tips for Video Orientation in YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>[Updated] Beginner's Blueprint for Online Content Simple, Straightforward Video Projects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-invest-in-your-health-these-10-best-yoga-streams-exist/"><u>[Updated] Invest in Your Health - These 10 Best Yoga Streams Exist</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-leverage-editing-to-boost-youtube-profile-impact-for-2024/"><u>[Updated] Leverage Editing to Boost YouTube Profile Impact for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-enlighten-your-images-mastering-iphone-photography-lighting/"><u>2024 Approved Enlighten Your Images Mastering iPhone Photography Lighting</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-vivo-y55s-5g-2023-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Vivo Y55s 5G (2023) Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-beneath-the-surface-assessing-huawei-p10-writability-features/"><u>In 2024, Beneath the Surface Assessing Huawei P10' Writability Features</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/reversing-printer-freezes/"><u>Reversing Printer Freezes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-decoding-digital-dollars-an-effective-triple-step-process-to-determine-your-subscriber-profits/"><u>[New] 2024 Approved Decoding Digital Dollars An Effective Triple Step Process to Determine Your Subscriber Profits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-pro-shortcuts-every-youtuber-needs-the-top-20-list/"><u>[New] 2024 Approved Pro Shortcuts Every YouTuber Needs - The Top 20 List</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-uncover-the-secret-correcting-mobile-video-sharing-on-fb-messenger/"><u>[Updated] 2024 Approved Uncover the Secret Correcting Mobile Video Sharing on FB Messenger</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-instantly-accessible-downloading-youtube-playlists-effortlessly-for-2024/"><u>[Updated] Instantly Accessible Downloading YouTube Playlists Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-techniques-for-efficiently-blending-flv-files/"><u>[Updated] Techniques for Efficiently Blending FLV Files</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-modern-techniques-for-gesture-interpretation/"><u>[Updated] Unveiling Modern Techniques for Gesture Interpretation</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-everyone-together-online-posts-for-complete-groups/"><u>Bringing Everyone Together Online: Posts for Complete Groups</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-cutting-edge-method-quick-erasure-of-youtube-comments/"><u>In 2024, Cutting-Edge Method Quick Erasure of Youtube Comments</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-blade-a73-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock ZTE Blade A73 5G Bootloader Easily</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/upgrade-your-canon-eos-digital-rebel-xs-d530-with-the-newest-software-patches/"><u>Upgrade Your Canon EOS Digital Rebel XS (D530) with the Newest Software Patches</u></a></li>
 </ul></div>
 

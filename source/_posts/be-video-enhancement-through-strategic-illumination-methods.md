@@ -1,7 +1,7 @@
 ---
 title: "YouTube Video Enhancement Through Strategic Illumination Methods"
-date: 2025-02-01T17:41:18.919Z
-updated: 2025-02-03T16:47:24.209Z
+date: 2025-02-14T19:01:12.812Z
+updated: 2025-02-15T16:32:49.116Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1.  Window Lighting
@@ -58,15 +58,15 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -75,7 +75,7 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
@@ -87,7 +87,7 @@ If you rather not deal with all the window and home lighting challenges, you can
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -96,15 +96,15 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -143,20 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-make-music-accessible-with-a-well-designed-youtube-playlist/"><u>[New] In 2024, Make Music Accessible with a Well-Designed YouTube Playlist</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-premier-service-youtube-to-written-summary/"><u>[New] In 2024, Premier Service YouTube to Written Summary</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-confirming-correct-youtube-ad-revenue-allocation/"><u>[Updated] 2024 Approved Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>[Updated] In 2024, Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximizing-engagement-ideal-youtube-thumbnail-dimensions/"><u>[Updated] In 2024, Maximizing Engagement Ideal YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-optimal-zooctorial-design-arrays/"><u>[Updated] In 2024, Optimal Zooctorial Design Arrays</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-premier-asmr-vloggers-you-cant-miss/"><u>[Updated] In 2024, Premier ASMR Vloggers You Can't Miss</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-infographic-guide-effective-video-promotion-tools/"><u>[Updated] Infographic Guide Effective Video Promotion Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/narration-devisee-for-2024/"><u>Clip Narration Devisee for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/elevate-your-workflow-6-top-uses-for-ai-in-data-analysis/"><u>Elevate Your Workflow: 6 Top Uses for AI in Data Analysis</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-media-top-ranking-camera-apps-for-iphonesandroid-devices-for-2024/"><u>Exploring Media Top-Ranking Camera Apps for iPhones/Android Devices for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-redmi-k70e-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi Redmi K70E For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-comctl32dll-not-found-a-detailed-guide/"><u>Overcoming 'Comctl32.dll' Not Found - A Detailed Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/streamlabs-obs-review-and-alternative/"><u>Streamlabs OBS Review and Alternative</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-5-affordable-webcams-expert-review/"><u>Top 5 Affordable Webcams : Expert Review</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-global-streaming-giants-face-off-facebook-live-youtube-live-periscope/"><u>[New] 2024 Approved Global Streaming Giants' Face-Off Facebook Live, YouTube Live, Periscope</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-overcome-artificial-watches-for-natural-views/"><u>[New] In 2024, Overcome Artificial Watches for Natural Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/allying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>[New] Rallying Towards Partnership Reach the Critical 10K View Target Quickly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/riumph-in-the-digital-arena-discovering-youtubes-top-five-tactics-for-2024/"><u>[New] Triumph in the Digital Arena - Discovering YouTube’s Top Five Tactics for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-personalized-branding-made-easy-use-free-logo-templates-and-edit/"><u>[Updated] 2024 Approved Personalized Branding Made Easy Use Free Logo Templates and Edit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mediameld-editsuite-for-2024/"><u>[Updated] MediaMeld EditSuite for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-photographers-guide-to-online-image-editing-and-cropping/"><u>[Updated] The Photographer's Guide to Online Image Editing and Cropping</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-6-figure-visibility-on-youtube-via-optimal-hashtags/"><u>[Updated] Unlock 6-Figure Visibility on YouTube via Optimal Hashtags</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726226856375-6/"><u>無料の動画圧縮ソフト6選！高速・軽量圧縮アプリ満載</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boost-your-broadcast-three-steps-to-successful-youtube-streaming-for-2024/"><u>Boost Your Broadcast Three Steps to Successful YouTube Streaming for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/easy-video-calls-with-googles-hangouts-on-your-android/"><u>Easy Video Calls with Google's Hangouts on Your Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-navigating-hashtags-for-a-6-figure-view-spike-on-youtube/"><u>In 2024, Navigating Hashtags for a 6-Figure View Spike on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-realme-11-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Realme 11 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izing-your-content-deciphering-the-minimum-views-needed/"><u>Monetizing Your Content Deciphering the Minimum Views Needed</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolving-intel-hd-graphics-630-problems-in-windows-a-comprehensive-guide/"><u>Resolving Intel HD Graphics 630 Problems in Windows: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-chatgpt-for-businesses-offerings-and-unique-selling-points/"><u>Understanding ChatGPT for Businesses - Offerings & Unique Selling Points</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/l-anonymity-in-sharing-blurring-methods-explained/"><u>Visual Anonymity in Sharing Blurring Methods Explained</u></a></li>
 </ul></div>
 

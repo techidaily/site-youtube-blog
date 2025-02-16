@@ -1,7 +1,7 @@
 ---
 title: "\"Maximizing Impact  5 Secrets for Increasing Your Video' Writes\""
-date: 2025-01-26T01:00:34.123Z
-updated: 2025-02-01T16:29:07.527Z
+date: 2025-02-13T16:33:23.978Z
+updated: 2025-02-15T23:02:33.692Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ Audience Retention is an important metric to keep an eye on after every video yo
 
 ![low-audience-retention](https://images.wondershare.com/filmora/article-images/measurign-audience-retention.png.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Before you start your next project, take a look back at the Audience Retention of your previous videos.  
 
 1. Enter YouTube Studio in your channel
@@ -70,16 +66,24 @@ If you get above **60%** Average Percentage Viewed, you should feel very proud. 
 
 ![audience-retention-one](https://images.wondershare.com/filmora/audience-retention-one.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the example above, we see that on average, a viewer will only see 44% of the video. For the video below, we see that it only has 30% of the video viewed. Overall, the first video is performing better.
 
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
 If there is important information that you are presenting at a given point and in the Audience Retention you see that only a small percentage of your viewers actually see it, then for the next video, you might want to position the details in a different point in the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How to Improve Audience Retention**
@@ -100,9 +104,17 @@ If you have a video that is doing a good job retaining the audience, then replic
 
 Knowing how to structure your video will allow you to be strategic as you build out your content.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Do Keyword Research:**
 
 Many viewers find YouTube videos via search, and if you aren’t using the appropriate keywords, then YouTube won’t be able to identify your content and display it for your viewers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Where Do Keywords Appear on YouTube?**
 
@@ -131,7 +143,7 @@ Here is how you can see what keywords were used to find your video:
 ![traffic-source](https://images.wondershare.com/filmora/article-images/traffic-source-youtube-search.png.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you want to find some new keywords for your upcoming video, you will need to do some research.
@@ -144,17 +156,9 @@ If you want to find some new keywords for your upcoming video, you will need to 
 
 ![vidlq-tool](https://images.wondershare.com/filmora/vidlq-tool.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3\. Search for Related Keywords and Evaluate Relevancy:** A tool called [Ubersuggest](https://neilpatel.com/ubersuggest/)can help you find related keywords and allow you to identify the search volume, cost per click (aka CPC is used for determining the budget for paid search), and the competitiveness of the word or phrase.
 
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
 
@@ -193,7 +197,7 @@ Here is an example of how it would work:
 It’s all about creating a community and that is what YouTube encourages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Upload YouTube Video in Proper Length:**
@@ -214,10 +218,6 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 
 ![related-videos-for-your-audience](https://images.wondershare.com/filmora/related-videos-for-your-audience.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Playlist**: If you have multiple videos that fit a specific topic, add them to a playlist so the viewer can enjoy them all in one viewing.
 
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
@@ -229,10 +229,6 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 3. **Increasing Subscribers** gets your video in front of more people the moment it is published.
 4. **Encourage Comments** and respond to establish a relationship with your viewers.
 5. Ensure that **Viewers Continue Watching** videos on YouTube after they finish watching yours.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Other Things That Affects Your YouTube Ranking**
 
@@ -262,6 +258,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -283,19 +283,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[New] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-video-creator-hub/"><u>[New] In 2024, Video Creator Hub</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-the-ultimate-recording-playbook-your-roblox-adventures-transformed-for-2024/"><u>[New] The Ultimate Recording Playbook Your Roblox Adventures, Transformed for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-youtube-the-ultimate-guide-to-video-trimming/"><u>[Updated] 2024 Approved Mastering YouTube The Ultimate Guide to Video Trimming</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-frame-by-frame-the-smartphone-storytellers-path-to-youtubes-thumbnails/"><u>[Updated] In 2024, Frame by Frame The Smartphone Storyteller's Path to YouTubes Thumbnails</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-slow-motions-camera-edition/"><u>[Updated] In 2024, Leading Slow-Motions Camera Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-skyrocketing-traffic-with-these-top-12-youtube-optimization-techniques-for-2024/"><u>[Updated] Skyrocketing Traffic with These Top 12 YouTube Optimization Techniques for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-navigating-to-your-subscription-statistics/"><u>2024 Approved Navigating to Your Subscription Statistics</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/digital-cash-creation-a-closer-look-at-vids-vs-videos-for-2024/"><u>Digital Cash Creation A Closer Look at Vids Vs. Videos for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/sh-your-potential-with-these-elite-12-vlogger-friendly-cameras/"><u>Unleash Your Potential with These Elite 12 Vlogger-Friendly Cameras</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/freedom-awaits-explore-these-top-6-youtube-shortdowners-for-2024/"><u>Your Freedom Awaits Explore These Top 6 YouTube Shortdowners for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/youtube-url-your-way-easy-personalization-steps-for-2024/"><u>Your YouTube URL, Your Way Easy Personalization Steps for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-celestial-craftsmanship-perfecting-night-portraits-step-by-step/"><u>[New] Celestial Craftsmanship Perfecting Night Portraits Step-by-Step</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-clips-to-classrooms-harnessing-youtubes-potential-for-teaching/"><u>[New] From Clips to Classrooms Harnessing YouTube's Potential for Teaching</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-to-webm-the-finest-video-converters-unveiled/"><u>[New] YouTube-to-WebM The Finest Video Converters Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-guidance-to-youtube-music-mix-for-2024/"><u>[Updated] Guidance to YouTube Music Mix for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-reducing-noise-sensitivity-in-logic-pro-mixes/"><u>[Updated] Reducing Noise Sensitivity in Logic Pro Mixes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-wm-maker-playbook-for-youtube-clips-perfection-for-2024/"><u>[Updated] The Complete WM Maker Playbook for YouTube Clips Perfection for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-hacking-the-art-of-high-quality-twitch-video-captures/"><u>2024 Approved Hacking the Art of High-Quality Twitch Video Captures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-extract-youtube-content-easily-for-2024/"><u>How to Extract YouTube Content Easily for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-realme-c51-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Realme C51 to Roku | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-honor-70-lite-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Honor 70 Lite 5G Lock Screen Password</u></a></li>
+<li><a href="https://games-able.techidaily.com/playstation-plus-or-xbox-game-pass-which-wins/"><u>PlayStation Plus or Xbox Game Pass? Which Wins?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-cure-windows-store-error-0x80072efd/"><u>Steps to Cure Windows Store Error 0X80072EFD</u></a></li>
 </ul></div>
 

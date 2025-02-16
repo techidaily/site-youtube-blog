@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering YouTube Notes & Alerts Implementation\""
-date: 2024-08-08T16:23:02.425Z
-updated: 2024-08-09T16:23:02.425Z
+date: 2025-02-09T22:50:51.160Z
+updated: 2025-02-15T22:57:09.911Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
@@ -63,10 +67,11 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -80,10 +85,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -123,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,6 +159,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>[New] 2024 Approved Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-select-top-6-slideshow-creation-software-for-x-models/"><u>[New] In 2024, Select Top 6 Slideshow Creation Software for X Models</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-htc-vive-comfort-top-strategies-to-prevent-discomfort/"><u>[Updated] In 2024, HTC Vive Comfort Top Strategies to Prevent Discomfort</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-simplify-audio-extraction-find-the-most-affordable-solutions/"><u>[Updated] In 2024, Simplify Audio Extraction Find the Most Affordable Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-insider-guide-to-gaming-channel-header-templates/"><u>[Updated] In 2024, The Insider Guide to Gaming Channel Header Templates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-fast-photoshop-edits-on-windows-11/"><u>[Updated] Master Fast Photoshop Edits on Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-thumbnails-top-20-fonts-for-stellar-credits/"><u>[Updated] YouTube Thumbnails - Top 20 Fonts for Stellar Credits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-fullview-media-collaboration-guidebook/"><u>2024 Approved FullView Media Collaboration Guidebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ranked-linuxs-foremost-screenshot-programs/"><u>2024 Approved Ranked Linux's Foremost Screenshot Programs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-gionee-f3-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Gionee F3 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/avi-to-webm-online-free-converter-movavis-step-by-step-guide/"><u>AVI to WebM Online Free Converter - Movavi's Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlock-11-budget-friendly-creativity-for-youtube-names/"><u>In 2024, Unlock 11 Budget-Friendly Creativity for YouTube Names</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-name-selection-for-distinctive-youtube-channels-for-2024/"><u>Mastering Name Selection for Distinctive YouTube Channels for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-trending-programming-languages-and-their-significance-an-in-depth-look/"><u>Top Trending Programming Languages & Their Significance: An In-Depth Look</u></a></li>
+</ul></div>
 
