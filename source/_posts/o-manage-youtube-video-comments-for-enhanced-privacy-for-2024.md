@@ -1,7 +1,7 @@
 ---
 title: "How to Manage YouTube Video Comments for Enhanced Privacy for 2024"
-date: 2025-02-12T20:38:41.314Z
-updated: 2025-02-15T21:43:00.999Z
+date: 2025-03-02T17:42:28.885Z
+updated: 2025-03-04T19:35:42.768Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -48,10 +44,6 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -70,10 +62,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -106,10 +94,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -163,10 +147,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,22 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/iniature-mastery-in-the-social-sphere-who-wins-with-youtube-shorts-or-tiktoks-for-2024/"><u>[New] Miniature Mastery in the Social Sphere Who Wins with YouTube Shorts or TikToks for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/roven-performers-the-best-of-8-mirrorless-cameras-for-video-creators-for-2024/"><u>[New] Proven Performers The Best of 8 Mirrorless Cameras for Video Creators for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-7-dslr-picks-to-upgrade-your-vlog-production/"><u>[New] Ultimate 7 DSLR Picks to Upgrade Your Vlog Production</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-professional-thumbnail-tactics-dos-and-donts-guidebook/"><u>[Updated] 2024 Approved Professional Thumbnail Tactics Do's and Don'ts Guidebook</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-youtube-organizing-music-into-a-playlist-for-2024/"><u>[Updated] Mastering YouTube Organizing Music Into a Playlist for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-safe-mp3-extraction-three-methods-for-youtube-audio-conversion-for-2024/"><u>[Updated] Safe MP3 Extraction Three Methods for YouTube Audio Conversion for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-process-to-revamp-your-youtube-audio-tracks-for-2024/"><u>[Updated] Step-by-Step Process to Revamp Your YouTube Audio Tracks for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-benefits-of-tubebuddy-manage-your-youtube-channel/"><u>[Updated] The Benefits of TubeBuddy | Manage Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-the-full-potential-of-youtubes-adsense-features-for-2024/"><u>[Updated] Unlocking the Full Potential of YouTube's AdSense Features for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-optimizing-stream-rates-on-netflix/"><u>2024 Approved Optimizing Stream Rates on Netflix</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/dealing-with-wpcapsddll-errors-solutions-to-handle-missing-or-non-existent-file-problems/"><u>Dealing with wpcapsd.dll Errors: Solutions to Handle 'Missing' Or Non-Existent File Problems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/driving-income-from-views-on-youtube/"><u>Driving Income From Views on YouTube</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-elevate-your-mobile-videos-top-vertical-editing-apps-for-ios-and-android/"><u>New 2024 Approved Elevate Your Mobile Videos Top Vertical Editing Apps for iOS and Android</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pro-tips-for-swift-online-czech-study/"><u>Pro Tips for Swift Online Czech Study</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-gionee-f3-pro-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Gionee F3 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/sh-creativity-exclusive-free-youtube-banner-templates-for-2024/"><u>Unleash Creativity - Exclusive Free YouTube Banner Templates for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-engaging-content-with-google-trends-analytics-for-2024/"><u>[New] Crafting Engaging Content with Google Trends Analytics for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-score-selection-service-enhancing-media-pieces-for-2024/"><u>[New] Score Selection Service Enhancing Media Pieces for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-free-youtube-download-methods-without-apps/"><u>[Updated] 2024 Approved Free YouTube Download Methods Without Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sustainable-practices-greening-urban-landscapes/"><u>[Updated] 2024 Approved Sustainable Practices Greening Urban Landscapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-practices-for-adding-content-enhancements-cards-for-2024/"><u>[Updated] Best Practices for Adding Content Enhancements (Cards) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-skyrocket-traffic-key-strategies-for-youtube-videos/"><u>[Updated] In 2024, Skyrocket Traffic Key Strategies for YouTube Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apple-watch-os-11-upgrade-unveiled-discover-the-latest-innovative-features-now-available/"><u>Apple Watch OS 11 Upgrade Unveiled - Discover the Latest Innovative Features Now Available</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-your-channel-techniques-for-logo-insertion-in-videos-for-2024/"><u>Elevate Your Channel Techniques for Logo Insertion in Videos for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-13-mini-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 13 mini When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-xiaomi-redmi-13c-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Xiaomi Redmi 13C 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-rated-dj-templates-free-access-for-music-makers/"><u>In 2024, Top-Rated DJ Templates Free Access for Music Makers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/startup-guide-for-windows-11s-instant-aid-tool/"><u>Startup Guide for Windows 11’S Instant Aid Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-essential-toolkit-choosing-the-best-lens-technology-in-4k/"><u>The Essential Toolkit Choosing the Best Lens Technology in 4K</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-tv-explained-essential-knowledge-for-all-viewers-for-2024/"><u>YouTube TV Explained Essential Knowledge for All Viewers for 2024</u></a></li>
 </ul></div>
 

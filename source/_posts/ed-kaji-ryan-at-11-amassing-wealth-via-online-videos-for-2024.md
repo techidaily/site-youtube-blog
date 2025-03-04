@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Kaji Ryan  At 11, Amassing Wealth via Online Videos for 2024\""
-date: 2025-02-12T18:16:57.855Z
-updated: 2025-02-15T21:52:50.730Z
+date: 2025-02-26T18:13:04.026Z
+updated: 2025-03-04T17:50:16.331Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ Before going into this in detail, here is an overall summary of Ryan Kaji and hi
 
 Now that we know the primary data about Ryan, read on to learn about how he became famous on YouTube and his overall income, in more detail.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Ryan Kaji YouTube Earning and Stats
 
 After seeing the notes about **Ryan’s World's yearly income** and other points, you must wonder how it has increased over the years. To simplify, most of his income comes from YouTube in terms of views and ad revenue, like most YouTubers.
@@ -73,10 +69,6 @@ Other than that, his subscriber count also accounts for a portion of what the Yo
 
 ![ryans world total views and subscriber count](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To calculate **Ryan World net worth in 2020**, the jump from 2022, and how it grew since 2015 overall, the ads play a major role. Typically, YouTubers earn around USD 3-7 for every 1000 views. His videos get around 277.59 million views per month. So, the overall count can extend to USD 1.11 million per month.
 
 If he earns higher, like USD 7 for every 1000 views, his annual average can increase reach around USD 29.98 million instead of the estimated USD 16.66 million.
@@ -84,10 +76,6 @@ If he earns higher, like USD 7 for every 1000 views, his annual average can incr
 Moreover, YouTubers earn from other sources besides the ads on their videos, so the overall **Ryan YouTube income** is likely even higher monthly and yearly. These additional sources include affiliate commissions, sponsorships, interviews at other platforms, and product sales/merchandise.
 
 ![ryan kaji merchandise](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Here is a quantified average of the earning statistics for **Ryan’s World income** in tabular format.
 
@@ -99,10 +87,6 @@ Here is a quantified average of the earning statistics for **Ryan’s World inco
 | Subscribers                             | 33.3 million      |
 | Video Views (on average)                | 800,000+          |
 | Views for the last 30 days (on average) | 277.59 million    |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Ryan Kaji’s Annual Income between 2016-2022
 
@@ -186,10 +170,6 @@ Step3 After choosing the video file or files from your device, drag them to the 
 
 ![drag video to editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 From the toolbar just above the timeline, click on the standard functions you want to use for editing the video. For example, click on the file and press the Crop icon.
 
 ![press the crop icon](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-9.jpg)
@@ -205,10 +185,6 @@ Step6 After completing the edits, click the Export button. Choose to download it
 Or, you can directly post the video to your linked YouTube account.
 
 ![linked youtube account](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step7 Tap the Export button.
 
@@ -247,10 +223,6 @@ Before going into this in detail, here is an overall summary of Ryan Kaji and hi
 | **Awards and Recognition**          | · Ranked No. 23 on Top Creators List, Forbes 2022.· Ryan's World ranks as one of the top 100 YouTube channels. |
 
 ![ryan kaji in video](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now that we know the primary data about Ryan, read on to learn about how he became famous on YouTube and his overall income, in more detail.
 
@@ -293,10 +265,6 @@ As he grew in age, his content shifted to fit his interests at 6 years of age, w
 
 In 2020, he earned around USD 29.5 million and USD 27 million in 2021\. The **Ryan ToysReview income** further grew to USD 35 million in 2022, and it is expected to increase in the upcoming time, especially with his videos raking in millions of views in recent times.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Popularity across social media
 
 The leading social media platform where Ryan Kaji grew his strength is YouTube, and he currently enjoys a massive fan following. His channel, Ryan’s World, has an overall subscriber base of around 33.3 million YouTube users. These include primarily children as well as other adults, either who enjoy his content or those who watch along with their kids. He also has an Instagram account for his channel with around 159k followers.
@@ -367,10 +335,6 @@ Step3 After choosing the video file or files from your device, drag them to the 
 
 ![drag video to editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 From the toolbar just above the timeline, click on the standard functions you want to use for editing the video. For example, click on the file and press the Crop icon.
 
 ![press the crop icon](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-9.jpg)
@@ -388,10 +352,6 @@ Or, you can directly post the video to your linked YouTube account.
 ![linked youtube account](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-11.jpg)
 
 Step7 Tap the Export button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -424,18 +384,24 @@ But, while starting, your funding will be less. It would help if you handled the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>[New] In 2024, Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-post-youtube-videos-as-instagram-stories/"><u>[New] In 2024, How to Post YouTube Videos as Instagram Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-covert-community-top-5-anonymous-viewers-for-2024/"><u>[New] The Covert Community Top 5 Anonymous Viewers for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-living-large-with-youtube-premium-the-inside-story/"><u>[Updated] 2024 Approved Living Large with YouTube Premium The Inside Story</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-sharing-your-privacy-guarded-yt-clip-via-gmail-pro/"><u>[Updated] 2024 Approved Mastering Sharing Your Privacy-Guarded YT Clip via Gmail Pro</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/samsung-mcwindows-111087m2-ssd/"><u>無料Samsung M.Cクローンツール：Windows 11/10/8/7用の簡易M.2 SSDコピーソフトウェア</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-online-converter-transforming-aac-audio-files-into-m4r-format-with-ease-movavi/"><u>Free Online Converter: Transforming AAC Audio Files Into M4R Format with Ease - Movavi</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-honor-x50-gt-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor X50 GT phone? | Dr.fone</u></a></li>
-<li><a href="https://fox-where.techidaily.com/solving-windows-11-driver-installation-issues-in-depth/"><u>Solving Windows 11 Driver Installation Issues in Depth</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/mers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos-in-2024/"><u>Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos, In 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-motorola-razr-40-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Motorola Razr 40 Phone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/ultimate-text-to-video-best-online-platforms-for-vids-for-2024/"><u>Ultimate Text-to-Video Best Online Platforms for Vids for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-best-free-online-audio-trimmers-to-trim-audio-easily/"><u>Updated Best Free Online Audio Trimmers to Trim Audio Easily</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-accelerated-file-format-change-from-srt-to-simple-txt-for-2024/"><u>[New] Accelerated File Format Change From SRT to Simple TXT for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastery-in-migrating-youtube-videos-to-igtv-platform/"><u>[New] In 2024, Mastery in Migrating YouTube Videos to IGTV Platform</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigate-through-green-screen-muddle-on-mac-for-smooth-youtubing/"><u>[New] In 2024, Navigate Through Green Screen Muddle on Mac for Smooth YouTubing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubes-quick-tunes-essential-insights-for-short-video-fans-for-2024/"><u>[New] YouTube's Quick Tunes Essential Insights for Short Video Fans for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-cut-to-impress-youtube-video-editing-made-simple/"><u>[Updated] 2024 Approved Cut to Impress YouTube Video Editing Made Simple</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-steps-for-mp3-streams-on-youtube/"><u>[Updated] 2024 Approved Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-snickerscreen-composer/"><u>[Updated] In 2024, SnickerScreen Composer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-your-youtube-music-collection-a-detailed-guide/"><u>[Updated] Unlocking Your YouTube Music Collection A Detailed Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-ranked-list-of-pristine-cost-free-websites-for-designers-delight/"><u>2024 Approved Ranked List of Pristine, Cost-Free Websites for Designers' Delight</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-infinix-hot-40-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Infinix Hot 40 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/epic-hollywood-action-flicks-list-best-picks-for-free-viewing-and-download/"><u>Epic Hollywood Action Flicks List: Best Picks for Free Viewing and Download</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/free-online-converter-transform-wmv-files-into-ogv-format-movevi/"><u>Free Online Converter: Transform WMV Files Into OGV Format - MoveVi</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ere-a-science-to-youtubes-quick-subscribe-tactic/"><u>Is There a Science to YouTube's Quick Subscribe Tactic?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-ios-hurdles-effective-ways-to-tackle-error-14-on-your-iphone/"><u>Overcoming iOS Hurdles: Effective Ways to Tackle Error 14 on Your iPhone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-art-of-track-blending-simplifying-the-music-splicing-process/"><u>The Art of Track Blending: Simplifying the Music Splicing Process</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ompreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-earnings-guide-achieving-profitability-through-view-counts-for-2024/"><u>YouTube Earnings Guide Achieving Profitability Through View Counts for 2024</u></a></li>
 </ul></div>
 

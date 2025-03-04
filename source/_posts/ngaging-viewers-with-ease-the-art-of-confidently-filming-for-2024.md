@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engaging Viewers with Ease  The Art of Confidently Filming for 2024\""
-date: 2025-02-13T23:50:07.006Z
-updated: 2025-02-15T21:35:42.655Z
+date: 2025-02-25T18:53:30.540Z
+updated: 2025-03-04T22:24:32.998Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -67,10 +63,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -78,10 +70,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -139,15 +127,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -170,18 +150,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/op-student-vids-essential-histories-channel-list-for-2024/"><u>[New] Top Student Vids Essential Histories Channel List for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-video-color-correction-for-youtube-beauty/"><u>[New] Video Color Correction for YouTube Beauty</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-10-screenshot-enhancers-ios-and-android-sticker-edition/"><u>[Updated] In 2024, Top 10 Screenshot Enhancers IOS & Android Sticker Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-optimizing-youtube-videos-for-igtv-exposure-for-2024/"><u>[Updated] Optimizing YouTube Videos for IGTV Exposure for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-selecting-prime-meme-blueprints/"><u>[Updated] Selecting Prime Meme Blueprints</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-infinix-note-30-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Infinix Note 30 Pro</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-ultimate-guide-to-choosing-a-screen-swivel-cam-for-your-needs/"><u>In 2024, The Ultimate Guide to Choosing a Screen Swivel Cam for Your Needs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-understanding-satire-building-parodies-online/"><u>In 2024, Understanding Satire Building Parodies Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/r-class-in-music-production-dj-video-samples-galore-for-2024/"><u>Master Class in Music Production DJ Video Samples Galore for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-text-reception-problems-on-your-android-device/"><u>Troubleshooting Text Reception Problems on Your Android Device</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-take-your-audio-to-the-next-level-top-10-editing-software/"><u>Updated 2024 Approved Take Your Audio to the Next Level Top 10 Editing Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-mastering-youtube-playlist-creation-tips-and-tricks/"><u>[New] 2024 Approved Mastering YouTube Playlist Creation Tips and Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-art-of-curating-credible-outro-vibes/"><u>[New] In 2024, The Art of Curating Credible Outro Vibes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-guide-sharing-your-private-youtube-snippets-via-email/"><u>[New] In 2024, The Ultimate Guide Sharing Your Private YouTube Snippets via Email</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-proven-methods-to-improve-macro-video-quality-and-aesthetics/"><u>[New] Proven Methods to Improve Macro Video Quality and Aesthetics</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-step-by-step-elevating-your-photos-with-online-cropping/"><u>[Updated] 2024 Approved Step-by-Step Elevating Your Photos with Online Cropping</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-effortless-and-economical-the-best-free-youtube-name-generators/"><u>[Updated] In 2024, Effortless & Economical The Best Free YouTube Name Generators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sonic-excellence-strategies-to-amplify-your-audio-quality/"><u>[Updated] Sonic Excellence Strategies to Amplify Your Audio Quality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-backstage-pass-creating-content-that-works-for-2024/"><u>[Updated] The Backstage Pass Creating Content That Works for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-tips-for-reducing-unsteady-shots-for-2024/"><u>[Updated] Tips for Reducing Unsteady Shots for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-digital-arcade-over-a-hundred-game-channels/"><u>2024 Approved Digital Arcade Over a Hundred Game Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-microphones-for-various-youtube-content-creators/"><u>2024 Approved Top Microphones for Various YouTube Content Creators</u></a></li>
+<li><a href="https://win-unique.techidaily.com/diagnose-and-repair-sound-card-errors-with-our-step-by-step-troubleshooting-tips-from-yl-software/"><u>Diagnose and Repair Sound Card Errors with Our Step-by-Step Troubleshooting Tips From YL Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-support-mov-videos-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Xiaomi support MOV videos ?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ights-and-soft-shadows-for-vloggers/"><u>Key Lights and Soft Shadows for Vloggers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-drivers-available-to-install-logitech-speakers-on-various-windows-systems/"><u>Latest Drivers Available to Install Logitech Speakers on Various Windows Systems</u></a></li>
+<li><a href="https://some-tips.techidaily.com/strong-robust/"><u>Strong - Robust</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

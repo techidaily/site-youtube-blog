@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Activating or Deactivating User Feedback on Videos\""
-date: 2024-08-16T05:41:27.266Z
-updated: 2024-08-17T05:41:27.266Z
+date: 2025-03-03T17:38:16.356Z
+updated: 2025-03-04T18:35:21.970Z
 tags:
   - ai video
   - ai youtube
@@ -112,9 +112,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -151,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,8 +161,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-effortless-viewing-tackling-instagram-video-issues/"><u>[New] Effortless Viewing Tackling Instagram Video Issues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/xplore-10-youtube-creators-accelerating-their-popularity-for-2024/"><u>[New] Explore 10 YouTube Creators Accelerating Their Popularity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-quick-growth-on-youtube-mastering-the-art-of-video-outros/"><u>[New] In 2024, Quick Growth on YouTube Mastering the Art of Video Outros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-command-center-where-you-create-on-youtube/"><u>[New] In 2024, The Command Center Where You Create on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ake-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] Make an Impression With YouTube Clips Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rapidly-evolving-yt-spaces-enhancing-cerebral-growth/"><u>[Updated] 2024 Approved Rapidly Evolving YT Spaces Enhancing Cerebral Growth</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-marketing-layers-deconstructing-strategys-packaging/"><u>[Updated] In 2024, Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leveraging-your-google-id-for-private-yt-video-distribution-for-2024/"><u>[Updated] Leveraging Your Google ID for Private YT Video Distribution for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-real-time-vr-hardware-analysis/"><u>2024 Approved Real-Time VR Hardware Analysis</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-s21-fe-5g-2023-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy S21 FE 5G (2023) Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-harmonic-haven-best-dj-template-selections/"><u>In 2024, Harmonic Haven Best DJ Template Selections</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-maximize-visual-impact-with-free-digital-lut-resources/"><u>In 2024, Maximize Visual Impact with FREE Digital LUT Resources</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-gadgets-insightful-tips-from-the-experts-at-toms-hardware/"><u>Mastering Gadgets: Insightful Tips From the Experts at Tom's Hardware</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/kle-some-smiles-emojis-on-youtube-for-2024/"><u>Sprinkle Some Smiles Emojis on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-a-new-moniker-on-facebook/"><u>Transition to a New Moniker on Facebook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-ais-inception-key-historical-milestebts-in-machine-learning/"><u>Unveiling AI's Inception: Key Historical Milestebts in Machine Learning</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/vegas-pro-gambit-unveiled-a-21-comprehensive-review/"><u>Vegas Pro Gambit Unveiled A '21 Comprehensive Review</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-prodigy-vs-creative-hub-beta-edition-for-2024/"><u>YouTube Prodigy Vs. Creative Hub Beta Edition for 2024</u></a></li>
+</ul></div>
 

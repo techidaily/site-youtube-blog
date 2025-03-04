@@ -1,7 +1,7 @@
 ---
 title: "\"Visual Storytelling  Crafting Compelling Narratives in YouTube Videos\""
-date: 2025-02-11T17:56:32.519Z
-updated: 2025-02-15T20:05:41.905Z
+date: 2025-03-03T19:33:05.879Z
+updated: 2025-03-04T16:06:30.885Z
 tags:
   - ai video
   - ai youtube
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/52b4eaebcfcbc6c7fedd891af89526f0d5ee168fe
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -64,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/52b4eaebcfcbc6c7fedd891af89526f0d5ee168fe
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -84,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/52b4eaebcfcbc6c7fedd891af89526f0d5ee168fe
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -97,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/52b4eaebcfcbc6c7fedd891af89526f0d5ee168fe
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -124,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/52b4eaebcfcbc6c7fedd891af89526f0d5ee168fe
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -149,21 +129,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-tiny-content-overview-made-easy/"><u>[New] 2024 Approved Tiny Content Overview Made Easy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unlocking-the-secrets-of-youtubes-shorts-revenue-sharing/"><u>[New] 2024 Approved Unlocking the Secrets of YouTube’s Shorts Revenue Sharing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/xpert-tips-for-adding-youtube-images-in-slide-decks-for-2024/"><u>[New] Expert Tips for Adding YouTube Images in Slide Decks for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximizing-video-success-on-youtube-long-term-creativity-commons-strategy/"><u>[New] Maximizing Video Success on YouTube Long-Term Creativity Commons Strategy</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-educational-transformation-the-vr-revolution/"><u>[Updated] 2024 Approved Educational Transformation The VR Revolution</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-subtitles-made-simple-top-10-zero-cost-downloaders/"><u>[Updated] Subtitles Made Simple Top 10 Zero-Cost Downloaders</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-authenticity-financial-fruits-in-filmmaking-for-2024/"><u>[Updated] The Art of Authenticity Financial Fruits in Filmmaking for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-essential-user-manual-for-music-licensing-on-insta/"><u>[Updated] The Essential User Manual for Music Licensing on Insta</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-easy-steps-for-effective-ez-grabber-implementation/"><u>2024 Approved Easy Steps for Effective EZ Grabber Implementation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/codec-rivalry-assessing-the-next-step-in-video-encoding/"><u>Codec Rivalry Assessing the Next Step in Video Encoding</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/como-cambiar-musica-ape-a-formato-mp4-gratuito-en-linea-facilmente-con-movavi-solutions/"><u>Cómo Cambiar Música APE a Formato MP4 Gratuito en Línea Fácilmente Con Movavi Solutions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-analyzing-authenticity-point-in-visual-identity-sharing-platforms/"><u>In 2024, Analyzing Authenticity’ Point in Visual Identity Sharing Platforms</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-virtual-experiences-a-report/"><u>In 2024, Pioneering Virtual Experiences A Report</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-seeking-the-finest-cinematography-talents/"><u>In 2024, Seeking the Finest Cinematography Talents</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-tips-for-constructing-inspirational-day-to-day-visual-narratives/"><u>In 2024, Tips for Constructing Inspirational Day-to-Day Visual Narratives</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/insight-into-facebook-understanding-its-beginnings-appeal-factors-and-core-components/"><u>Insight Into Facebook: Understanding Its Beginnings, Appeal Factors, and Core Components</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-scriptwriters-playbook/"><u>[New] A Scriptwriter's Playbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-ultimate-list-templates-for-youtube-previews/"><u>[New] In 2024, Ultimate List Templates for YouTube Previews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-m1-processor-transforming-the-video-editing-experience/"><u>[New] M1 Processor Transforming the Video Editing Experience</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unmute-youtube-links-in-silent-twitter-videos/"><u>[New] Unmute YouTube Links in Silent Twitter Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-essential-techniques-for-yt-video-tweaking-with-wm-maker-for-2024/"><u>[Updated] Essential Techniques for YT Video Tweaking with WM Maker for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audio-dialogue-recorder/"><u>[Updated] In 2024, Audio Dialogue Recorder</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-complete-wm-maker-playbook-for-youtube-clips-perfection/"><u>[Updated] In 2024, The Complete WM Maker Playbook for YouTube Clips Perfection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unlock-your-potential-50-free-high-impact-banners-at-your-disposal/"><u>[Updated] In 2024, Unlock Your Potential 50 FREE, High-Impact Banners at Your Disposal!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-activating-or-deactivating-user-feedback-on-videos/"><u>2024 Approved Activating or Deactivating User Feedback on Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-beat-it-right-top-free-and-easy-online-analyzers-at-your-fingertips/"><u>2024 Approved Beat It Right Top Free & Easy Online Analyzers at Your Fingertips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-cutting-down-on-workload-the-ultimate-mac-mp4-apps-list/"><u>2024 Approved Cutting Down on Workload The Ultimate Mac MP4 Apps List</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-oppo-reno-8t-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Oppo Reno 8T 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-thumbnail-101-phones-edition/"><u>In 2024, YouTube Thumbnail 101 Phones Edition</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2534857-9781626256514-letters-to-my-grandson/"><u>Letters to My Grandson | Free Book</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-for-restoring-the-dormant-wsreset-on-your-pc/"><u>Methods for Restoring the Dormant WSReset on Your PC</u></a></li>
+<li><a href="https://win-top.techidaily.com/sichere-speicherung-von-windows-10-dateien-auf-onedrive-mit-kostenloser-software-zwei-effiziente-methoden/"><u>Sichere Speicherung Von Windows 10-Dateien Auf OneDrive Mit Kostenloser Software - Zwei Effiziente Methoden</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ost-benefit-analysis-should-you-sign-up-for-youtube-premium-for-2024/"><u>The Cost-Benefit Analysis Should You Sign Up for YouTube Premium for 2024</u></a></li>
 </ul></div>
 

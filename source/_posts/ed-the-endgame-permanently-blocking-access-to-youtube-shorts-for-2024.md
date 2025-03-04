@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Endgame  Permanently Blocking Access to YouTube Shorts for 2024\""
-date: 2025-02-12T19:41:21.322Z
-updated: 2025-02-15T17:11:16.732Z
+date: 2025-03-02T17:04:58.226Z
+updated: 2025-03-04T20:59:22.602Z
 tags:
   - ai video
   - ai youtube
@@ -57,10 +57,6 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
 
 ### Method 2: Settings menu of YouTube
@@ -83,25 +79,13 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 3: Can go with YouTube browser
 
 Hey guys, there is one more trick. Whenever you want to access YouTube, instead of going through the application, try to open YouTube website either from your mobile or PC browser window. You would wonder why so and what difference it will make. The fact is that the Shorts tab has not yet been incorporated under the browser version of YouTube.
 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4: Factory reset
 
@@ -132,14 +116,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 6: Removing all update
 
@@ -185,17 +161,9 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -245,19 +213,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-optimizing-income-through-youtube-short-tutorials/"><u>[New] 2024 Approved Optimizing Income Through YouTube Short Tutorials</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-small-business-video-markets/"><u>[New] In 2024, Navigating Small Business Video Markets</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-gamers-signature-look-essential-template-tips-for-channels/"><u>[Updated] Gamers' Signature Look Essential Template Tips for Channels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-investigating-the-economics-of-t-series-on-youtube/"><u>[Updated] In 2024, Investigating the Economics of T-Series on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streamlining-your-mac-techniques-to-remove-green-screen-effects-for-2024/"><u>[Updated] Streamlining Your Mac Techniques to Remove Green Screen Effects for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-the-ultimate-live-streaming-mic-guide-choosing-from-the-best-6/"><u>[Updated] The Ultimate Live-Streaming Mic Guide Choosing From the Best 6</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1715860442173-2024-approved-employing-inbuilt-screen-recording-tools-on-mate-p-models-p20-p10/"><u>2024 Approved Employing Inbuilt Screen Recording Tools on Mate, P Models (P20, P10).</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/compreeable-guide-to-fixed-windows-update-error-x80246007/"><u>Compreeable Guide to Fixed Windows Update Error X80246007</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Infinix Hot 30i? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-exploring-mobile-youtube-usage-on-different-oses/"><u>In 2024, Exploring Mobile YouTube Usage on Different OSes</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Samsung Galaxy M34? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-photo-collage-using-iphoto-in-2024/"><u>New How to Make a Photo Collage Using iPhoto, In 2024</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/truenas-windows/"><u>TrueNAS Windows 自動バックアップのシンプルな作り方</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-ultimate-list-of-video-editing-software-for-hot-vloggers-free-and-paid-for-2024/"><u>Updated The Ultimate List of Video Editing Software for Hot Vloggers Free & Paid for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/0-strategies-for-educators-starting-their-own-youtube-series-for-2024/"><u>[New] 10 Strategies for Educators Starting Their Own YouTube Series for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-installing-tiktok-made-easy-for-mac-users/"><u>[New] 2024 Approved Installing TikTok Made Easy for Mac Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-10-intro-maker-for-panzoid/"><u>[New] 2024 Approved Top 10 Intro Maker for Panzoid</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-clear-video-logger-for-windows-10-systems-for-2024/"><u>[New] Clear Video Logger for Windows 10 Systems for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-prioritize-tags-the-essentials-for-your-youtube-video-posting/"><u>[New] In 2024, Prioritize Tags The Essentials for Your YouTube Video Posting</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[Updated] 2024 Approved Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-profitable-streaming-start-top-8-income-strategies/"><u>[Updated] In 2024, Profitable Streaming Start Top 8 Income Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-reality-of-youtubes-fast-subscribe-technique/"><u>[Updated] In 2024, The Reality of YouTube's Fast Subscribe Technique</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-increase-viewership-fairly-insights-for-video-marketers/"><u>[Updated] Increase Viewership Fairly Insights for Video Marketers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-staying-legal-in-the-digital-space-youtubes-copyright-guide/"><u>[Updated] Staying Legal in the Digital Space YouTube's Copyright Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-nokia-105-classic-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Nokia 105 Classic?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/four-innovative-ways-to-employ-chatgpt-technology-for-superior-time-control-and-organization/"><u>Four Innovative Ways to Employ ChatGPT Technology for Superior Time Control and Organization</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-automatically-delete-old-files-in-windows-10-and-11/"><u>How to Automatically Delete Old Files in Windows 10 & 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-se-2020-without-losing-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone SE (2020) without Losing Data? | Stellar</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c22-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia C22 Phone Without Password?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-optimal-7-dslr-selections-for-in-depth-vlog-documentaries/"><u>In 2024, Optimal 7 DSLR Selections For In-Depth Vlog Documentaries</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-top-5-innovative-mac-capturing-solutions-moving-past-bandicam/"><u>In 2024, Top 5 Innovative Mac Capturing Solutions, Moving Past Bandicam</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-perils-of-trusting-large-technology-firms-lessons-from-microsofts-recent-failures/"><u>The Perils of Trusting Large Technology Firms: Lessons From Microsoft's Recent Failures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-earnings-a-step-by-step-guide-to-youtubes-monetization-on-mobile-for-2024/"><u>Unlocking Earnings A Step-by-Step Guide to YouTube's Monetization on Mobile for 2024</u></a></li>
 </ul></div>
 

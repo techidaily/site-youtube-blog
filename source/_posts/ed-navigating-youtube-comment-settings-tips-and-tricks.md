@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2025-02-08T19:19:00.688Z
-updated: 2025-02-15T22:10:27.934Z
+date: 2025-03-03T19:21:55.864Z
+updated: 2025-03-04T20:09:41.500Z
 tags:
   - ai video
   - ai youtube
@@ -45,19 +45,11 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
 
@@ -71,19 +63,11 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -130,10 +114,6 @@ Hover the mouse over the target video in the right window, and click the **Detai
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -188,21 +168,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-offline-entertainment-how-to-load-youtube-video-onto-your-apple-gear/"><u>[New] 2024 Approved Offline Entertainment How to Load YouTube Video Onto Your Apple Gear</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/igital-decibels-the-leading-youtube-voices/"><u>[New] Digital Decibels The Leading YouTube Voices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-secrets-to-acquiring-free-audio-tracks-for-videos/"><u>[New] In 2024, Secrets to Acquiring Free Audio Tracks for Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/remium-changing-voices-technology-for-youtube-artists-for-2024/"><u>[New] Premium Changing Voices Technology for YouTube Artists for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-reimagine-virtual-participation-google-meets-customizable-screenscape/"><u>[Updated] In 2024, Reimagine Virtual Participation Google Meet's Customizable Screenscape</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-mix-of-youtube-and-instagram-feeds-for-2024/"><u>[Updated] The Ultimate Mix of YouTube & Instagram Feeds for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/easily-watch-c-span-history-online-gratis/"><u>Easily Watch C-Span History Online, Gratis</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-installation-guide-for-linksys-wag320r-wifi-range-extender-software-driver-setup/"><u>Effortless Installation Guide for Linksys WAG320R WiFi Range Extender Software Driver Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-roundup-top-performing-key-finder-gadgets/"><u>Expert Roundup: Top-Performing Key Finder Gadgets</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-geforce-now-error-0xc0f1103f-in-windows-10-and-11/"><u>How to Fix the GeForce Now Error 0Xc0f1103f in Windows 10 & 11</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-audience-expansion-masterclass-skyrocketing-your-youtube-numbers/"><u>In 2024, Audience Expansion Masterclass Skyrocketing Your Youtube Numbers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-crafting-dynamic-youtube-content-as-animated-gifs-without-downloads/"><u>In 2024, Crafting Dynamic YouTube Content as Animated GIFs Without Downloads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-fast-track-to-1000-fans-through-captivating-content/"><u>In 2024, Fast-Track To 1,000 Fans Through Captivating Content</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-huawei-p60-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Huawei P60 Through Google Earth?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-focused-chroma-keying-101/"><u>Speed-Focused Chroma Keying 101</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-hashes-boosting-youtube-revenue-6k-milestone/"><u>[New] In 2024, Top Hashes Boosting YouTube Revenue $6K Milestone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leading-6-virtual-venues-propelling-professional-connections/"><u>[New] Leading 6 Virtual Venues Propelling Professional Connections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-6-free-audio-apps-convert-youtube-hits-to-your-android-device/"><u>[New] Top 6 Free Audio Apps - Convert YouTube Hits to Your Android Device</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-heroic-quests-ranking-gaming-epics-in-action-adventure/"><u>[Updated] Heroic Quests Ranking Gaming Epics in Action-Adventure</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights/"><u>[Updated] The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-experience-gaming-excellence-with-kinemaster-on-android/"><u>2024 Approved Experience Gaming Excellence with KineMaster on Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>2024 Approved What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/advanced-analytics-through-automated-data-collection-the-cookiebot-edge/"><u>Advanced Analytics Through Automated Data Collection: The Cookiebot Edge</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ideal-display-options-for-an-enhanced-experience-on-ps5-and-xbox-series-sx/"><u>Ideal Display Options for an Enhanced Experience on PS5 and Xbox Series S/X</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 11 Pro Max</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-in-the-views-youtube-thumbnail-size-and-ratios/"><u>Reign in the Views Youtube Thumbnail Size & Ratios</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/supersonic-vegetas-saiyan-transformation-artwork-and-digital-wallpaper-collection-powerful-desktop-scenes-by-yl-technologies/"><u>Supersonic Vegeta's Saiyan Transformation Artwork & Digital Wallpaper Collection - Powerful Desktop Scenes by YL Technologies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unlocking-the-art-of-reversed-video-experience-on-snapchat-for-2024/"><u>Unlocking the Art of Reversed Video Experience on Snapchat for 2024</u></a></li>
 </ul></div>
 

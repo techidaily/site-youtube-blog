@@ -1,7 +1,7 @@
 ---
 title: "\"YT Outro Guidelines  Keeping Viewers Hooked for 2024\""
-date: 2025-02-10T22:38:14.514Z
-updated: 2025-02-15T16:05:29.251Z
+date: 2025-02-27T18:52:41.205Z
+updated: 2025-03-04T19:41:15.765Z
 tags:
   - ai video
   - ai youtube
@@ -81,10 +81,6 @@ If you are using CTAs in your outro, remember to add links and elements that are
 
 Being consistent in your designs is a key ingredient to improving your brand recognition. Stick to a specific color palette or themes, so the audience can easily identify your channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Make an Outstanding YouTube Video Outro
 
 Now it is time to learn how to make an outro for YouTube. You can create the perfect outro for YouTube using the tools from Adobe After Effects. The following steps indicate how to make an outro using After Effects:
@@ -99,10 +95,6 @@ Create a new composition on After Effects. Set the resolution to 1920x1080, the 
 
 ![finalize the composition settings](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Create a Background Layer
 
 Go to the "Layer" tab, tap "New," create a black "Solid" background layer.
@@ -115,19 +107,11 @@ Now grab the "Rectangle Tool" and create a new shape on the right side of the sc
 
 ![video suggestion box added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Add Subscribe Button
 
 Next, go to the shape tool again and select the "Ellipse Tool." Deselect the current shape layer to create a new one and create a circle on the left part of the screen, which will act as your Subscribe button.
 
 ![subscribe button added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 6: Add Effects
 
@@ -167,17 +151,9 @@ Step 2: Search and download the "YouTube Pack" from Filmstock.
 
 ![download the youtube outro pack](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-15.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and apply to your videos.
 
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
 
@@ -197,29 +173,17 @@ The 4K YouTube Motion Graphics Packaging contains multiple title templates from 
 
 ![4k youtube motion graphics packaging](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [Clean YouTube Subscribe Pack](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Looking for a clean and elegant design for your YouTube outro? Filmstock's Clean YouTube Subscribe Pack does that task for you. The pack contains 13 different title templates and elements that can be used on Filmora 9.6\. The simple and modest set includes subscribing reminders on red backgrounds to help your channel grow and flourish.
 
 ![clean youtube subscribe pack](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. [Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Compatible with Filmora 9.2 or above, the Social Media Icons Pack by Filmstock contains some of the best elements for different social platforms, such as YouTube or Facebook.
 
 The Social Media Icons Pack contains all the necessary elements for when you want to communicate with your viewers. It includes bell icons, subscribes buttons, hashtags, location tags, like, share, and follows icons, and much more. With 23 elements revolving around multiple social media themes, this pack is perfectly suited for YouTube videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. [Social Media Lowerthird Pack](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -256,18 +220,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-clip-narration-devisee/"><u>[New] In 2024, Clip Narration Devisee</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-establishing-a-signature-persona-on-youtube/"><u>[New] In 2024, Step-by-Step Establishing a Signature Persona on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-prime-editing-choosing-the-best-for-youtube/"><u>[Updated] In 2024, Prime Editing Choosing the Best For YouTube</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-10-drawing-apps-for-android-unleash-your-inner-artist/"><u>[Updated] In 2024, Top 10 Drawing Apps for Android Unleash Your Inner Artist</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-online-persona-transformation-rendering-your-cartoon-self-for-2024/"><u>[Updated] Online Persona Transformation Rendering Your Cartoon Self for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-privacy-purposed-selecting-best-insta-watchers-for-2024/"><u>[Updated] Privacy-Purposed Selecting Best Insta Watchers for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-shorts-templates-understanding-the-fundamentals/"><u>[Updated] YouTube Shorts Templates Understanding the Fundamentals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-creative-commons-license-explained-simply-for-2024/"><u>[Updated] YouTube's Creative Commons License Explained Simply for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-navigating-the-complexities-of-youtube-copyright-claims/"><u>2024 Approved Navigating the Complexities of YouTube Copyright Claims</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-infinix-smart-8-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Infinix Smart 8 Through Google Earth?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-visual-testimonial-advantage/"><u>In 2024, The Visual Testimonial Advantage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-through-instagram-video-woes-with-ease-for-2024/"><u>Navigating Through Instagram Video Woes with Ease for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-infinix-hot-40-pro-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Infinix Hot 40 Pro has been deleted.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-perfect-virtual-presentations-using-video-filters-on-zoom/"><u>[New] 2024 Approved Perfect Virtual Presentations Using Video Filters on Zoom</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-breaking-down-the-barriers-to-knowing-your-fans/"><u>[New] Breaking Down the Barriers to Knowing Your Fans</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-keyword-strategies-for-youtube-success/"><u>[New] In 2024, Navigating Keyword Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-the-secrets-of-auditory-success-on-youtube-videos/"><u>[New] In 2024, Unlock the Secrets of Auditory Success on YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-budget-friendly-webinar-strategies-for-youtube/"><u>[Updated] In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-video-landscape-vimeo-and-youtube-distinguished/"><u>[Updated] Navigating Video Landscape Vimeo and YouTube Distinguished</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-push-past-a-thousand-views-in-minimal-time/"><u>[Updated] Push Past a Thousand Views in Minimal Time</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pioneering-success-innovative-youtube-strategies/"><u>2024 Approved Pioneering Success Innovative YouTube Strategies</u></a></li>
+<li><a href="https://win-web.techidaily.com/building-a-balanced-crypto-asset-allocation-with-expert-advice-from-yl-software/"><u>Building a Balanced Crypto Asset Allocation with Expert Advice From YL Software</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/detecting-graphics-card-overheat-methods-and-tips-insights-by-yl-computing/"><u>Detecting Graphics Card Overheat: Methods and Tips - Insights by YL Computing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mical-camera-options-best-deals-for-diy-vloggers/"><u>Economical Camera Options Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-blueprint-for-money-making-for-2024/"><u>Gamer’s Blueprint for Money-Making for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Detect and Stop mSpy from Spying on Your Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/master-the-art-of-painless-windows-update-perfect-driver-setup/"><u>Master the Art of Painless Windows Update: Perfect Driver Setup</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/revolutionize-your-videos-essential-obs-edits-at-hand/"><u>Revolutionize Your Videos Essential OBS Edits at Hand</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/steam-servers-now-online-previous-connection-issues-solved/"><u>Steam Servers Now Online - Previous Connection Issues Solved</u></a></li>
+<li><a href="https://discover-help.techidaily.com/telecharger-librement-le-kit-ultime-de-logiciels-multimedia-conversion-video-ripper-dvd-and-extraction-video-par-winx/"><u>Télécharger Librement: Le Kit Ultime De Logiciels Multimédia : Conversion Vidéo, Ripper DVD & Extraction Vidéo Par WinX</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-for-filmmakers-revolutionizing-visual-storytelling/"><u>Youtube for Filmmakers Revolutionizing Visual Storytelling</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-seo-guide-how-to-improve-search-rankings-for-your-youtube-videos-for-2024/"><u>YouTube SEO Guide How to Improve Search Rankings For Your YouTube Videos for 2024</u></a></li>
 </ul></div>
 

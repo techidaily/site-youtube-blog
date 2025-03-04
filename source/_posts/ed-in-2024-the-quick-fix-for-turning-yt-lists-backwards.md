@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Quick Fix for Turning YT Lists Backwards"
-date: 2025-02-13T19:31:28.927Z
-updated: 2025-02-15T19:01:56.496Z
+date: 2025-02-27T21:20:55.499Z
+updated: 2025-03-04T22:58:12.259Z
 tags:
   - ai video
   - ai youtube
@@ -62,23 +62,11 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using The Third Website
 
@@ -110,10 +98,6 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 
 As a YouTube content creator, you need to set your videos' order in your Playlist. Besides, the video's trailer also influences your audiences' browsing and watching experience. To help you with this part in case you are in need, we have prepared a video tutorial for you - How To Make Your Own YouTube Channel Trailer. If you have any interests, please don't miss it, and see how to make a fantastic video trailer with a user-friendly video editor [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/):
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Adding Playlist to Your Private Playlist
 
 If you want to reverse a YouTube playlist order, you can create a new private playlist. This quick and easy method will help you get the desired results.
@@ -127,10 +111,6 @@ Step 2: In the next step, click your Profile at the top right of the screen and 
 Step 3: Scroll down on your channel's dashboard, select a video, and click the three dots next to it. Next, click "Add to Playlist" from the drop-down list and select the "Create a New Playlist" option to make a new one.
 
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
@@ -165,24 +145,21 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/onvenient-viewing-setting-up-youtube-on-large-tv-panels-for-2024/"><u>[New] Convenient Viewing Setting Up YouTube on Large TV Panels for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-a-closer-look-at-the-monetization-mechanism-for-video-clips/"><u>[New] In 2024, A Closer Look at the Monetization Mechanism for Video Clips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-world-of-youtube-live-visuals/"><u>[New] In 2024, Navigating the World of YouTube Live Visuals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-online-money-tally-for-youtube-creators/"><u>[Updated] 2024 Approved Online Money Tally for YouTube Creators</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-pioneering-patterns-screen-cast-with-loom-pro/"><u>[Updated] 2024 Approved Pioneering Patterns Screen Cast with Loom Pro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pros-and-cons-of-syma-x8c/"><u>[Updated] 2024 Approved Pros and Cons of Syma X8C</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-12-affordable-high-quality-video-apps-recommended-for-pc-and-android-devices/"><u>[Updated] 2024 Approved Top 12 Affordable, High-Quality Video Apps Recommended for PC & Android Devices</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-from-global-reach-to-engagement-deciphering-igtv-and-youtubes-strategies-for-2024/"><u>[Updated] From Global Reach to Engagement Deciphering IGTV & YouTube’s Strategies for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-optimizing-youtube-view-duration-three-steps-52-chars/"><u>[Updated] Optimizing YouTube View Duration - Three Steps (52 Chars)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-rhythms-ally-finding-best-dj-content-online/"><u>[Updated] Rhythm's Ally Finding Best DJ Content Online</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-professional-insights-top-10-capture-cards-for-youtube-enthusiasts/"><u>2024 Approved Professional Insights Top 10 Capture Cards for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-unleash-creativity-with-youtube-studio-editor/"><u>2024 Approved Unleash Creativity with YouTube Studio Editor</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/can-you-submerge-the-new-iphone-15-pro-max-in-water-without-damage/"><u>Can You Submerge The New iPhone 15 Pro Max In Water Without Damage?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-kensuns-traveler-tire-inflator-durable-and-effortless-use-anywhere-you-go/"><u>Expert Review of Kensun's Traveler Tire Inflator – Durable & Effortless Use Anywhere You Go</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-low-fps-issues-a-comprehensive-guide-for-pc-gaming-enthusiasts/"><u>Fixing Low FPS Issues: A Comprehensive Guide for PC Gaming Enthusiasts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/from-soil-to-success-selecting-the-top-valheim-seeds/"><u>From Soil to Success Selecting the Top Valheim Seeds</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/o-structure-youtube-videos/"><u>How to Structure YouTube Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-xiaomi-redmi-k70-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Xiaomi Redmi K70</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-guide-finding-and-downloading-mp4-files-for-free/"><u>Ultimate Guide: Finding & Downloading MP4 Files for Free</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-hidden-to-highlighted-your-2-ways-to-see-yts-past-videos/"><u>[New] 2024 Approved From Hidden to Highlighted Your 2 Ways to See YT's Past Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-navigating-the-world-of-audio-editing-with-garageband/"><u>[New] 2024 Approved Navigating the World of Audio Editing with GarageBand</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-gaming-history-told-by-top-video-makers/"><u>[New] In 2024, Gaming History Told by Top Video Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-quick-start-to-youtube-success-creating-business-and-personal-channels-on-phone/"><u>[New] In 2024, Quick Start to YouTube Success Creating Business & Personal Channels on Phone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-convert-youtube-to-mp3-safely-top-3-guided-approaches/"><u>[Updated] In 2024, Convert YouTube to MP3 Safely Top 3 Guided Approaches</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-educational-history-series-the-most-engaging-ones/"><u>[Updated] In 2024, Educational History Series - The Most Engaging Ones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-kids-on-steroids-ryans-incredible-journey-from-child-to-ceo-for-2024/"><u>[Updated] Kids on Steroids Ryan’s Incredible Journey From Child to CEO for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-loom-lens-illuminating-your-recording-journey/"><u>[Updated] Loom Lens Illuminating Your Recording Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-propel-traffic-and-engagement-with-smart-youtube-backlink-strategies/"><u>2024 Approved Propel Traffic and Engagement with Smart YouTube Backlink Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-ultimate-guide-selecting-8-exquisite-weddings-vids/"><u>2024 Approved Ultimate Guide Selecting 8 Exquisite Weddings - Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-irreversible-disconnection-from-fb-community/"><u>Breaking Free: Irreversible Disconnection From FB Community</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-winx-dvd-ripping-software-convert-dvds-to-mp4avi-formats-for-ios-and-android-devices/"><u>Free WinX DVD Ripping Software: Convert DVDs to MP4/AVI Formats for iOS and Android Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-pinnacle-strategies-for-persuasive-client-centered-videography/"><u>In 2024, The Pinnacle Strategies for Persuasive Client-Centered Videography</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secure-your-files-enable-controlled-access-in-windows-11/"><u>Secure Your Files: Enable Controlled Access in Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-and-fixing-hps-beats-audio-drivers-in-windows-operating-systems/"><u>Troubleshooting and Fixing HP's Beats Audio Drivers in Windows Operating Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-expertise-pathway-choosing-between-standard-studio-and-beta-for-2024/"><u>YouTube Expertise Pathway Choosing Between Standard Studio and Beta for 2024</u></a></li>
 </ul></div>
 

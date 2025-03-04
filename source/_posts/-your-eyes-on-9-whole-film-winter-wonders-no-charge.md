@@ -1,7 +1,7 @@
 ---
 title: "\"Feast Your Eyes on 9 Whole-Film Winter Wonders  No Charge!\""
-date: 2024-08-16T05:43:59.772Z
-updated: 2024-08-17T05:43:59.772Z
+date: 2025-03-02T16:09:06.930Z
+updated: 2025-03-04T16:12:28.080Z
 tags:
   - ai video
   - ai youtube
@@ -62,9 +62,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -73,14 +70,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -89,8 +83,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-connoisseurs-guide-to-youtube-music-orchestration/"><u>[New] 2024 Approved The Connoisseur's Guide to YouTube Music Orchestration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-the-potential-of-youtube-shorts-a-comprehensive-tutorial/"><u>[New] In 2024, Unlocking the Potential of YouTube Shorts A Comprehensive Tutorial</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-innovative-approaches-to-enhancing-google-meet-visibility-for-2024/"><u>[New] Innovative Approaches to Enhancing Google Meet Visibility for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-launching-an-online-fundraising-challenge-on-facebook/"><u>[New] Launching an Online Fundraising Challenge on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-optimal-insta-video-sizes-2023-guide/"><u>[New] Optimal Insta Video Sizes - 2023 Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/napshots-of-sound-characters-short-musical-roles/"><u>[New] Snapshots of Sound Characters Short Musical Roles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-mastering-the-use-of-tags-for-maximum-reach/"><u>[New] YouTube Mastering the Use of Tags for Maximum Reach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-download-youtube-snippets-with-perfection/"><u>[Updated] 2024 Approved Download YouTube Snippets with Perfection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-strategic-thumbnail-design-maximizing-online-exposure/"><u>[Updated] 2024 Approved Strategic Thumbnail Design Maximizing Online Exposure</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essence-of-engaging-live-broadcasts-360-video-techniques-for-youtube-for-2024/"><u>[Updated] The Essence of Engaging Live Broadcasts 360° Video Techniques for Youtube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>2024 Approved An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-free-study-apps-and-resources-for-students-returning-this-year/"><u>Best Free Study Apps & Resources for Students Returning This Year</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/youtube-livestreaming-screen-recorders-for-2024/"><u>Best YouTube Livestreaming Screen Recorders for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-advice-for-improved-minecraft-zooms/"><u>Expert Advice for Improved Minecraft Zooms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-the-most-out-of-live-sports-on-youtube-tv/"><u>Getting the Most Out of Live Sports on YouTube TV</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-a-frozen-hdd-in-windows-11-expert-tips-for-disk-health-restoration/"><u>How to Troubleshoot a Frozen HDD in Windows 11: Expert Tips for Disk Health Restoration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ears-predictions-rendered-in-infographics/"><u>The Year's Predictions Rendered in Infographics</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-ultimate-guide-to-free-online-video-stabilization-software-for-2024/"><u>Updated The Ultimate Guide to Free Online Video Stabilization Software for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/vanishing-visions-defeated-eliminating-resident-evil-villages-darkness-dilemma-for-a-seamless-pc-experience/"><u>Vanishing Visions Defeated: Eliminating Resident Evil Village's Darkness Dilemma for a Seamless PC Experience</u></a></li>
+</ul></div>
 
